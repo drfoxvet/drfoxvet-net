@@ -121,8 +121,6 @@ The vomiting is down to a minimum now and he is happier and friskier than he's b
 
 P.W., Palm Beach, FL
 
-<hr>
-
 ## DOGS
 
 DEAR DR. FOX: I have recently switched my 11-year-old Sheltie, Tux, from eating commercial dog food to your recommended homemade dog food recipe.  The results have been dramatic.
