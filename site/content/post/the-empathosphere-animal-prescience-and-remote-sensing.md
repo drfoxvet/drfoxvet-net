@@ -29,13 +29,13 @@ I have heard from many people whose companion animals have shown such remote sen
 
 Louise Vajda of St Louis MO wrote to me about a remarkable dog named Shosty. She states:
 
-“My husband’s parents lived in Indiana. My mother-in-law’s brother, John, lived with them. He was a diabetic. They had a dog named Shosty (short for Shostakovich, the Russian composer).
+_“My husband’s parents lived in Indiana. My mother-in-law’s brother, John, lived with them. He was a diabetic. They had a dog named Shosty (short for Shostakovich, the Russian composer)._
 
-The brother John became ill and died. Immediately after the funeral, Shosty disappeared. Several days later a friend of the family found the dog, hungry and haggard, lying on John’s grave!
+_The brother John became ill and died. Immediately after the funeral, Shosty disappeared. Several days later a friend of the family found the dog, hungry and haggard, lying on John’s grave!_
 
-The remarkable and unbelievable part of this story is that the cemetery was many miles outside the city, and Shosty had never been there before. They had no idea how he had been able to find it.
+_The remarkable and unbelievable part of this story is that the cemetery was many miles outside the city, and Shosty had never been there before. They had no idea how he had been able to find it._
 
-I believe dogs have some special abilities of which we humans are unaware.”
+_I believe dogs have some special abilities of which we humans are unaware.”_
 
 After giving a talk in Minnesota about holistic care for companion animals, a woman came up from the audience after my seminar to share the amazing saga of her cat she had when she was a student many years ago. She left the beloved feline with her parents and moved seven miles across the city of Los Angeles into an apartment. Soon after, her parents told her the cat was gone, and to her surprise some days later she found the cat waiting for her outside her apartment where the cat had never ever been before. How the cat survived a journey across that city is a miracle of instinctual prowess in itself. But how the cat knew where to go we may never know. We do know that cats, like other animals, have micro-particles of iron in their brains that can help give them some geomagnetic compass-like directional sense, but whatever emotional sensors they must possess may forever remain part of the great mystery that leads some of us to a deeper faith that others fear or dismiss for lack of any rational explanation. Yet we live that mystery that should move us all to reverence all life, and celebrate the miracle of sentient life and conscious existence! 
 
