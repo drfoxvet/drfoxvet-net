@@ -1,6 +1,6 @@
 ---
 title: "One Earth, One Health"
-subtitle: Support sustainable farming while enjoying a cup
+subtitle: Dedicated to advancing the understanding and appreciation of other animals, improving their health and well-being and our relationships with them and the natural world.
 image: /img/pamela-lima-650922-unsplash.jpg
 blurb:
     heading: Welcome
