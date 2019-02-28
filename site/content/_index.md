@@ -1,18 +1,13 @@
 ---
-title: "Great coffee with a conscience"
+title: "One Earth, One Health"
 subtitle: Support sustainable farming while enjoying a cup
-image: /img/home-jumbotron.jpg
+image: /img/pamela-lima-650922-unsplash.jpg
 blurb:
-    heading: Why Kaldi?
-    text: "Kaldi is the coffee store for everyone who believes that great coffee shouldn't just taste good, it should do good too. We source all of our beans directly from small scale sustainable farmers and make sure part of the profits are reinvested in their communities."
+    heading: Welcome
+    text: "Welcome all animal lovers, owners, trainers, breeders, care-providers, and students of animal care, health, welfare and bioethics to my website. I am a veterinarian, graduating from the Royal Veterinary College, London, England in 1962. I did post-graduate research on animal behavior and development in the US, where I now reside, earning a PhD in medicine, and a DSc in ethology/animal behavior from the University of London. I am a member of the British Veterinary Association, the American Holistic Veterinary Medical Association and an Honor Roll member of the American Veterinary Medical Association. "
 intro:
-    heading: "What we offer"
-    text: "Kaldi is the ultimate spot for coffee lovers who want to learn about their java’s origin and support the farmers that grew it. We take coffee production, roasting and brewing seriously and we’re glad to pass that knowledge to anyone."
-products:
-    - image: img/illustrations-coffee.svg
-      text: "We sell green and roasted coffee beans that are sourced directly from independent farmers and farm cooperatives. We’re proud to offer a variety of coffee beans grown with great care for the environment and local communities. Check our post or contact us directly for current availability."
-    - image: /img/illustrations-coffee-gear.svg
-      text: "We offer a small, but carefully curated selection of brewing gear and tools for every taste and experience level. No matter if you roast your own beans or just bought your first french press, you’ll find a gadget to fall in love with in our shop."
+    heading: "India's Animals: Helping the Sacred & the Suffering"
+    text: "This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve."
 values:
     heading: Our values
     text: Coffee is an amazing part of human culture but it has a dark side too – one of colonialism and mindless abuse of natural resources and human lives. We want to turn this around and return the coffee trade to the drink’s exhilarating, empowering and unifying nature.
