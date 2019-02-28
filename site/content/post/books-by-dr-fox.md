@@ -48,3 +48,147 @@ The Boundless Circle is more than an appeal to reason and justice in all our rel
 This is the boundless circle of fellow-feeling--- joy and suffering, desire and satisfaction, longing and contentment, and the raw will to survive, procreate, and to protect our loved ones--- that we share with all sentient beings, plant and animal, great and small. When we begin to feel their joy and well-being, we will begin to feel our own again.
 
 The key is in coupling our ability to reason, to be reasonable---with our capacity for empathy, to feel for others. This key to the kingdom, that I first wrote about in my 1976 book Between Animal And Man: The Key to the Kingdom that makes us human, humane, empathic, responsible and caring as a species and as a culture: A long overdue evolutionary step of enlightened self-interest that is, as Dr. Fox shows in The Boundless Circle, beginning to happen in many parts of the world this Second Millennium.
+
+![](/img/books-healing-touch-cats.jpg)
+
+![](/img/books-healing-touch-dogs.jpg)
+
+## DEVELOP YOUR HEALING TOUCH
+
+One of the greatest gifts that we humans possess and can give to our animal companions is the healing power of touch. The easy to follow basic massage program, and more advanced acupressure massage, are laid out in The Healing Touch for Cats, and The Healing Touch for Dogs, available from Newmarket Press, NY,  price $12.95.
+
+Giving pets a regular massage helps strengthen the emotional bond, enables earlier recognition of illness, and helps maintain animals’ health and vitality. People who have used this basic massage system on their pets attest to the many benefits, especially in helping older cats and dogs deal with joint and circulation problems, and in helping shy and formerly abused animals learn to relax and trust.
+
+## BOOKS BY DR. MICHAEL W. FOX
+
+Easiest to order from Amazon.com
+
+Some titles out of print, used copies available:
+
+HEALING ANIMALS & THE VISION of ONE HEALTH. CreatSpace publ/Amazon.com 2011
+
+ANIMALS & NATURE FIRST: New Covenants CreatSpace publ. Amazon.com/2011
+
+NOT FIT FOR A DOG: THE TRUTH ABOUT MANUFACTURED DOG AND CAT FOOD, co-authored with Elizabeth Hodgkins, DVM, Esq, and Marion E. Smart, DVM, PhD, Sanger CA, Quill Driver Books, 2008
+
+DOG BODY, DOG MIND: Exploring Canine Consciousness and Total Well-Being. Guilford, CT. The Lyon's Press, 2007
+
+CAT BODY, CAT MIND: EXPLORING FELINE CONSCIOUSNESS AND TOTAL WELL-BEING. Guilford, CT. The Lyons Press, 2007
+
+BRINGING LIFE TO ETHICS: GLOBAL BIOETHICS FOR A HUMANE SOCIETY Albany, NY, State University of New York Press, 2001
+
+KILLER FOODS: WHEN SCIENTISTS MANIPULATE GENES, BETTER IS NOT ALWAYS BEST. Guilford, CT. The Lyons Press, 2004
+
+THE HEALING TOUCH FOR DOGS New York, NY Newmarket Press, 2004
+
+THE HEALING TOUCH FOR CATS New York, NY, Newmarket Press, 2004
+
+THE SOUL OF THE WOLF (reprint edition 1992) Lyons & Burford, New York (now e-book with DogWise publications)
+
+UNDERSTANDING YOUR DOG (revised edition 1992) St. Martin's Press, New York ( now e-book with DogWise publications)
+
+BEHAVIOR OF WOLVES, DOGS, AND RELATED CANIDS (reprint edition 1984 (now e-book with DogWise publications).
+
+THE DOG: ITS DOMESTICATION AND BEHAVIOR (reprint edition 1987) (now e-book with DogWise publications).
+
+THE WILD CANIDS (reprint edition 1983) (now e-book with DogWise publications).
+
+CONCEPTS IN ETHOLOGY, ANIMAL BEHAVIOR AND BIOETHICS (revised edition 1997) R. E. Krieger Publishing Co., Malabar, Florida
+
+THE BOUNDLESS CIRCLE (1996) Quest Books, Wheaton, Illinois
+
+SUPERCAT How to Raise the Perfect Feline Companion. New York, NY, Howell Books, 1991.
+
+THE NEW EDEN Lotus Press, Santa Fe, New Mexico 1989
+
+LABORATORY ANIMAL HUSBANDRY State University of New York Press, Albany, New York 1986
+
+THE WHISTLING HUNTERS State University of New York Press, Albany, New York 1984
+
+<hr>
+
+## Books out of print but available on www.amazon.com:
+
+AGRICIDE: THE HIDDEN FARM AND FOOD CRISIS THAT AFFECTS US ALL (revised edition 1996) R.E. Krieger Publishing Co., Malabar, Florida
+
+LOVE IS A HAPPY CAT Newmarket Press, New York 1986
+
+UNDERSTANDING YOUR CAT (revised edition 1992) St. Martin's Press, New York
+
+YOU CAN SAVE THE ANIMALS (1991) St. Martin's Press, New York
+
+SUPERDOG (1990) Howell Books, New York
+
+INHUMANE SOCIETY: THE AMERICAN WAY OF EXPLOITING ANIMALS (1990) St Martin's Press, NY
+
+BETWEEN ANIMAL AND MAN: THE KEY TO THE KINGDOM (reprint edition 1986) Krieger Publishing Co., Malabar, Florida
+
+THE NEW ANIMAL DOCTOR'S ANSWER BOOK Newmarket Press, New York 1989
+
+EATING WITH CONSCIENCE: THE BIOETHICS OF FOOD (1997) NewSage Press, Troutdale, Oregon
+
+ONE EARTH, ONE MIND (reprint edition 1984) Krieger Publishing Co., Malabar, Florida
+
+FARM ANIMALS: HUSBANDRY, BEHAVIOR AND VETERINARY PRACTICE (1983) University Press, Baltimore, Maryland
+
+HOW TO BE YOUR PET'S BEST FRIEND (1981) Coward, McCann & Geoghegan, New York
+
+RETURNING TO EDEN: ANIMAL RIGHTS AND HUMAN RESPONSIBILITY (1980)Viking Press, New York
+
+UNDERSTANDING YOUR PET (1978) Coward, McCann and Geoghegan, New York
+
+CANINE BEHAVIOR (reprint edition 1972) Charles C. Thomas Publishing, Springfield, Illinois
+
+INTEGRATIVE DEVELOPMENT OF BRAIN AND BEHAVIOR IN THE DOG (1971)University of Chicago Press
+
+CANINE PEDIATRICS (1966) Charles C. Thomas Publishing, Springfield, Illinois
+
+<hr>
+
+## Editor of:
+
+ADVANCES IN ANIMAL WELFARE SCIENCE (annual series 1984-1987) Martinus Nijhoff in Holland, and The Humane Society of the United States, Washington, DC
+
+ON THE FIFTH DAY: ANIMAL RIGHTS AND HUMAN ETHICS (1977) AcropolisPress, Washington, DC (With R. K. Morris)
+
+READINGS IN ETHOLOGY AND COMPARATIVE PSYCHOLOGY (1973) Brooks/Cole, California
+
+ABNORMAL BEHAVIOR IN ANIMALS (1968) Saunders, Philadelphia
+
+<hr>
+
+## Children's Books:
+
+ANIMALS HAVE RIGHTS TOO (1991) Crossroads/Continuum, New York
+
+THE WAY OF THE DOLPHIN (1981) Acropolis Books, Washington, DC
+
+THE TOUCHLINGS (1981) Acropolis Books, Washington, DC
+
+LESSONS FROM NATURE: FOX'S FABLES (1980) Acropolis, Washington, DC
+
+WHITEPAWS: A COYOTE-DOG (1979) Coward, McCann & Geoghegan, New York
+
+WILD DOGS THREE (1977) Coward, McCann & Geoghegan, New York
+
+WHAT IS YOUR DOG SAYING? (1977) M. W. Fox and Wende Devlin Gates,
+
+Coward, McCann & Geoghegan, New York
+
+WHAT IS YOUR CAT SAYING? (1977) M. W. Fox and Wende Devlin Gates,
+
+Coward, McCann & Geoghegan, New York
+
+RAMU AND CHENNAI* (1975) Coward, McCann & Geoghegan, New York
+
+SUNDANCE COYOTE\*\* (1974) Coward, McCann & Geoghegan, New York
+
+THE WOLF\*\** (1973) Coward, McCann & Geoghegan, New York
+
+VIXIE, THE STORY OF A LITTLE FOX (1973) Coward, McCann & Geoghegan, New York
+
+\* Best Science Book Award, National Teachers' Association
+
+\*\* Nominee for Mark Twain Award
+
+\*\** Christopher Award for children's literature
