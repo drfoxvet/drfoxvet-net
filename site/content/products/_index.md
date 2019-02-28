@@ -1,40 +1,40 @@
 ---
-title: Our Coffee
+title: Title
 type: products
-image: /img/products-jumbotron.jpg
-heading: What we offer
+image: /img/
+heading: Heading
 description: >-
   Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
 intro:
   blurbs:
-    - image: /img/illustrations-coffee.svg
+    - image: /img/
       text: >
         Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    - image: /img/illustrations-coffee-gear.svg
+    - image: /img/
       text: >
         Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    - image: /img/illustrations-tutorials.svg
+    - image: /img/
       text: >
         Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    - image: /img/illustrations-meeting-space.svg
+    - image: /img/
       text: >
         Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-  heading: What we offer
+  heading: Heading
   description: >
     Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
 main:
-  heading: Great coffee with no compromises
+  heading: Heading
   description: >
     Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
   image1:
     alt: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    image: /img/products-grid3.jpg
+    image: /img/
   image2:
     alt: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    image: /img/products-grid2.jpg
+    image: /img/
   image3:
     alt: Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
-    image: /img/products-grid1.jpg
+    image: /img/
 testimonials:
   - author: Author
     quote: >-
