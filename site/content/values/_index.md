@@ -1,6 +1,6 @@
 ---
 title: "About"
-image: /img/about-jumbotron.jpg
+image: /img/frederick-kermisch-1218054-unsplash.jpg
 values:
   - heading: "Heading"
     text: >
