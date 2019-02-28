@@ -4,8 +4,10 @@ date: 2019-02-26T16:17:12.095Z
 description: >-
   First, support your local animal and environmental protection organizations:
   Act local and think global!
-image: /img/wolf_chief_dan_george.jpg
+image: ''
 ---
+![](/img/wolf_chief_dan_george.jpg)
+
 Then please visit the following non-profit organizations that need public support to help animals wild and domestic and the environment we share at home and abroad.
 
 * World Veterinarians www.worldvets.org
@@ -16,6 +18,8 @@ Then please visit the following non-profit organizations that need public suppor
 * Environmental Working Group www.ewg.org
 * Prakriti Save Nature Trust www.prakritigudalur.in *
 * Project Coyote www.projectcoyote.org \*\*
+
+![](/img/project-coyote.jpg)
 
 ## Project Coyote
 
