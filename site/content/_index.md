@@ -9,7 +9,5 @@ intro:
     heading: "India's Animals: Helping the Sacred & the Suffering"
     text: "This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve."
 values:
-    heading: Our values
-    text: Coffee is an amazing part of human culture but it has a dark side too – one of colonialism and mindless abuse of natural resources and human lives. We want to turn this around and return the coffee trade to the drink’s exhilarating, empowering and unifying nature.
 ---
 
