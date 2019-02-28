@@ -1,11 +1,10 @@
 ---
-title: Homepage
+title: 'Dr. Fox''s One Earth, One Health'
 date: 2019-02-26T16:09:46.438Z
-description: >-
-  Dedicated to advancing the understanding and appreciation of other animals,
-  improving their health and well-being and our relationships with them and the
-  natural world.
+description: ' '
 ---
+Dedicated to advancing the understanding and appreciation of other animals, improving their health and well-being and our relationships with them and the natural world.
+
 > "We've got a fox in the henhouse, looking at how we keep our livestock, and its name is Michael Fox!"
 
 \--From an Agribusiness publication, circa 1982.
