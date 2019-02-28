@@ -8,7 +8,5 @@ contact_entries:
 
 <h2 class="f4 b lh-title mb2">Get In Touch</h2>
 
-We’d love to get in touch with you and hear your ideas and
-questions. We strive to grow and improve constantly and your feedback
-is valuable for us.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nunc eu orci turpis.
 
