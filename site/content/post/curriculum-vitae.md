@@ -69,8 +69,8 @@ Royal Society for the Prevention of Cruelty to Animals, 1959\
 Washington University, St. Louis, Alumnus Faculty Award, 1972\
 Distinguished Teacher
 
- Dog Writers’ Association of America, 1973\
- Maxwell Award.
+Dog Writers’ Association of America, 1973\
+Maxwell Award.
 
 Christopher Award for Children’s literature, 1974\
 International Felix Wankel Prize, 1982\
@@ -82,14 +82,14 @@ The Delta Society, 1986\
 Psychologists for the Ethical Treatment of Animals, 1987\
 ‘For exceptional contribution to the advancement of animal welfare, science and philosophy.’
 
- The Animal Welfare Foundation of Canada, the Alex Brownlee Award, 1993\
+The Animal Welfare Foundation of Canada, the Alex Brownlee Award, 1993\
  ‘For international leadership in scientific publication promoting respect for animals, their nature and welfare.’ 
 
- The Japanese Veterinary Ethological Association, 1994 ‘For meritorious contributions and inspiring leadership: Honored Life Member’.
+The Japanese Veterinary Ethological Association, 1994 ‘For meritorious contributions and inspiring leadership: Honored Life Member’.
 
 ## BOOKS BY DR. MICHAEL W. FOX
 
- HEALING ANIMALS & THE VISION OF ONE HEALTH. (2011) CreateSpace Publ./Amazon.com
+HEALING ANIMALS & THE VISION OF ONE HEALTH. (2011) CreateSpace Publ./Amazon.com
 
 ANIMALS & NATURE FIRST. (2011) CreateSpace Publ./Amazon.com
 
@@ -115,9 +115,9 @@ EATING WITH CONSCIENCE: THE BIOETHICS OF FOOD (1997) NewSage Press, Troutdale, O
 
 THE BOUNDLESS CIRCLE (1996) Quest Books, Wheaton, Illinois
 
-AGRICIDE: THE HIDDEN FARM AND FOOD CRISIS THAT AFFECTS US ALL (reprint edition                 1996) Krieger Publishing Co., Melbourne, Florida
+AGRICIDE: THE HIDDEN FARM AND FOOD CRISIS THAT AFFECTS US ALL (reprint edition 1996) Krieger Publishing Co., Melbourne, Florida
 
- SUPER PIGS AND WONDERCORN: THE BRAVE NEW WORLD OF BIOTECHNOLOGY AND WHERE IT ALL MIGHT LEAD (1992)  The Lyons Press, Guilford, CT
+SUPER PIGS AND WONDERCORN: THE BRAVE NEW WORLD OF BIOTECHNOLOGY AND WHERE IT ALL MIGHT LEAD (1992)  The Lyons Press, Guilford, CT
 
 THE SOUL OF THE WOLF (reprint edition 1992) Lyons & Burford, New York
 
@@ -143,15 +143,11 @@ THE NEW ANIMAL DOCTOR'S ANSWER BOOK (1989) Newmarket Press, New York
 
 LABORATORY ANIMAL HUSBANDRY (1986) State University of New York Press, Albany
 
-BETWEEN ANIMAL AND MAN: THE KEY TO THE KINGDOM (reprint edition
-
-1986. Krieger Publishing Co., Melbourne, Florida
+BETWEEN ANIMAL AND MAN: THE KEY TO THE KINGDOM (reprint edition 1986) Krieger Publishing Co., Melbourne, Florida
 
 THE WHISTLING HUNTERS (1984) State University of New York Press
 
-BEHAVIOR OF WOLVES, DOGS, AND RELATED CANIDS (reprint edition 1984)
-
-Krieger Publishing Co., Melbourne, Florida
+BEHAVIOR OF WOLVES, DOGS, AND RELATED CANIDS (reprint edition 1984) Krieger Publishing Co., Melbourne, Florida
 
 ONE EARTH, ONE MIND (reprint edition 1984) Krieger Publishing Co., Melbourne, Florida
 
@@ -167,19 +163,15 @@ LOVE IS A HAPPY CAT (1982) Newmarket Press, New York
 
 HOW TO BE YOUR PET'S BEST FRIEND (1981) Coward, McCann & Geoghegan, New York
 
-RETURNING TO EDEN: ANIMAL RIGHTS AND HUMAN RESPONSIBILITY (1980)
-
-Viking Press, New York
+RETURNING TO EDEN: ANIMAL RIGHTS AND HUMAN RESPONSIBILITY (1980) Viking Press, New York
 
 UNDERSTANDING YOUR PET (1978) Coward, McCann and Geoghegan, New York
 
 CONCEPTS IN ETHOLOGY, ANIMAL AND HUMAN BEHAVIOR (1974) University of Minnesota         
 
-CANINE BEHAVIOR (reprint edition 1972) Charles C. Thomas Publishing, Springfield,                 Illinois
+CANINE BEHAVIOR (reprint edition 1972) Charles C. Thomas Publishing, Springfield, Illinois
 
-INTEGRATIVE DEVELOPMENT OF BRAIN AND BEHAVIOR IN THE DOG (1971)
-
-University of Chicago Press
+INTEGRATIVE DEVELOPMENT OF BRAIN AND BEHAVIOR IN THE DOG (1971) University of Chicago Press
 
 CANINE PEDIATRICS (1966) Charles C. Thomas Publishing, Springfield, Illinois
 
@@ -227,11 +219,11 @@ THE WOLF\*\** (1973) Coward, McCann & Geoghegan, New York
 
 VIXIE, THE STORY OF A LITTLE FOX (1973) Coward, McCann & Geoghegan, New York
 
-\*              Best Science Book Award, National Teachers' Association
+\* Best Science Book Award, National Teachers' Association
 
-\*\*                Nominee for Mark Twain Awards
+\*\* Nominee for Mark Twain Awards
 
-\*\**                Christopher Award for children's literature
+\*\** Christopher Award for children's literature
 
 A full set of Dr. Fox's writings through 1999 are in the Archives of American Veterinary Medicine, Iowa State University, The Parks Library, Ames, IA 50011. Also at The Royal Veterinary College, London England
 
