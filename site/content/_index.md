@@ -12,8 +12,6 @@ column:
 book:
     heading: "India's Animals: Helping the Sacred & the Suffering"
     text: "This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve."
-    buttonText: "See the book on Amazon"
-    buttonLink: "https://www.amazon.com/Indias-Animals/dp/B06X9GL163"
 project:
     heading: "India Project For Animals and Nature (IPAN)"
     text: "IPAN provided veterinary services to over a dozen villages and remote tribal settlements with IPAN's 24-hour mobile veterinary clinic/ambulance, fully operational hospital, and permanent animal refuge."

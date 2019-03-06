@@ -4,11 +4,9 @@
 
 {{ partial "short-text" .Params.welcome }}
 
-<!-- {{ partial "short-text" .Params.column }} -->
+{{ partial "2-up" .Params.column }}
 
-{{ partial "2-up" .Params.book }}
-
-{{ partial "text-and-image" .Params.project }}
+{{ partial "text-and-image" (dict "heading" .Params.book.heading "text" .Params.book.text "buttonText" "See the book on Amazon" "buttonLink" "https://www.amazon.com/Indias-Animals/dp/B06X9GL163") }}
 
 {{ partial "blog" . }}
 
