@@ -7,7 +7,7 @@ welcome:
     text: "Welcome all animal lovers, owners, trainers, breeders, care-providers, and students of animal care, health, welfare and bioethics to my website. I am a veterinarian, graduating from the Royal Veterinary College, London, England in 1962. I did post-graduate research on animal behavior and development in the US, where I now reside, earning a PhD in medicine, and a DSc in ethology/animal behavior from the University of London. I am a member of the British Veterinary Association, the American Holistic Veterinary Medical Association and an Honor Roll member of the American Veterinary Medical Association."
 column:
     heading: "Animal Doctor Column"
-    text: "Dr. Fox has written the internationally syndicated newspaper column Animal Doctor for over 40 years, more recent ones being accessible here:"
+    text: "I have been writing the syndicated newspaper column “Animal Doctor” for over 40 years and this has given me a wide-angle view of the health and behavioral issues affecting companion animals."
     link: https://www.uexpress.com/animal-doctor
 book:
     heading: "India's Animals: Helping the Sacred & the Suffering"
