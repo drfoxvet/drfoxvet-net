@@ -1,6 +1,6 @@
 ---
 title: India Project For Animals and Nature (IPAN)
-date: 2019-02-26T16:28:42.875Z
+date: 2000-01-01T05:00:00.000Z
 description: ' '
 ---
 ## India's animals: helping the sacred & the suffering

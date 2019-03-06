@@ -1,6 +1,6 @@
 ---
 title: Books by Dr. Fox
-date: 2019-02-28T00:25:45.749Z
+date: 2000-01-01T01:00:00.000Z
 description: ' '
 ---
 ![](/img/fox-ahvma.jpg)

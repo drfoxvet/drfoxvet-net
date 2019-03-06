@@ -1,6 +1,6 @@
 ---
 title: 'Our Animal Relationships: The Moments of Truth Project'
-date: 2019-02-28T14:39:30.343Z
+date: 2000-01-01T04:00:00.000Z
 description: ' '
 ---
 What right do we humans have to exploit other animals?  Where does that right come from and what are the limits if any?  What duties or obligations do we have in our relationships with our dogs, cats and other animals domesticated and wild?
