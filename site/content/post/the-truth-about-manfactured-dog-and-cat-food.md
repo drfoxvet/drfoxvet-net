@@ -1,5 +1,5 @@
 ---
-title: The Truth About Manfactured Dog and Cat Food
+title: The Truth About Manufactured Dog and Cat Food
 date: 2019-02-27T15:54:38.590Z
 description: ' '
 ---
