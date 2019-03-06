@@ -1,6 +1,6 @@
 ---
 title: 'Welcome -- Dr. Fox''s One Earth, One Health'
-date: 2019-02-26T16:09:46.438Z
+date: 2000-01-01T00:00:00.000Z
 description: ' '
 ---
 Dedicated to advancing the understanding and appreciation of other animals, improving their health and well-being and our relationships with them and the natural world.
