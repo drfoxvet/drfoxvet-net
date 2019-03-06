@@ -16,4 +16,4 @@ Dr. Fox lectures nationally and internationally to a diversity of audiences, fro
 
 All presentations include educational materials and are illustrated with slides and videos.
 
-For information about Dr. Fox’s availability, please contact him via e-mail: IPAN@erols.com.
+For information about Dr. Fox’s availability, please contact him via e-mail: [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com).

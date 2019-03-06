@@ -7,7 +7,7 @@ description: ' '
 
 _By Deanna L. Krantz & Dr. Michael W. Fox. One Health Vision Press.2016. 8.5" x 11" 144 pages, Full Color. Order from CreateSpace books/Amazon.com. List Price: $27.99 available on Kindle for $3 (or $0.99 if you bought the print version.)_
 
-This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve.
+[This richly illustrated book](https://www.amazon.com/Indias-Animals/dp/B06X9GL163) details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve.
 
 Deanna Krantz founded and directed India Project for Animals & Nature (IPAN) to indirectly help the indigenous village and tribal peoples by improving the health and well-being of their farmed animals and of the dogs and cats in these communities. Against local and national opposition, disinformation and death-threats, the long-distance death march of cattle to slaughter, wildlife poaching, land encroachment and the tragic plight of elephants wild and captive were investigated and documented.
 

@@ -61,4 +61,4 @@ The vision I had shared with my friend and colleague the late Prof. Calvin W. Sc
 
 \* Calvin W. Schwabe (1978). Cattle, Priests and Progress in Medicine. Minneapolis, University of Minnesota Press
 
-The author writes the weekly syndicated newspaper column Animal Doctor, and is a long time member of the British Veterinary Association, American Holistic Veterinary Medical and is an Honor Roll member of the American Veterinary Medical Association holding degrees in veterinary medicine and doctoral degrees from London University, England in medicine and ethology/animal behavior. Email IPAN@erols.com Website www.drfoxvet.com
+The author writes the weekly syndicated newspaper column Animal Doctor, and is a long time member of the British Veterinary Association, American Holistic Veterinary Medical and is an Honor Roll member of the American Veterinary Medical Association holding degrees in veterinary medicine and doctoral degrees from London University, England in medicine and ethology/animal behavior. Email [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com) Website www.drfoxvet.com

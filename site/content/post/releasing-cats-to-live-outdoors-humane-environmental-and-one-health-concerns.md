@@ -53,10 +53,6 @@ After trapping a stray/feral cat on our property we took him to Minnesota’s la
 
 This Minnesota humane society’s TNR program was adopted on the basis of the University of California at Davis veterinary college’s advocacy of Trap-Neuter-Return as an alternative to euthanasia. Under the Million Cat Challenge, a joint project of the UC Davis Koret Shelter Medicine Program and the University of Florida Maddie’s Shelter Medicine Program, TNR is being promoted nation-wide. Their website states that they are “supported by our participating animal shelters and their spay/neuter partners, as well as many national and regional organizations” They are also “ grateful for the contributions of our sponsors, especially Maddie’s Fund, whose generosity made this campaign possible.”
 
-_Minnesota feral cat rescued by the authors first displays fear & defensive aggression, then when socialized gives “love eyes”.(See the book Cat Body, Cat Mind, by Fox for ethological details)._
-
-_He enjoys massage therapy. (See The Healing Touch for Cats book by Fox) and grooming._
-
 Regardless of personal belief in some right to life or public relations ploy to promote a compassionate “no kill” image, TNR programs are too often examples of misguided altruism causing much suffering to homeless cats who are released in various neighborhoods without any routine monitoring and care. Shakopee MN veterinarian Ron Gaskin DVM, tells us he has had to amputate a stray cat’s frozen tail and do other surgical treatments of cats suffering from severe frostbite. Yet one Minnesota and nation-wide advocate of TNR asserted to us that “TNR-selected cats are put into their natural habitat” (as predators). But this “natural habitat” is not natural for this domesticated species even if they are predators. They have no place in the natural ecology of the North America or Europe. But as a “naturalized” introduced species (and super- predator and devoted, empathic parent) many argue that the cat has a place in the anomalous and dysfunctional ecosystems of human creation---our cities, slums, third world villages, family farms and stables, docks and warehouses.
 
 ## RODENT CONTROL & FELINE DISEASE CONTROL
@@ -163,7 +159,7 @@ _\----- Original Message -----_
 
 _From: Jess Wilson_ [_jess.wilson@bristol.ac.uk_](mailto:jess.wilson@bristol.ac.uk)__
 
-_To: FOX/KRANTZ/ IPAN_ [_ipan@erols.com_](mailto:ipan@erols.com)__
+_To: FOX/KRANTZ/ IPAN_ [_animaldocfox@gmail.com_](mailto:animaldocfox@gmail.com)__
 
 _Sent: Wed, 12 Apr 2017 11:01:48 -0400 (EDT)_
 

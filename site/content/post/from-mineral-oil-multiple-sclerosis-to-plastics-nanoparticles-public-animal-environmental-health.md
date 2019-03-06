@@ -55,7 +55,7 @@ Common plastics emit greenhouse gases such as methane and ethylene as they degra
 
 Collectively these various petrochemical products represent one of the most harmful contributions of the chemical industry to health and life because the issues of containment and safe disposal have never been considered. Such consideration is most urgent the planet’s detoxification and our recovery from the Industrial Age of Chemistry with its adverse impacts on environmental and public health. The growing recognition of such anthropogenic factors in the genesis of “diseases of civilization” and ecological and physiological dysbiosis has spawned the One Health concept and movement in medical and veterinary practice, teaching and research (19). We must quickly create and expand alternative products based on eco-friendly biochemical processes such as contained bio-fermentation and biosynthesis, bio-remediation, sustainable biofuels and other alternative energy sources and natural clothing and other materials derived from cotton, hemp etc. that are recyclable and biodegrade into non-toxic components. Efforts local and international to recover plastic materials from all contaminated terrestrial and aquatic ecosystems (20) need to be initiated for the common good. This monumental task calls for a United Environmental Nations Organization that bases free and fair trade and commerce on ecological principles of sustainability and environmental and public health.
 
-\*\* Email IPAN@erols.com Website www.drfoxvet.net
+\*\* Email [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com) Website www.drfoxvet.net
 
 ## POSTSCRIPT FOR PET OWNERS
 

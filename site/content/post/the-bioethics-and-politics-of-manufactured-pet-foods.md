@@ -143,7 +143,7 @@ There is evidence that dogs and cats seek out their own natural dietary suppleme
 
 Dogs and cats kept confined indoors may be deprived of such natural dietary supplements and cannot exercise their “nutritional wisdom.” Some consideration should therefore be given to this other aspect of dietary natural history, as by putting chopped barley or alfalfa sprouts in the animals’ food, and by providing probiotics and digestive enzymes. More research is also called for in this area of natural organic supplements.
 
-1. GENETICALLY ENGINEERED CROPS AND FOOD
+2. GENETICALLY ENGINEERED CROPS AND FOOD
 
 The massive pet food recall in the spring of 2007 left many serious concerns unaddressed. One involves the use of genetically engineered (GE) ingredients in foods consumed by both animals and humans.
 

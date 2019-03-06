@@ -31,4 +31,4 @@ In conclusion, private and municipal animal shelters that do not make such provi
 
 Fox, M.W. The Dog: Its Domestication and Behavior, 1978, reprinted edition with Dogwise Publishing, OR
 
-The author is an Honor Roll member of the American Veterinary Medical Association, writes the internationally syndicated newspaper column Animal Doctor and holds doctoral degrees in animal behavior and medicine. Website:www.drfoxvet.net. E-mail animaldocfox@gmail.com
+The author is an Honor Roll member of the American Veterinary Medical Association, writes the internationally syndicated newspaper column Animal Doctor and holds doctoral degrees in animal behavior and medicine. Website:www.drfoxvet.net. E-mail [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com)

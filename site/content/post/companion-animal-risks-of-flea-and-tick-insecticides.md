@@ -133,4 +133,4 @@ Reduction in clinical cases of vector-borne diseases is strongly dependent on th
 
 The author appreciates the helpful suggestions of Dr. W. Jean Dodds in preparing this review.
 
-\* Michael W. Fox BVetMed, PhD, DSc, MRCVS  Website: www.drfoxvet.net   Email IPAN@erols.com
+\* Michael W. Fox BVetMed, PhD, DSc, MRCVS  Website: www.drfoxvet.net   Email [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com)

@@ -77,4 +77,4 @@ Author of nationally syndicated newspaper column Animal Doctor.
 
 
 
-e-mail: animaldocfox@gmail.com. Website: drfoxvet.net
+e-mail: [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com). Website: drfoxvet.net

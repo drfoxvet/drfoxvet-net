@@ -7,11 +7,7 @@ Dr. Michael W. Fox, DSc, PhD, BVet Med, MRCVS is a well-known veterinarian, form
 
 Dr. Fox is known as a sharp and eloquent critic of the biotechnology industry as a whole and of the FDA and USDA in particular. As a professor, bioethicist, and veterinarian, Dr. Fox has spearheaded the movement to foster the ethical treatment of animals since 1976. Besides writing and lecturing worldwide, Dr. Fox has appeared on The Tonight Show and has spoken about bioethics and conscious food choices on National Public Radio, The Today Show, and National Geographic Society specials.
 
-<br>
-
 Animal News Center: Dr. Fox, we know you as a veterinarian, professor, bioethicist - the list goes on. Please tell us where you were born and what led you from your beginnings to where you are now.
-
-<br>
 
 Dr. Fox: I was born in England. My closest friends and companions were dogs - strays and otherwise. Both my parents fostered my interest in what nature there was where I lived and in creatures in general. They engendered a sense of respect and wonder and, from a very early age, I wanted, with a passion, to become a veterinarian.
 

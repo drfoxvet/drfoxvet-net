@@ -21,7 +21,7 @@ I think these accounts, that together make a kind of testimony of truth, attest 
 
 An overarching aspect of all the letters that I have received on this subject of animals’ spirits is this unifying, space-time transcending emotional element that we call love.
 
-<br>
+<hr>
 
 I hope that these letters will be worth reading in times of companion animal loss, not with the wish to make the deceased loved ones manifest in some way, but to let them go with love and gratitude.
 

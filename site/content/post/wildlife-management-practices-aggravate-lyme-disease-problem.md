@@ -73,4 +73,4 @@ Rather, he views Lyme and other tick-borne maladies as a controllable public hea
 
 Nebraska deer are in the throes of the worst outbreak of epizootic hemorrhagic disease in decades, according to the Nebraska Game and Parks Commission, with some 6,000 carcasses reported in 2012, compared with about 10 in 2011 and a 10-year high of several hundred. The disease is transmitted to deer via biting midges, which are thriving amid the state's severe drought
 
-\* ipan@erols.com  www.drfoxvet.net
+\* [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com)  www.drfoxvet.net

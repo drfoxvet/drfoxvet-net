@@ -102,7 +102,7 @@ _Michael W. Fox BVetMed, PhD, DSc, MRCVS_
 
 _Golden Valley Minnesota._
 
-_E-mail ipan@erols.com_
+_E-mail [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com)_
 
 _Website www.drfoxvet.net_
 

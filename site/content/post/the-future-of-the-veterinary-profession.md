@@ -59,7 +59,7 @@ References
 
 Michael W. Fox, BVetMed, PhD, DSc, MRCVS
 
-e-mail ipan@erols.com Website  www.twobitdog.com/DrFox
+e-mail [animaldocfox@gmail.com](mailto:animaldocfox@gmail.com) Website  www.twobitdog.com/DrFox
 
 Member of the British Veterinary Medical Association since 1962 and Honor Roll Member of the American Veterinary Medical Association.
 
