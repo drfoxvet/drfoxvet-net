@@ -12,10 +12,8 @@ column:
 book:
     heading: "India's Animals: Helping the Sacred & the Suffering"
     text: "This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve."
-project:
-    heading: "India Project For Animals and Nature (IPAN)"
-    text: "IPAN provided veterinary services to over a dozen villages and remote tribal settlements with IPAN's 24-hour mobile veterinary clinic/ambulance, fully operational hospital, and permanent animal refuge."
-    buttonText: "Learn more"
-    buttonLink: "/ipan"
+deanna:
+    heading: "Deanna Krantz"
+    text: "My wife, Deanna Krantz, has turned her love of animals and respect for life into direct action in India. She founded and directed India Project for Animals & Nature (IPAN) to indirectly help the indigenous village and tribal peoples by improving the health and well-being of their farmed animals and of the dogs and cats in these communities. Here is her interview excerpted from People Promoting and People Opposing Animal Rights by John Kistler."
 ---
 
