@@ -1,7 +1,6 @@
 ---
 title: 'Agriculture, Biotechnology & Bioethics: Food Quality, Security & Public Health'
 date: 2019-02-27T20:48:01.567Z
-description: ' '
 ---
 > "Who ever could make two ears of corn or two blades of grass to grow up on a spot of ground where only one grew before would deserve better of mankind and do more essential service to his country than the whole race of politicians put together."                                                                                                      
 
@@ -19,7 +18,7 @@ The validity of these concerns will be documented from a holistic veterinary, pu
 
 ## WORLD HUNGER AND RISING DEMAND FOR MEAT---AND WATER
 
-By Dr. Michael W. Fox *
+By Dr. Michael W. Fox
 
 With rising incomes in developing countries, consumer demand for more meat, poultry, eggs and dairy products is accelerating, as is the proliferation of factory farms or confined animal feeding operation (CAFOs).In their timely review article on the role of the veterinary profession in meeting present and future global food demands, Dr. Alan M. Kelly et al ( See Kelly AM et al. One health, food security and veterinary medicine. JAVMA 242: 739-743, 2013) highlight some disturbing facts and trends, notably: A US government-sponsored $3.5 billion global hunger and food security initiative---the USAID Feed the Future program--- does not have one veterinarian in a permanent staff position; population trends mean 1 million additional infants every week for the next 40 years will need food; approximately 1 billion people currently suffer from chronic hunger and 17,000 rural and urban children die of hunger every day; one third of total world food production is lost or wasted during processing, marketing and consumption steps; a rising middle class is driving the Livestock Revolution and proliferation of intensive systems of production (CAFOs); where livestock are raised by the poor, there are 2.5 billion cases of human illness and 2.7 million deaths from zoonotic diseases transmitted from the animals.
 
@@ -255,7 +254,7 @@ Some sage once said, ‘Until we suffer the earth as we suffer for ourselves and
 
 My friend Thomas Berry wrote ‘The glory of the human has become the desolation of the earth. This I would consider an appropriate way to summarize the twentieth century.’ But for me, I find  seeds of hope in the practice and bioethics of humane, organic, and sustainable agriculture that can see us through the next century to a more enlightened and viable future.
 
-## SELECTED REFERENCES AND RESOURCES  
+## SELECTED REFERENCES AND RESOURCES
 
 Berry T, ‘The Dream of the Earth’, San Francisco, CA, Sierra Books, 1988
 
