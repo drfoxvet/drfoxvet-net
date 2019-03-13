@@ -1,7 +1,6 @@
 ---
-title: Videos
+title: Video Links
 date: 2000-01-01T02:00:00.000Z
-description: ' '
 ---
 ##  Animals, Nature and Religion
 
