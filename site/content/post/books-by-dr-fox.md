@@ -56,8 +56,6 @@ The key is in coupling our ability to reason, to be reasonable---with our capaci
 
 ## DEVELOP YOUR HEALING TOUCH
 
-[View on Amazon]()
-
 One of the greatest gifts that we humans possess and can give to our animal companions is the healing power of touch. The easy to follow basic massage program, and more advanced acupressure massage, are laid out in [The Healing Touch for Cats](https://www.amazon.com/Healing-Touch-Cats/dp/1557045755), and [The Healing Touch for Dogs](https://www.amazon.com/Healing-Touch-Dogs/dp/1557045763), available from Newmarket Press, NY.
 
 Giving pets a regular massage helps strengthen the emotional bond, enables earlier recognition of illness, and helps maintain animals’ health and vitality. People who have used this basic massage system on their pets attest to the many benefits, especially in helping older cats and dogs deal with joint and circulation problems, and in helping shy and formerly abused animals learn to relax and trust.
