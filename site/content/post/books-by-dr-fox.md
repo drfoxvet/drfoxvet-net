@@ -10,11 +10,11 @@ description: ' '
 
 ## Holistic Pet Care Books---Body, Mind, and Spirit by Dr. Fox
 
-Dog Body, Dog Mind, and Cat Body, Cat Mind, written by Dr. Fox and published by The Lyons Press, Guilford, CT, www.lyonspress.com , Tel: 1-800-243-0495,price $24.95, offer a clear and deep understanding and recognition of animals’ emotions, mental states, and behavioral needs to enhance our ability to communicate with our pets, and  to care for them better in spirit as well as in body and mind.
+[Dog Body, Dog Mind](https://www.amazon.com/Dog-Body-Mind/dp/1599210452), and [Cat Body, Cat Mind](https://www.amazon.com/Cat-Body-Mind/dp/B001JAHBOI/), written by Dr. Fox, offer a clear and deep understanding and recognition of animals’ emotions, mental states, and behavioral needs to enhance our ability to communicate with our pets, and  to care for them better in spirit as well as in body and mind.
 
- The essential elements of holistic care are detailed, with particular emphasis on preventive health care maintenance to enhance animals’ overall well-being and happiness.
+The essential elements of holistic care are detailed, with particular emphasis on preventive health care maintenance to enhance animals’ overall well-being and happiness.
 
- In both books you will be astonished and moved by the incredible, documented super-senses of animals that can know before we do when a loved one has just died, and who are showing us in their love and wisdom that an ‘empathosphere’ of universal feeling and awareness really does exist.
+In both books you will be astonished and moved by the incredible, documented super-senses of animals that can know before we do when a loved one has just died, and who are showing us in their love and wisdom that an ‘empathosphere’ of universal feeling and awareness really does exist.
 
 Woven throughout both of these books are reflections on how our animal companions contribute to our own emotional and physical well-being, and to the moral and spiritual development of  both our children and to our civilization, where the welfare and status of animals mirror the state of our own evolution and compassion.
 
@@ -22,21 +22,25 @@ Woven throughout both of these books are reflections on how our animal companion
 
 ## EATING WITH CONSCIENCE: THE BIOETHICS OF FOOD
 
-Published in 1997 by New Sage Press, Troutdale OR (Tel: 1-503-695-2211) this book documents Dr. Fox’s concerns over food quality and safety, and is a powerful appeal to farmers and consumers alike to adopt and support humane, sustainable and ideally organic farming methods. It is a call for us all to become ‘kitchen anarchists,’ taking responsibility for what we purchase and feed to our families. This book provides a valuable backdrop for an in-depth focus on related topics discussed in two other books by Dr Fox on agricultural biotechnology  (see Killer Foods), and manufactured pet foods (see Not Fit For a Dog). Price $ 14.95, 190 pages, with Index.
+[View on Amazon](https://www.amazon.com/Eating-Conscience-Fox/dp/0939165309)
+
+Published in 1997, this book documents Dr. Fox’s concerns over food quality and safety, and is a powerful appeal to farmers and consumers alike to adopt and support humane, sustainable and ideally organic farming methods. It is a call for us all to become ‘kitchen anarchists,’ taking responsibility for what we purchase and feed to our families. This book provides a valuable backdrop for an in-depth focus on related topics discussed in two other books by Dr Fox on agricultural biotechnology  (see Killer Foods), and manufactured pet foods (see Not Fit For a Dog).
 
 ![](/img/books-life-ethics.jpg)
 
 ## Bringing Life to Ethics: Global Bioethics for a Humane Society
 
-is Dr. Fox’scontribution to the evolution of ethical sensibility and moral maturity in our species and its diverse communities, perceptions and values today. It lays the foundation for an empathy and rights-based treatment of animals, and shows the links between human health and wellbeing and our efforts to start effective planetary CPR---conservation, preservation, and restoration of natural biodiversity, bioclimatic stability, and of the beauty and vitality of life around us on this Earth, Mother of us all. Published in 2001 by State University of New York Press, Albany, NY Tel : 1-800-666-2211
+[View on Amazon](https://www.amazon.com/Bringing-Life-Ethics/dp/0791448029)
+
+This book is Dr. Fox’s contribution to the evolution of ethical sensibility and moral maturity in our species and its diverse communities, perceptions and values today. It lays the foundation for an empathy and rights-based treatment of animals, and shows the links between human health and wellbeing and our efforts to start effective planetary CPR---conservation, preservation, and restoration of natural biodiversity, bioclimatic stability, and of the beauty and vitality of life around us on this Earth, Mother of us all. Published in 2001 by State University of New York Press, Albany, NY
 
 ![](/img/books-boundless-circle.jpg)
 
 ## The Boundless Circle: Caring for Creatures and Creation
 
-300 pages with index, published by Quest Books, Wheaton IL 1996
+[View on Amazon](https://www.amazon.com/Boundless-Circle/dp/0835607259)
 
-Tel: 1-630-665-0130
+300 pages with index, published by Quest Books, Wheaton IL 1996
 
 This book is a more matured and deeply researched rendition of his earlier book One Earth, One Mind (1980). The Boundless Circle examines our relationships with, and treatment of other animals and Nature from various religious, cultural and historic, and aboriginal perspectives. It provides a spiritual path through the dark labyrinths of animal cruelty and suffering, and the desecration of the natural world, tracing its direction in the core teachings and wisdom of religious and spiritual traditions that link human salvation/spiritual health and well-being, with a reverential, sacramentalist regard for and treatment of animals and the natural world.
 
@@ -52,7 +56,9 @@ The key is in coupling our ability to reason, to be reasonable---with our capaci
 
 ## DEVELOP YOUR HEALING TOUCH
 
-One of the greatest gifts that we humans possess and can give to our animal companions is the healing power of touch. The easy to follow basic massage program, and more advanced acupressure massage, are laid out in The Healing Touch for Cats, and The Healing Touch for Dogs, available from Newmarket Press, NY,  price $12.95.
+[View on Amazon]()
+
+One of the greatest gifts that we humans possess and can give to our animal companions is the healing power of touch. The easy to follow basic massage program, and more advanced acupressure massage, are laid out in [The Healing Touch for Cats](https://www.amazon.com/Healing-Touch-Cats/dp/1557045755), and [The Healing Touch for Dogs](https://www.amazon.com/Healing-Touch-Dogs/dp/1557045763), available from Newmarket Press, NY.
 
 Giving pets a regular massage helps strengthen the emotional bond, enables earlier recognition of illness, and helps maintain animals’ health and vitality. People who have used this basic massage system on their pets attest to the many benefits, especially in helping older cats and dogs deal with joint and circulation problems, and in helping shy and formerly abused animals learn to relax and trust.
 
