@@ -1,23 +1,19 @@
 ---
-title: Organizations you may wish to support to help the animals & environment
+title: Organizations You May Wish to Support to Help the Animals & Environment
 date: 2019-02-26T16:17:12.095Z
-description: >-
-  First, support your local animal and environmental protection organizations:
-  Act local and think global!
-image: ''
 ---
 ![](/img/wolf_chief_dan_george.jpg)
 
-Then please visit the following non-profit organizations that need public support to help animals wild and domestic and the environment we share at home and abroad.
+Please visit the following non-profit organizations that need public support to help animals wild and domestic and the environment we share at home and abroad.
 
-* World Veterinarians www.worldvets.org
-* Union of Concerned Scientists www.ucusa.org
-* Animal Legal Defense Fund www.aldf.org
-* Center for Biological Diversity www.biologicaldiversity.org
-* Natural Resources Defense Fund www.nrdc.org
-* Environmental Working Group www.ewg.org
-* Prakriti Save Nature Trust www.prakritigudalur.in *
-* Project Coyote www.projectcoyote.org \*\*
+* World Veterinarians [www.worldvets.org](www.worldvets.org)
+* Union of Concerned Scientists [www.ucusa.org](www.ucusa.org)
+* Animal Legal Defense Fund [www.aldf.org](www.aldf.org)
+* Center for Biological Diversity [www.biologicaldiversity.org](www.biologicaldiversity.org)
+* Natural Resources Defense Fund [www.nrdc.org](www.nrdc.org)
+* Environmental Working Group [www.ewg.org](www.ewg.org)
+* Prakriti Save Nature Trust [www.prakritigudalur.in](www.prakritigudalur.in) *
+* Project Coyote [www.projectcoyote.org](www.projectcoyote.org) \*\*
 
 ![](/img/project-coyote.jpg)
 
