@@ -6,14 +6,14 @@ date: 2019-02-26T16:17:12.095Z
 
 Please visit the following non-profit organizations that need public support to help animals wild and domestic and the environment we share at home and abroad.
 
-* World Veterinarians [www.worldvets.org](www.worldvets.org)
-* Union of Concerned Scientists [www.ucusa.org](www.ucusa.org)
-* Animal Legal Defense Fund [www.aldf.org](www.aldf.org)
-* Center for Biological Diversity [www.biologicaldiversity.org](www.biologicaldiversity.org)
-* Natural Resources Defense Fund [www.nrdc.org](www.nrdc.org)
-* Environmental Working Group [www.ewg.org](www.ewg.org)
-* Prakriti Save Nature Trust [www.prakritigudalur.in](www.prakritigudalur.in) *
-* Project Coyote [www.projectcoyote.org](www.projectcoyote.org) \*\*
+* World Veterinarians [www.worldvets.org](https://www.worldvets.org)
+* Union of Concerned Scientists [www.ucusa.org](https://www.ucusa.org)
+* Animal Legal Defense Fund [www.aldf.org](https://www.aldf.org)
+* Center for Biological Diversity [www.biologicaldiversity.org](https://www.biologicaldiversity.org)
+* Natural Resources Defense Fund [www.nrdc.org](https://www.nrdc.org)
+* Environmental Working Group [www.ewg.org](https://www.ewg.org)
+* Prakriti Save Nature Trust [www.prakritigudalur.in](http://www.prakritigudalur.in) *
+* Project Coyote [www.projectcoyote.org](https://www.projectcoyote.org) \*\*
 
 ![](/img/project-coyote.jpg)
 
