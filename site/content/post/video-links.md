@@ -1,7 +1,7 @@
 ---
-title: DVD Links
+title: Videos
 date: 2000-01-01T02:00:00.000Z
-description: A list of DVD postings
+description: ' '
 ---
 ##  Animals, Nature and Religion
 
@@ -32,3 +32,15 @@ We are what we eat. As a nation we are unhealthy, most of the health problems be
 The advent of genetic engineering biotechnology with its new crops, foods, and drugs, cloned and bioengineered farm animals and organ donor pigs marks the new millennium. Its profound risks, long-term harmful consequences, and what we can do to stop this corporate insanity are detailed in this narrated slide-show and video presentation, with a live concluding statement from Dr. Fox.
 
 [The New Creation](https://www.youtube.com/watch?v=nCXBAGvlHV4)
+
+## Project Coyote Interview Video Clips
+
+[Predators have niche functions in ecosystems](http://www.projectcoyote.org/mediaroom/videos/connections-between-indiscriminate-killing-and-spread-of-disease-and-ecological-collapse/)
+
+[Paying rent to the tiger](http://www.projectcoyote.org/mediaroom/videos/the-meaning-and-value-of-coexisting-with-predators/)
+
+[Behavior follows mindset](http://www.projectcoyote.org/mediaroom/videos/considering-the-motivations-and-psychologies-of-people-who-kill-wild-animals/)
+
+[Free range ranching over running nature](http://www.projectcoyote.org/mediaroom/videos/alternatives-to-lethal-predator-control-used-to-support-ranching/)
+
+[Challenges to conservation; past, present, and future](http://www.projectcoyote.org/mediaroom/videos/in-conversation-michael-fox-camilla-fox/)
