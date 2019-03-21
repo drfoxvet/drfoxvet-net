@@ -35,3 +35,7 @@ Veterinarians in the U.S. and U.K. have been recently discussing managing “mor
 Given the resources, animal shelters and foster-care volunteers with experience handling cats can rehabilitate most cats initially tested to be fearful and/or aggressive and are then designated as being unadoptable and are either euthanized or neutered, vaccinated and released back where they were initially found/rescued.
 
 Regardless of dedicated volunteers feeding these released outdoor cats, they are an invasive species, potential public health risk, kill wildlife and cannot be easily re-caught when veterinary care is called for along with re-vaccination against rabies. Housing such cats in large, safe enclosures is a humane alternative, many shy and fearful cats becoming socialized and adoptable in the process. For details see multi-level, indoor-outdoor group housing for stray cats, [Pro Animale für Tiere in Not e.V. - Home | Facebook](https://www.facebook.com/proanimale/)
+
+## See Also
+
+[Feral Cat Recovery From the Wild](../post/outdoor-cats-wildlife-and-human-health/#feral-cat-recovery)
