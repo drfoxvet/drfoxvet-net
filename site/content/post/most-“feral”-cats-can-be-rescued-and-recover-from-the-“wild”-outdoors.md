@@ -1,5 +1,5 @@
 ---
-title: Most “Feral” Cats Can be Rescued and Recover from the “Wild” Outdoors
+title: Most "Feral" Cats Can be Rescued and Recover from the "Wild" Outdoors
 date: 2019-03-21T15:57:00.559Z
 ---
 ## FROM LEAGUE OF MINNESOTA CITIES INFORMATION MEMO _Animal Regulation in Cities_:
@@ -38,4 +38,4 @@ Regardless of dedicated volunteers feeding these released outdoor cats, they are
 
 ## See Also
 
-[Feral Cat Recovery From the Wild](../post/outdoor-cats-wildlife-and-human-health/#feral-cat-recovery)
+[Feral Cat Recovery From the Wild](../outdoor-cats-wildlife-and-human-health/#feral-cat-recovery)
