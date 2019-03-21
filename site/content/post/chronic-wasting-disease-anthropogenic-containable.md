@@ -2,13 +2,11 @@
 title: ' Chronic Wasting Disease: Anthropogenic? Containable?'
 date: 2019-03-09T14:44:46.634Z
 ---
-By Michael W. Fox BVetMed, PhD, DSc, MRCVS
-
-From the perspective of One Health (1) dysfunctional ecosystems with wild animal and plant species imbalances and sub-optimal regulatory biodiversity (2) can put public health and the health of domestic animals at risk (3). Predator “control” and other wildlife management practices, coupled with human and livestock encroachment in ever-increasing numbers, have intensified dysbiosis and climate change from continent to continent.(4) Correcting such anthropogenic health problems with vaccines, pesticides, antibiotics and other drugs, even genetic engineering biotechnologies, while ignoring preventive measures, have limited medical and veterinary progress for decades.(5).Such limitations have failed to prevent the spread of zoonoses such as Lyme disease, and the emergence of Chronic Wasting Disease in N. America in particular where there is sub-optimal biodiversity and lack of predators ( 6) and insectivores in the dystrophic ecosystems.  
+From the perspective of One Health (1) dysfunctional ecosystems with wild animal and plant species imbalances and sub-optimal regulatory biodiversity (2) can put public health and the health of domestic animals at risk (3). Predator “control” and other wildlife management practices, coupled with human and livestock encroachment in ever-increasing numbers, have intensified dysbiosis and climate change from continent to continent.(4) Correcting such anthropogenic health problems with vaccines, pesticides, antibiotics and other drugs, even genetic engineering biotechnologies, while ignoring preventive measures, have limited medical and veterinary progress for decades (5). Such limitations have failed to prevent the spread of zoonoses such as Lyme disease, and the emergence of Chronic Wasting Disease in N. America in particular where there is sub-optimal biodiversity and lack of predators (6) and insectivores in the dystrophic ecosystems.  
 
 According to the U.S.  Government’s Centers for Disease Control and Prevention Chronic Wasting Disease (CWD) was first identified in captive mule deer in the late 1960s in Colorado and in wild deer in 1981. By the 1990s, it had been reported in surrounding areas in northern Colorado and southern Wyoming. Since 2000, the area known to be affected by CWD in free-ranging animals has increased to at least 24 states, including states in the Midwest, Southwest, and limited areas on the East Coast. It is possible that CWD may also occur in other states without strong animal surveillance systems. Once CWD is established in an area, the risk can remain for a long time in the environment. The affected areas are likely to continue to expand. (7). Late symptoms of CWD in cervids (deer, elk, moose and big horn sheep) are horrific. Infected animals often tremble on splayed legs and have trouble standing. They drool and eat continuously but continually waste away. Many are hyper- excitable and nervous. Researchers call them “droopy droolers.”
 
-It is not unlike the Mad Cow disease which was spread by putting cattle remains including prion-loaded brain and spinal cord tissues into cattle feed that decimated the U.K’s cattle industry and infected people consuming contaminated meat who developed Creutzfeldt–Jakob disease. “It is probable that human cases of CWD associated with the consumption of contaminated meat will be documented in the years ahead,” Michael Osterholm, director of the University of Minnesota’s Center for Infectious Disease and Research Prevention, warned lawmakers at the Minnesota Capitol Feb 7, 2019. Some primate species fed CWD infected deer meat were found to develop spongioform encepalopathy brain lesions, (8) raising the legitimate fear of cross-species infection from deer and other infected cervids to human consumers.   The possibility of spread to livestock from infective deer, soil and vegetation (that could have been the original source of cervid infection decades ago) is also considerable.
+It is not unlike the Mad Cow disease which was spread by putting cattle remains including prion-loaded brain and spinal cord tissues into cattle feed that decimated the U.K’s cattle industry and infected people consuming contaminated meat who developed Creutzfeldt–Jakob disease. _“It is probable that human cases of CWD associated with the consumption of contaminated meat will be documented in the years ahead,”_ Michael Osterholm, director of the University of Minnesota’s Center for Infectious Disease and Research Prevention, warned lawmakers at the Minnesota Capitol Feb 7, 2019. Some primate species fed CWD infected deer meat were found to develop spongioform encepalopathy brain lesions, (8) raising the legitimate fear of cross-species infection from deer and other infected cervids to human consumers.   The possibility of spread to livestock from infective deer, soil and vegetation (that could have been the original source of cervid infection decades ago) is also considerable.
 
 Prions are self-replicating protein molecules that are present in humans and other animals, their functions being not yet fully determined beyond playing some role in normalizing neuron function. Generally speaking, prion diseases may be infectious, hereditary or occur sporadically/spontaneously. Disease arises when the normal prion protein mutates to the diseased variant, which differs from the healthy prion proteins by its change in structure. The body's cells have difficulty in breaking down this prion protein due to its different structure, and it therefore accumulates. What causes them to become malformed like a mutation, has not yet been determined. They are passed out in bodily fluids and are in the soil and vegetation and are resistant to conventional methods of sterilization. Mosquitoes, ticks and other insects feeding off infected cervids may spread CWD. Infective prions have been found in dust and may be spread also by wind currents.  
 
@@ -20,49 +18,49 @@ According to the Coloradoan newspaper (24) veterinarian Dr. Mike Miller, Colorad
 
 <hr>
 
-The Coloradoan published the following timeline of the spread from what some believe to be the epicenter at Colorado State University's Foothills Campus outside Fort Collins because research was also going on with sheep infected with a similar prion disease called Scrapie, and had been in the same pen as the research-held mule deer who developed CWD. The infective prions might or might not have crossed the species barrier. The mule deer could have already been infected before they were brought to the facility from various parts of Colorado. 
+_The Coloradoan_ published the following timeline of the spread from what some believe to be the epicenter at Colorado State University's Foothills Campus outside Fort Collins because research was also going on with sheep infected with a similar prion disease called Scrapie, and had been in the same pen as the research-held mule deer who developed CWD. The infective prions might or might not have crossed the species barrier. The mule deer could have already been infected before they were brought to the facility from various parts of Colorado. 
 
-Chronic wasting disease timeline
+## Chronic wasting disease timeline
 
-1967: Wasting syndrome is observed in captive mule deer at the Colorado State University wildlife research facility in west Fort Collins.
+**1967**: Wasting syndrome is observed in captive mule deer at the Colorado State University wildlife research facility in west Fort Collins.
 
-1975−81: Wasting syndrome is observed in Toronto Zoo mule deer transferred from the Denver Zoo.
+**1975−81**: Wasting syndrome is observed in Toronto Zoo mule deer transferred from the Denver Zoo.
 
-1979: Recognized in captive mule deer at Wyoming wildlife research facility.
+**1979**: Recognized in captive mule deer at Wyoming wildlife research facility.
 
-1981: Detected in wild elk in Colorado.
+**1981**: Detected in wild elk in Colorado.
 
-1985: Detected in wild mule deer in Colorado and Wyoming.
+**1985**: Detected in wild mule deer in Colorado and Wyoming.
 
-1996: Detected in a captive elk farm in Saskatchewan; 38 other linked farms eventually found positive.
+**1996**: Detected in a captive elk farm in Saskatchewan; 38 other linked farms eventually found positive.
 
-1997: Detected in captive elk facilities in South Dakota.
+**1997**: Detected in captive elk facilities in South Dakota.
 
-1998: Detected in captive elk facilities in Montana and Oklahoma.
+**1998**: Detected in captive elk facilities in Montana and Oklahoma.
 
-1999: World Health Organization indicates no evidence CWD is transmissible to humans, but advises that exposure should be avoided.
+**1999**: World Health Organization indicates no evidence CWD is transmissible to humans, but advises that exposure should be avoided.
 
-2000: Detected in wild mule deer in Nebraska and Saskatchewan.
+**2000**: Detected in wild mule deer in Nebraska and Saskatchewan.
 
-2002: Colorado establishes guidelines to minimize transport of high-risk carcass materials. First International CWD Symposium is held in Denver.
+**2002**: Colorado establishes guidelines to minimize transport of high-risk carcass materials. First International CWD Symposium is held in Denver.
 
-2002: Detected in captive elk in Minnesota, wild and captive white-tailed deer in Wisconsin and Illinois, mule deer in New Mexico and elk in South Dakota.
+**2002**: Detected in captive elk in Minnesota, wild and captive white-tailed deer in Wisconsin and Illinois, mule deer in New Mexico and elk in South Dakota.
 
-2003: Detected in wild mule deer in Utah.
+**2003**: Detected in wild mule deer in Utah.
 
-2004: Detected in wild elk in New Mexico.
+**2004**: Detected in wild elk in New Mexico.
 
-2005: Detected in moose in Colorado.
+**2005**: Detected in moose in Colorado.
 
-2008: Research indicates CWD may be a plausible explanation for local deer population declines in Colorado.
+**2008**: Research indicates CWD may be a plausible explanation for local deer population declines in Colorado.
 
-2010: Detected in captive white-tailed deer in Missouri and wild white-tailed deer in North Dakota and Virginia.
+**2010**: Detected in captive white-tailed deer in Missouri and wild white-tailed deer in North Dakota and Virginia.
 
-2016: Detected in wild elk and white-tailed deer in Arkansas and wild reindeer in Norway.
+**2016**: Detected in wild elk and white-tailed deer in Arkansas and wild reindeer in Norway.
 
 ## References
 
-1. See  (www.onehealthinitiative.com and www.onehealthcommission.org )
+1. See ([www.onehealthinitiative.com](http://onehealthinitiative.com/) and [www.onehealthcommission.org](https://www.onehealthcommission.org/))
 2. Keesing F, Holt R. D, Ostfeld R. S. Effects of species diversity on disease risk. Ecol. Lett 2006; 9:485–498
 3. Patz J, Daszak P, Tabor G, et al. Unhealthy landscapes: Policy recommendations on land use change and infectious disease emergence. Environ Health Perspect 2004; 112: 1092–1098.
 4. Khasnis A.A, Nettleman M.D. Global warming and infectious disease. Arch. Med. Res.2005; 36: 689–96
