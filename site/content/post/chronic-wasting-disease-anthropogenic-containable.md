@@ -1,5 +1,5 @@
 ---
-title: '          CHRONIC WASTING DISEASE: ANTHROPOGENIC? CONTAINABLE?'
+title: ' Chronic Wasting Disease: Anthropogenic? Containable?'
 date: 2019-03-09T14:44:46.634Z
 ---
 By Michael W. Fox BVetMed, PhD, DSc, MRCVS
