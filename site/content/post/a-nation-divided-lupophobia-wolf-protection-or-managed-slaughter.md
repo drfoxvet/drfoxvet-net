@@ -2,6 +2,14 @@
 title: 'A Nation Divided: Lupophobia, Wolf Protection or Managed Slaughter  '
 date: 2019-03-21T15:52:53.645Z
 ---
+![](/img/tiny.jpg)
+
+![](/img/tiny-with-fox.jpg)
+
+![](/img/tiny-with-foxjr.jpg)
+
+_"Tiny" a captive born wolf of McKenzie River region of Canada lineage with author Fox and with his son, Mike Jr., both boy and wolf smiling._
+
 I have studied wolf behavior and development, raised and lived with captive wolves and have done in-field research on wild canids. So I feel that I have some authority to speak for them. This is not for any organization or for my own personal gain other than my desire to see their intrinsic rights recognized and the sanctity of their existence, intrinsic value and contribution to healthy ecosystems respected and protected from human encroachment and recreational and commercial exploitation. 
 
 Some anthropologists and evolutionary biologists contend that wolves helped humans evolve through close observation and mimicry of the wolf, into followers and cooperative hunters of game species. This gives credence to such aboriginal aphorisms as “the wolf is my brother” and “Wolves made us human.” The Darwinian “Descent of Man” came after several millennia when select game species were domesticated, kept in herds and flocks guarded by dogs, Canis familiaris, and wolf-dogs, Canis lupus familiaris. Man declared war on his former ally and teacher, Canis lupus. The systematic extermination of the wolf began along with the desecration of the natural world to serve ever increasing numbers of people, nomadic and sedentary, and their livestock and crops. Lupophobia, the fear of wolves, probably has its origins during regional famines and wars when starving wolves and dogs scavenged human corpses and were themselves crazed and ravaged by rabies and other diseases.  
