@@ -1,7 +1,6 @@
 ---
 title: 'Outdoor Cats, Wildlife And Human Health'
 date: 2019-02-26T18:09:48.612Z
-description: ' '
 ---
 ## INHUMANE SOCIETY REVISITED: OUTDOOR CATS, WILDLIFE & HUMAN HEALTH
 
@@ -92,6 +91,8 @@ Why I Am Against Trap Neuter/Spay Release (TNR) For Feral Cats ([http://web-dvm.
 <https://www.washingtonpost.com/local/fight-over-ferals-boils-down-to-one-question-do-alley-cats-live-a-good-life/2011/05/19/AFejOYAH_story.html?utm_term=.7f0ec8>
 
 \*See M.W. Fox Healing Animals & the Vision of One Health. Create Space Books, Amazon.com 2011.
+
+<div id="feral-cat-recovery">
 
 ## FERAL CAT RECOVERY FROM THE WILD
 
