@@ -2,9 +2,9 @@
 title: The Importance of Natural Biodiversity for Our Health & Well-being
 date: 2019-05-31T18:30:12.190Z
 ---
-> In wildness is the preservation of the world
->
-> _Henry David Thoreau_
+> "In wildness is the preservation of the world"
+
+-- _Henry David Thoreau_
 
 The natural diversity of animals, including insects, plants and soil and water microorganisms that are native to a particular place (ecosystem) help maintain environmental health and sustainability as well as the food web. Such communities also help prevent the spread of invasive and potentially harmful species.
 
