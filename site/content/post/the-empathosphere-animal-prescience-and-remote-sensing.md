@@ -1,7 +1,7 @@
 ---
 title: 'The Empathosphere: Animal Prescience and Remote Sensing'
 date: 2019-02-27T20:09:18.860Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 Dogs, cats, humans and other animals sometimes have the ability to engage in remote sensing. It is through what I have termed the empathosphere that they are able to sense when a family member has had a serious accident or has died in hospital before anyone else is informed. They show evident distress at the time of the accident or death which is later confirmed. Human occurrences of such phenomena have a reportedly high frequency in twin siblings.
 

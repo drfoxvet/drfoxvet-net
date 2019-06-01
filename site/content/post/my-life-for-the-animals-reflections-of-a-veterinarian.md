@@ -1,7 +1,7 @@
 ---
 title: ' My Life for the Animals: Reflections of a Veterinarian'
 date: 2019-02-28T14:36:20.021Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 I grew up during World War 11 in the industrial, cotton milling and coal mining county of Lancashire in the north of England surrounded by William Blake’s “satanic mills.” I came to respect the dignity of hard labor, the spirit of the Luddite and the virtues of frugality, self-reliance and serving the greater good in accord with the Golden Rule. I also witnessed how humans can harm the natural environment and create toxic wastelands. Animals taught me through their trust and affection to be gentle and respectful, qualities of character that were lacking in some of my peers whom I found had blown up frogs with straws at one of the local ponds where I played and studied the life in the waters, and in some adults who had thrown a sack in the pond which I opened and found a litter of drowned kittens. A year or so after these experiences I looked though the yard fence of the veterinary hospital that I passed every day on my walk home from school and saw two large trash cans abuzz with flies, brimming over with dead dogs, cats, puppies and kittens. This tragic sight was incomprehensible to my nine-year old mind but I realized that there was something seriously wrong and resolved to become a veterinarian to help save the animals. This mass mercy- killing, I learned later, was one of the dark consequences of food shortages during World War 11. 
 

@@ -1,7 +1,7 @@
 ---
 title: The Bioethics And Politics Of Manufactured Pet Foods
 date: 2019-02-27T19:34:49.507Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 Where, how, and what kinds of crops are grown; where and how livestock and poultry are raised and treated; and how the foods derived there from are processed that we and our animal companions eventually consume, have profound consequences that call for bioethical evaluation and accountability. The hidden costs of the dominant, multinational, agribusiness food production system, of which the pet food industry is a highly profitable and politically influential subsidiary, concern and involve us all as consumers; and in particular as veterinarians, because of the animal health, welfare, economic, and ecological implications of clients feeding conventional manufactured pet foods to their dogs and cats. Examined from this broader bioethical perspective, what people select to feed their pets and consume for themselves in the future must be based upon sound science, ethics, and informed choice.  Both the government and the FDA---the Food- Drug-Agribusiness industrial complex--- must held accountable and be responsive to public demand and right to guaranteed food quality and safety standards (regardless of country of origin), and for foods derived from humane, sustainable, socially just, and organically certified  farming systems.
 

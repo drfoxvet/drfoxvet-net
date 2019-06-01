@@ -1,7 +1,7 @@
 ---
 title: 'Veterinary Bioethics and Animal Welfare: For the Common Wealth and Good'
 date: 2019-02-27T19:45:44.337Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 (From Complementary and Alternative Veterinary Medicine: Principles and Practice. Allen M. Schoen & Susan G. Wynn eds. St Louis, Mosby 1998)
 

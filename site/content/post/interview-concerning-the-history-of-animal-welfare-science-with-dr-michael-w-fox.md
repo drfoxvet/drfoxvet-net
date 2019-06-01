@@ -3,7 +3,7 @@ title: >-
   Interview Concerning the History of Animal Welfare Science With Dr. Michael W.
   Fox
 date: 2019-02-28T00:10:43.736Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 By Dr. Robert G. W. Kirk
 

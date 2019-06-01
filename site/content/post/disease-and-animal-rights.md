@@ -1,7 +1,7 @@
 ---
 title: Disease and Animal Rights
 date: 2019-02-27T18:40:23.531Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 The gulf between animal exploitation and animal kinship, and between animal abuse and animal liberation, is fundamentally a spiritual one. This gulf was created by human ignorance and egotism. It was sanctified by anthropocentric, patriarchal and fatalistic (karmic) religious traditions, both East and West, lacking in active compassion and responsive reverence toward all creatures and Creation. And it became the norm through the "Enlightenment" worldviews of dualistic (Manichean and Cartesian) and mechanistic (Newtonian) thinking, the empirical sciences of materialism, and through the perverted Darwinism of industrialism and colonialism and by contemporary scientific and economic determinism.
 

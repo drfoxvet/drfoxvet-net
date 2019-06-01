@@ -1,7 +1,7 @@
 ---
 title: Mammon Versus Civil Society and War Without End
 date: 2019-02-27T20:46:53.764Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 The two worldviews that reflect the conflict of values between the rights and interests of civil society and of the corporate imperialists are as irreconcilable as they are ancient. It is the conflict between domination, expropriation and exploitation, versus cooperation, participation, and conservation. This is no better illustrated today than by the imposition of genetically engineered (g.e.) seeds and crops on states and countries where civil society opposition is overruled by government collaboration with the rising global biotechnocracy, and acts of civil disobedience in protest are prosecuted as terroristic.
 

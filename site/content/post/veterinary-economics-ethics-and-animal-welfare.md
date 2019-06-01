@@ -1,7 +1,7 @@
 ---
 title: 'Veterinary Economics, Ethics and Animal Welfare'
 date: 2019-02-27T19:44:06.973Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 Despite, and in part because of advances in the biomedical sciences, the health and welfare of companion animals have been on the decline over the past two to three decades, as has that of farmed animals due principally to competitive economic pressures in the livestock and poultry industries. This statement may seem outlandish, if not offensive to those many veterinarians dedicated to improving the health and well-being of animals under their care. But as this review will document, the veterinary profession has become as much a victim of these forces and trends as the animals themselves.
 

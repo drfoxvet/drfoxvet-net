@@ -1,7 +1,7 @@
 ---
 title: ' Betrayal of Wolves and Public Trust: a Debacle of Democratic Process'
 date: 2019-02-27T19:26:17.860Z
-description: ' '
+categories: 'Wolves, Wildlife, & Conservation'
 ---
 State and federal lands, including all that abides therein, from moose and minerals to wolves and oil, are managed as natural resources. Most states can even claim eminent domain over private property for the oil and mining industries and other vested interests. The laudable ideology of sustainable resource use touted by the mining, timber, cattle and other industries has resulted in endless law suits to enforce various laws to minimize harms to the environment, biodiversity and to threatened and endangered species. This costly and often futile process will never end until there is greater state and federal government transparency and accountability so that the accusation that governments pander to vested interests and betray the public’s trust will have no foundation.
 

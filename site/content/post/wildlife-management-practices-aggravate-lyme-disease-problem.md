@@ -1,7 +1,7 @@
 ---
 title: ' Wildlife Management Practices Aggravate Lyme Disease Problem'
 date: 2019-02-27T20:04:07.949Z
-description: ' '
+categories: 'Wolves, Wildlife, & Conservation'
 ---
 Many insect-born diseases are on the rise, in part because of warmer winters associated with climate change. But Lyme and other tick-transmitted diseases are’t going to be controlled with ever more insecticides applied to the land, livestock and to our dogs and cats. We need to look at how farming, forestry and especially the activities state wildlife management authorities accord with the One Health concept that public health is in part dependent upon environmental/ ecological health.
 

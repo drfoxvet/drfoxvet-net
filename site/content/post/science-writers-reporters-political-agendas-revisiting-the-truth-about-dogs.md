@@ -3,7 +3,7 @@ title: >-
   Science Writers' & Reporters' Political Agendas: Revisiting the 'Truth About
   Dogs'
 date: 2019-02-27T20:56:44.893Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 Some writers and reporters equate “science” with truth and use it as a vehicle to support political and other ideologies. Those who may question their ideologies and motives are then dismissed as being “anti-science” and anti-progress. A case in point is the book  The Truth About Dogs, (Viking, NY, 2000) by journalist Stephen Budiansky in which, like his earlier book The Covenant of the Wild,  he used the theory of co-evolution to support his fatuous claim that animals chose to be domesticated. I interpret this as a deliberate, albeit anthropomorphic attempt, under the guise of scientific authority, to distance humans from other animals.  In the process he demeans people’s love for their dogs and other animals and undermines the legitimate concerns and progress of the animal protection and rights movements.
 

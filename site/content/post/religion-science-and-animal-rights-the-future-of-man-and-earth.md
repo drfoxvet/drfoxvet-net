@@ -1,7 +1,7 @@
 ---
 title: ' Religion, Science, and Animal Rights: the Future of Man and Earth'
 date: 2019-02-27T20:32:35.552Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 After my wife Deanna Krantz read out loud to me, excerpts from C. S. Lewis’ book The Problem of Pain, in which this renowned Christian philosopher explored the capacity of animals to experience pain, my sense of moral indignation was quickly ignited. He toyed with the notion that if, as sentient beings, animals possess a sense of selfhood, then they must have souls. But from his anthropocentric theology, with its anthropomorphic vision of divinity, he tilted against anthropomorphizing animals and denied them having souls. He then reconstructed the ladder of that long-held world- view of a divine hierarchy with man below god, animals below man, and man above woman.
 

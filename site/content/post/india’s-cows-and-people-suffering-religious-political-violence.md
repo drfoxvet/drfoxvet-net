@@ -1,6 +1,7 @@
 ---
 title: India’s Cows and People Suffering Religious Political Violence
 date: 2019-03-30T03:59:43.819Z
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 Conflicts on every continent are increasing in these times of rising populations, migration, poverty, hunger and more violent confrontations between factions of different religious and secular beliefs and traditions. India is no exception, but in this instance there are tragic consequences for animals, cows in particular. Cows and their offspring are held sacred by the ruling Hindu majority now caught in a double bind that can only be resolved by accepting the tragedy of reality and putting compassion into action.
 

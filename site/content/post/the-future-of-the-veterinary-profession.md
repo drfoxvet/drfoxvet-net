@@ -1,7 +1,7 @@
 ---
 title: The Future of the Veterinary Profession
 date: 2019-02-27T19:38:00.848Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 ## COMPANION ANIMAL VETERINARIANS’ CHALLENGES
 

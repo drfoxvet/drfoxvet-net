@@ -1,7 +1,7 @@
 ---
 title: Principles Of Veterinary Bioethics
 date: 2019-02-27T19:50:33.547Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 ## Commentary
 The term bioethics was first used in 1971 by physician V. R. Potter1 to link biological science with ethics and to demonstrate how bioethics can serve as a bridge linking disciplines such as medicine and ecology. He was concerned that medical ethics was too narrow in scope to deal with the complex, multidisciplinary health issues facing the medical profession. Bioethics has applications in many fields of human activity, from agriculture to conservation, and from community planning to public education.2 Veterinary medical ethics deals with professional standards of practice, business, and behavior and addresses the welfare of animals, as defined by law, from the perspectives of economics and scientific objectivity. Veterinary bioethics has a broader scope than veterinary medical ethics, being applied to evaluating the treatment and care of animals, in setting optimal welfare standards, and in determining what is best for animals from the perspectives of medicine (disease prevention and treatment) and ethology (behavioral and related physiologic, psychologic, and environmental requirements).3 

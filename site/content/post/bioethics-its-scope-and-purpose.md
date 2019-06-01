@@ -1,7 +1,7 @@
 ---
 title: 'Bioethics: Its Scope and Purpose'
 date: 2019-02-27T19:34:26.696Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 Bioethics entails the objective appraisal of how our values, desires, and actions affect others, including animals and the environment. Medical bioethics focuses on issues, such as euthanasia, surrogate parenting, and genetic engineering, involving human health and well-being. These and other issues have been deliberated by the World Council of Churches and other groups. Increasingly, bioethical considerations are part of their discussions on remedying many social and environmental problems.
 

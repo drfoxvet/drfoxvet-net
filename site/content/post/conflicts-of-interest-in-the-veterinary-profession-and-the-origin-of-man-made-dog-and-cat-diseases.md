@@ -3,7 +3,7 @@ title: >-
   Conflicts of Interest in the Veterinary Profession and the Origin of
   'Man-Made' Dog and Cat Diseases
 date: 2019-02-27T19:33:16.785Z
-description: ' '
+categories: 'Veterinary Matters'
 ---
 Dogs are harmed more than cats by far too many veterinarians giving them unnecessary annual vaccinations. This can result in much suffering from several chronic health problems such as allergies, neurological and joint problems, autoimmune and endocrine diseases. Cats are prone to develop often fatal skin cancer at the site of vaccine injection.
 

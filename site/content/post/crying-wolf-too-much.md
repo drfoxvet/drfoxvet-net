@@ -1,7 +1,7 @@
 ---
 title: Crying Wolf Too Much
 date: 2019-02-27T19:18:04.410Z
-description: ' '
+categories: 'Wolves, Wildlife, & Conservation'
 ---
 > “Every creature is better alive than dead, men and moose and pine trees, and he who understands it aright will rather preserve its life than destroy it.”
 

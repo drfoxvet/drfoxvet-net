@@ -1,7 +1,7 @@
 ---
 title: Justice For All Beings and The End of Terrorism
 date: 2019-02-27T20:53:50.107Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 The road to peace and the end of terrorism converges with the road to the end of our terrorizing animals. The end will be reached with a radical shift on our collective consciousness and conscience. Our children and the non-human ones whom we unjustly exploit for pleasure and profit, will no longer be victims of terrorism, systemic terrorization, crippling injuries and slaughter while being exploited and their plight ignored by the corrupted politics of profit and pleasure.
 

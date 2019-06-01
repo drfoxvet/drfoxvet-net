@@ -1,7 +1,7 @@
 ---
 title: 'One Earth, One Health: A Manifesto for Action'
 date: 2019-02-27T20:40:20.228Z
-description: ' '
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 > When the trees are gone the sky will fall
 

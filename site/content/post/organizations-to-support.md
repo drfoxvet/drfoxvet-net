@@ -1,6 +1,7 @@
 ---
 title: Organizations You May Wish to Support to Help the Animals & Environment
 date: 2019-02-26T16:17:12.095Z
+categories: 'Ethical, Social & Spiritual Issues'
 ---
 ![](/img/wolf_chief_dan_george.jpg)
 
