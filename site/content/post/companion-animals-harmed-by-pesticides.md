@@ -1,7 +1,6 @@
 ---
 title: Companion Animals Harmed By Pesticides
 date: 2019-02-27T15:58:34.357Z
-description: ' '
 ---
 ## COMPANION ANIMALS HARMED BY PESTICIDES AND ENGINEERED (GMO) FOOD INGREDIENTS
 

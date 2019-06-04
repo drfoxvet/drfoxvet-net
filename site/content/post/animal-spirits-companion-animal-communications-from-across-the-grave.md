@@ -1,7 +1,10 @@
 ---
 title: Animal Spirits -- Companion Animal Communications From Across the Grave
 date: 2019-02-27T20:22:07.939Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 The after-death physical manifestations of dogs and cats to their human companions point to other realities beyond this mortal plane. Such manifestations, documented in my two new books DOG BODY, DOG MIND, and CAT BODY, CAT MIND, (The Lyons Press), are sometimes visual, either as an aura of light or even a clear image of the animal, or are often purely auditory or tactile, as when the deceased animal’s footsteps are heard, a cold nose is felt on one’s leg, or the deceased cat is felt jumping onto the bed.
 

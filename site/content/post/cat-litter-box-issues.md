@@ -1,7 +1,8 @@
 ---
 title: Cat Litter Box Issues
 date: 2019-02-26T20:44:52.889Z
-description: ' '
+tags:
+  - Cats
 ---
 ## CAT LITTER BOX & LITTER ISSUES
 

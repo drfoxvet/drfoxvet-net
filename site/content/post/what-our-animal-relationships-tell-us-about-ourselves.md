@@ -1,7 +1,10 @@
 ---
 title: What Our Animal Relationships Tell Us About Ourselves
 date: 2019-02-27T19:57:17.950Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 Do we not all have the freedom to choose how we treat each other and other animals, and a conscience to avoid mistreatment, cruelty and suffering? But as William Shakespeare’s Hamlet observed, “Conscience doth make cowards of us all”. As I can attest, conscience can become compartmentalized, exercised in some situations and relationships but not in others. Empathy can be suspended by this disconnect which occurs in a host of contexts from children chasing, catching and harming butterflies in nets for no purpose other than some kind of parent and peer encouraged sport, to students having to dissect and even experiment on animals and learn how to kill them for no purpose other than an unexamined curriculum ritual. Thousands of students have protested over the years, more being ridiculed and academically threatened rather than, until very recently, being offered alternative educational experiences. They may, like others who, for various reasons become involved in causing harm to animals and their own kind, suffer what is now being termed ‘moral injury’*. We should also be concerned for those willing participants who evidence no such injury.
 

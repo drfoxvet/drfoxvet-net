@@ -1,7 +1,6 @@
 ---
 title: Dogwise E-Books
 date: 2019-02-27T16:06:46.136Z
-description: ' '
 ---
 ![](/img/ebook-1.jpg)
 

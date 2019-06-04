@@ -1,7 +1,10 @@
 ---
 title: The Light of Compassion
 date: 2019-02-27T20:30:31.246Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 The light of consciousness and the light of every living being are synonymous in the minds of many who are on the spiritual path of enlightenment and who are familiar with the sacred scriptures of Hinduism. In the Taittiriya Upanishad, for example, it is written:
 

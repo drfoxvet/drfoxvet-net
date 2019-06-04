@@ -3,7 +3,6 @@ title: >-
   The American Veterinary Medical Association “Supports Safety” of GMO and GE
   Foods
 date: 2019-02-27T18:48:06.976Z
-description: ' '
 ---
 I e-mailed the following letter to the editor of the Journal of the American Veterinary Medical Association on June 5th, 2017:
 

@@ -1,7 +1,6 @@
 ---
 title: Recovering Canine Health And The Natural Dog
 date: 2019-02-27T16:24:52.507Z
-description: ' '
 ---
 The burden of genetic abnormalities in Canis familiaris, the first animal species humans domesticated, has reached a critical state due to selective breeding for extreme, abnormal traits and subsequent inbreeding. “An associated cost of selection for specific traits in breed dogs is an enhanced likelihood of (inherited) disease,” the authors state in a new study published in December 2015 in the [Proceedings of the National Academy of Sciences](https://www.pnas.org/).  UCLA geneticist [Clare Marsden](https://www.eeb.ucla.edu/Faculty/Lohmueller/index.php?id=people) and her colleagues examined the genomes of 46 dogs from 34 distinct breeds and compared them with the genomes of 19 wolves, 25 village dogs   and one golden jackal (a more distant relative of wolves and dogs). They found that compared to wolves, breed dogs had 22% more cases of genes that had not one but two copies of a harmful mutation, because it was inherited from both parents. Compared with wolves, breed dogs averaged about 115 more mutations that posed some risk to their well-being.
 

@@ -1,7 +1,8 @@
 ---
 title: Introducing A New Cat
 date: 2019-02-26T20:47:29.150Z
-description: ' '
+tags:
+  - Cats
 ---
 There are many benefits in adopting a second cat to enrich the life of a single cat who is not too set in his or her ways to accept a newcomer. Two cats living together, as I emphasize in my book Understanding Your Cat (now available as an e-book on my website) are generally healthier and happier than cats who live with no contact ever with their own species.
 

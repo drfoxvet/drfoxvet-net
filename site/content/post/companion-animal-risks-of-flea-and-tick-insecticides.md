@@ -1,7 +1,6 @@
 ---
 title: Companion Animal Risks Of Flea And Tick Insecticides
 date: 2019-02-27T18:27:41.368Z
-description: ' '
 ---
 This review of current products on the market being sold to kill fleas, ticks and other insects on dogs and cats, assessment of their documented insecticidal action and incidence of harmful side-effects indicates their long-term use for prevention, widely practiced, should be avoided for animal and public health and environmental reasons. Their short-term use in emergency situations of confirmed presence of ectoparasites on companion animals may be justified with caution when all other control measures have failed. Reference is also made to the widespread use of these substances on farmed animals.
 

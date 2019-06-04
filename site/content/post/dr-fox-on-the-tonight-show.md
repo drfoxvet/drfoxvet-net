@@ -1,7 +1,10 @@
 ---
 title: Dr. Fox on the Tonight Show
 date: 2019-02-26T16:39:59.365Z
-description: Dr. Michael W. Fox on the Tonight Show with Johnny Carson
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 * [S 18: Ep 34 Show #3134](http://www.tv.com/shows/the-tonight-show-starring-johnny-carson/show-3134-283075/) 1/7/80
 * [S 17: Ep 92 Show #3092](http://www.tv.com/shows/the-tonight-show-starring-johnny-carson/show-3092-190626/) 7/11/79

@@ -1,7 +1,10 @@
 ---
 title: India Project For Animals and Nature (IPAN)
 date: 2000-01-01T05:00:00.000Z
-description: ' '
+tags:
+  - Wolves
+  - Wildlife
+  - Conservation
 ---
 ## India's animals: helping the sacred & the suffering
 

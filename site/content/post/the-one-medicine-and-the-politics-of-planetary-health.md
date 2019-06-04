@@ -1,7 +1,10 @@
 ---
 title: The 'One Medicine' and the Politics of Planetary Health
 date: 2019-02-27T19:27:37.127Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 The science and practice of human and veterinary medicine are being re-defined by such global phenomena as global warming/ climate change; rising world hunger and poverty; the many complexities of zoonotic and other infectious and contagious diseases; species and habitat extinction; and food-safety and security in times of terrorism and war. The linkage of such issues and concerns are bringing human and veterinary medicine together in new ways that are being referred to in the professional literature as ‘the one medicine’.
 

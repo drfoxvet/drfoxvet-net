@@ -1,7 +1,8 @@
 ---
 title: Cat Vaccination Protocols
 date: 2019-02-26T20:32:43.792Z
-description: ' '
+tags:
+  - Cats
 ---
 ## CAT VACCINATION PROTOCOLS & SERVICES
 

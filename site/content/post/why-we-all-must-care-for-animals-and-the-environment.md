@@ -1,7 +1,10 @@
 ---
 title: Why We All Must Care For Animals and the Environment
 date: 2019-02-27T20:41:57.831Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 It is striking to me that the rights and welfare of animals and protection of endangered species and their threatened habitats were never mentioned in all the various public, political debates I have heard in the U.S.  Solutions to various environmental and related public health issues are deferred if jobs, increased tax revenues from new “developments” and the GNP are threatened.  Appeals to protect wildlife and wilderness, save the last of the Asian elephants and Africa’s lions are made for our children’s sakes, not for animals’ or Nature’s sake.  Yet indigenous wild animals and properly husbanded farmed animals are vital contributors to maintaining healthy ecosystems and biological cycles as well as contributing to the human economy and greater good.
 

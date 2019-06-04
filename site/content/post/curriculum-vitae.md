@@ -1,7 +1,6 @@
 ---
 title: Curriculum Vitae
 date: 2019-02-28T00:15:45.612Z
-description: ' '
 ---
 ## CURRENT               
 

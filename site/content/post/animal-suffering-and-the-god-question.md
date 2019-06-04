@@ -1,7 +1,10 @@
 ---
 title: Animal Suffering And The God Question
 date: 2019-02-27T20:34:53.291Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
  In these difficult times many people are becoming increasingly affected by global problems of cruelty and suffering of humans and non-humans throughout the world. Animals have enough to cope with in the wild in extremes of weather and often starving, afflicted by injuries and disease as do many domestic animals left to fend for themselves; not to forget the whales, tigers, elephants and other endangered species likely to become extinct in the near future. So caring people ask what kind of God could create a world of so much suffering and killing?  A God who stands for all that is good? Or did God create the natural world for our own exclusive use no matter the cost to other inferior beings.
 

@@ -1,7 +1,6 @@
 ---
 title: 'Preventing Fleas, Ticks and Mosquitoes'
 date: 2019-02-27T18:31:16.115Z
-description: ' '
 ---
 This topic is important because of the adverse reactions many animals have to the new anti-flea and tick medicines; the environmental and public health risks of these chemicals; the suffering of animals allergic to fleas and other insects; and the increasing risks of tick-born and other insect-transmitted diseases.
 

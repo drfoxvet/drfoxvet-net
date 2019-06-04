@@ -1,7 +1,8 @@
 ---
 title: 'The Veterinary Profession: Leading Society Toward One Health'
 date: 2019-02-27T19:30:25.734Z
-description: ' '
+tags:
+  - Veterinary Matters
 ---
 The significance, value and role of animals wild and domesticated in various cultures include spiritual (totemic and symbolic), biological and ecological (scientific), emotional (affection/aversion) and commercial (including consumptive) perspectives. Such diversity in perception and related treatment is the antithesis of a unified sensibility based on respect for all life and according all living beings equal and fair consideration---an essential extension of the Golden Rule to temper the harmful consequences and historical legacy of anthropocentrism’s limited and self-limiting world view.
 

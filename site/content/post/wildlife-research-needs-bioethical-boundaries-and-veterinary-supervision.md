@@ -1,7 +1,10 @@
 ---
 title: ' Wildlife Research Needs Bioethical Boundaries and Veterinary Supervision'
 date: 2019-02-27T20:02:38.321Z
-description: ' '
+tags:
+  - Wolves
+  - Wildlife
+  - Conservation
 ---
 There are several documented, and many word-of mouth accounts of chemically immobilized and otherwise restrained endangered species like the Asian elephant and African wild dog being severely injured, killed or dying soon after capture and/or release. In some instances there was an association with the animals being injected with un-tested and un-approved modified live virus vaccines. In other instances the injured or killed animal was a pregnant or nursing mother.
 

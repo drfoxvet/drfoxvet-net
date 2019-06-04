@@ -1,7 +1,10 @@
 ---
 title: 'Animal Rights, Human Rights And Wrongs'
 date: 2019-02-27T19:37:41.553Z
-description: ' '
+tags:
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 America has no law prohibiting the killing of dogs for food, probably because most Americans do not regard dogs as food. But dogs are regularly consumed in parts of China, Korea and the Philippines. Likewise few Americans regard horses as food. But many people in countries like France, Belgium and Japan eat horses. Export of American horse flesh to these foreign markets, and the killing of some 90,000 horses in the U.S. every year, was prohibited in 2007 under the Horse Slaughter Protection Act. On the surface this meant that the horse has won the right in America not to be treated as a consumable commodity. But should not all animals be accorded this right? Those who have bonded with companion pigs, sheep, goats, calves, cows, oxen, rabbits, chickens, ducks and geese, and even pet fish, that are slaughtered by the billion, might well call for a similar right for their own favored species.
 

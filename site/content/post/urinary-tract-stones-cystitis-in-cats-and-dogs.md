@@ -1,7 +1,6 @@
 ---
 title: Urinary Tract 'Stones' & Cystitis in Cats and Dogs
 date: 2019-02-27T18:06:04.674Z
-description: ' '
 ---
 Dietary factors play a major role in the development of kidney stones that can block the urinary tract in cats and dogs and cause great discomfort, even death. These ‘stones’ or uroliths, (also called calculi, or ‘sand’ when in fine particles/crystals) have various chemical compositions, the most common being composed of calcium oxalate or of ‘struvite’---a composite of magnesium, ammonium and phosphate.
 
