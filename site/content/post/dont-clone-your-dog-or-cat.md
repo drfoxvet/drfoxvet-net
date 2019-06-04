@@ -1,7 +1,6 @@
 ---
 title: Don't Clone Your Dog Or Cat!
 date: 2019-02-27T16:22:05.742Z
-description: ' '
 ---
 Goats, sheep, cows, pigs, rabbits, mules, horses, deer, cats and mice have been cloned for commercial and biomedical purposes. In August, 2005, the first dog was cloned, an Afghan hound, by South Korean researchers at Seoul National University where earlier, human embryos had been cloned and stem cells extracted. The surrogate mother of this cloned dog was a yellow Labrador retriever. One hundred and twenty three dogs were used as both egg donors and surrogate mothers, and from over 1,000 prepared eggs or ova each containing a skin cell from a dog's ear, three pregnancies resulted, one ending in a miscarriage, one resulting in a pup that died soon after birth from respiratory failure, and the third a viable clone of a male Afghan hound. Some bioethicists fear that the cloning of man's best friend is the final stepping stone to eventual public acceptance of human cloning.
 

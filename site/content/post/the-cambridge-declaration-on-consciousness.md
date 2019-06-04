@@ -1,7 +1,10 @@
 ---
 title: The Cambridge Declaration on Consciousness
 date: 2019-02-27T20:57:22.432Z
-categories: 'Ethical, Social & Spiritual Issues'
+tags:
+- Ethical Issues
+- Social Issues
+- Spiritual Issues
 ---
 On this day of July 7, 2012, a prominent international group of cognitive neuroscientists, neuropharmacologists, neurophysiologists, neuroanatomists and computational neuroscientists gathered at The University of Cambridge to reassess the neurobiological substrates of conscious experience and related behaviors in human and non-human animals. While comparative research on this topic is naturally hampered by the inability of non-human animals, and often humans, to clearly and readily communicate about their internal states, the following observations can be stated unequivocally:
 

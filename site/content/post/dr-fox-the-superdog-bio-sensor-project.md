@@ -1,7 +1,10 @@
 ---
 title: Dr Fox & The Superdog (Bio-Sensor) Project
 date: 2019-02-27T16:00:54.954Z
-categories: 'Ethical, Social & Spiritual Issues'
+tags:
+- Ethical Issues
+- Social Issues
+- Spiritual Issues
 ---
 ## DEAR DR. FOX:
 

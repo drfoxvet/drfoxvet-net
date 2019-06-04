@@ -1,7 +1,10 @@
 ---
 title: What Makes Animals Happy?
 date: 2019-02-27T20:08:46.342Z
-categories: 'Ethical, Social & Spiritual Issues'
+tags:
+- Ethical Issues
+- Social Issues
+- Spiritual Issues
 ---
 What makes some people happy can make others sad and angry. Take, for instance, a Minnesota hunter who filed a hunter harassment suit on grounds that the Defendant spoiled his pleasure in hunting and shooting a bear. The defendant, a renowned bear field biologist,  had verbally abused him when the hunter, still in his tree hide, started to ridicule the bear biologist’s graduate student as she wept over the dead body of the black bear she had studied for over a year, and had come to know and love.
 

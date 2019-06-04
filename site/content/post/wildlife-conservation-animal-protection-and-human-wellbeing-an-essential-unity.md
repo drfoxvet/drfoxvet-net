@@ -3,7 +3,10 @@ title: >-
   Wildlife Conservation, Animal Protection and Human Wellbeing: an Essential
   Unity
 date: 2019-02-27T20:00:42.299Z
-categories: 'Wolves, Wildlife, & Conservation'
+tags:
+- Wolves
+- Wildlife
+- Conservation
 ---
 ## Synopsis
 

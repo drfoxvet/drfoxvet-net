@@ -1,7 +1,6 @@
 ---
 title: Dr. Fox’s Elixir Of Life (Good Medicine Juice Mix)
 date: 2019-02-27T15:52:57.545Z
-description: ' '
 ---
 After several years as a veterinarian evaluating the benefits and need for various nutrient supplements for our animal companions, I followed the adage of ‘physician heal thy self,’ and developed my own fruit-juice based formula for human consumption. Most of the ingredients are readily available and very inexpensive when the benefits in preventing and alleviating a host of health problems are projected against their cost and the short time it takes to make up a week’s supply. All ingredients have been human tested for generations, are safe and effective for a host of ailments, and are best when certified Organic where appropriate, beginning with the lemons---
 

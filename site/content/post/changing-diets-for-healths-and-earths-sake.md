@@ -1,7 +1,10 @@
 ---
 title: Changing Diets for Health's and Earth's Sake
 date: 2019-02-27T19:58:05.400Z
-categories: 'Agriculture, Farm Animals & Food'
+tags:
+- Agriculture
+- Farm Animals
+- Food
 ---
 We are slow to accept that the human population, coupled with its non-sustainable industrial and primitive agricultural practices, dietary habits and other environmentally destructive activities, has become a planetary infestation for which the immediate solutions are in the realm of self-control especially of our breeding and feeding behaviors. If the forces of natural selection with attendant disease, starvation and suffering, as well as internecine strife and wars, regional and international, over access to and control of natural resources, are to be somewhat alleviated for the good of future generations, then this generation must begin to squarely address these interconnected issues and implement the necessary changes. Some of these are identified in this review to give grounds for hope of a viable future.
 

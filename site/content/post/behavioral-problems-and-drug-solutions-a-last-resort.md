@@ -1,7 +1,6 @@
 ---
 title: 'Behavioral Problems and Drug Solutions: A Last Resort'
 date: 2019-02-27T18:30:03.934Z
-description: ' '
 ---
 A variety of psychotropic drugs have proven to be beneficial for treating people with various emotional and behavioral problems, such as anxiety, depression, and obsessive-compulsive disorders. Veterinarians are discovering that these drugs can help in treating similar problems in dogs. These clinical findings support my contention that the inner world of dogs, their consciousness and emotionality, must be similar in many ways to ours, otherwise these psychotropic drugs would not result in similar clinical improvement in dogs as in human patients.
 

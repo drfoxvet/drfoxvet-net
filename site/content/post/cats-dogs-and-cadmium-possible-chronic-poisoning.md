@@ -1,7 +1,6 @@
 ---
 title: ' Cats, Dogs, And Cadmium: Possible Chronic Poisoning'
 date: 2019-02-27T18:52:12.825Z
-description: ' '
 ---
 “Cumulative exposure to cadmium has been associated with elevations in blood pressure and renal dysfunction in human beings and rodents”. This introductory statement in a paper entitled “Association of urinary cadmium excretion with feline hypertension” by N.C. Finch, H. M. Syme and J. Elliot (1) from my alma mater, the Royal Veterinary College London, raises an important question. Other than cigarette smoke, possible environmental sources of cadmium in afflicted cats were not identified or suggested by these authors. They acknowledged that hypertension caused by kidney disease could increase cadmium excretion in the urine, but that there was no relationship between renal function and cadmium excretion. Furthermore, causality could not be inferred in so far as cadmium causing hypertension or hypertension resulting in more cadmium being excreted.
 

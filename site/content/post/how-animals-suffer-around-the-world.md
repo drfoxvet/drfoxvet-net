@@ -1,7 +1,10 @@
 ---
 title: How Animals Suffer Around the World
 date: 2019-02-27T20:05:06.268Z
-categories: 'Ethical, Social & Spiritual Issues'
+tags:
+- Ethical Issues
+- Social Issues
+- Spiritual Issues
 ---
  I am often asked what are the worst kinds of animal suffering in the world today? With some 30 years experience as a veterinarian and animal care advocate working in the US and in poor third world countries, I offer the following review. This will, I hope, encourage international efforts focusing on improving the human condition to also address animal concerns because Human Wellbeing depends on the integration of Animalcare with Earthcare and Peoplecare.
 

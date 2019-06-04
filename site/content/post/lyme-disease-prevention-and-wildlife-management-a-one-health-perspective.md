@@ -1,7 +1,10 @@
 ---
 title: 'Lyme Disease Prevention And Wildlife Management: A One Health Perspective'
 date: 2019-02-27T18:33:28.672Z
-categories: 'Wolves, Wildlife, & Conservation'
+tags:
+- Wolves
+- Wildlife
+- Conservation
 ---
 The One Health concept that human, animal and ecosystem health are interconnected, adopted by the American Medical Association, American Veterinary Medical Association and other health organizations (1) (www.onehealthinitiative.com and www.onehealthcommission.org ) is becoming a significant movement since its acceptance as a resolution by the National League of Cities (2) (www.nci.org/influence-federalpopicy/resources). An illustrative review presented below applies this One Health concept to a public health issue in Minnesota that is relevant to all states and countries where Borreliosis (Lyme disease) and other insect-transmitted and animal-harboring diseases are an increasing public health concern (3). It will show how this health issue is connected to human activities variously condoned and legally protected by local and state authorities, the Department of Natural Resources in particular, and some evidence based public health proscriptions and initiatives are considered. Ecosystem manipulations that increase deer numbers, coupled with the selective harvesting of other species that help control Lyme disease by consuming ticks and rodents, are of particular concern.
 

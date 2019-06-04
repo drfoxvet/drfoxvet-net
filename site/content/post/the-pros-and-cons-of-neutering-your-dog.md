@@ -1,7 +1,6 @@
 ---
 title: The Pros and Cons of Neutering Your Dog
 date: 2019-02-27T16:24:16.986Z
-description: ' '
 ---
 An excellent article by Kendall E. Houlihan DVM with the Animal Welfare Division of the American Veterinary Medical Association (AVMA) entitled “ A literature review on the welfare implications of gonadectomy of dogs” was published in the Journal of the AVMA, May 10, 2017. In summary, aside from the sound policy of neutering all shelter dogs and pups with rare exception as a population control measure, exceptions may be indicated for dog owners not in the business of breeding dogs.
 

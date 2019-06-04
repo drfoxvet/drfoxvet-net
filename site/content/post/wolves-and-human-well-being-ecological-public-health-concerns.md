@@ -1,7 +1,10 @@
 ---
 title: 'Wolves And Human Well-being: Ecological & Public Health Concerns'
 date: 2019-02-27T19:14:51.888Z
-categories: 'Wolves, Wildlife, & Conservation'
+tags:
+- Wolves
+- Wildlife
+- Conservation
 ---
 ![](/img/wolf_chief_dan_george.jpg)
 

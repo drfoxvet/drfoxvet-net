@@ -1,7 +1,6 @@
 ---
 title: Pure Water for Cats and Dogs--and All
 date: 2019-02-27T18:09:46.240Z
-description: ' '
 ---
 > “Symbol of creation, harbour of all seeds, water becomes the supreme magic and medicinal substance; it heals, it restores youth, it ensures eternal life”
 

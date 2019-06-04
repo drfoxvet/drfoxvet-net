@@ -1,7 +1,6 @@
 ---
 title: 'Lectures, Seminars and Workshops by Dr. Fox'
 date: 2019-02-28T14:35:43.131Z
-description: ' '
 ---
 Dr. Fox lectures nationally and internationally to a diversity of audiences, from farmers and ranchers to veterinarians, students and companion animal care givers. Topics include:
 

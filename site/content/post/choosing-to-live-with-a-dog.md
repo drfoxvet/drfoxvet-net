@@ -1,7 +1,6 @@
 ---
 title: Choosing To Live With A Dog
 date: 2019-02-26T20:50:53.928Z
-description: ' '
 ---
 Sometimes we have no choice. But the decision to bring a dog into one's life means wanting to share your life with a dog. If there is no real sharing, then there is no life for the dog, unless he or she is lucky to also live with other dogs rather than one dumb master or mistress and having to endure a life of forced obedience or emotional over-indulgence: And worse---being tied up in some back yard alone for hours, a practice that humanitarians have sought to make illegal as a widespread animal cruelty, only to face the well-funded opposition of the American Kennel Club (AKC).
 

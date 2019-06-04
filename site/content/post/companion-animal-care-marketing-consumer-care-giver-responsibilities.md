@@ -1,7 +1,6 @@
 ---
 title: 'Companion Animal Care: Marketing & Consumer-Care-Giver Responsibilities'
 date: 2019-02-27T18:23:49.585Z
-description: ' '
 ---
  Pet/companion animal care in these times of growing environmental awareness, and of a global economy that has to become sustainable, is opening up new markets for conscientious consumers and concerned pet owners. There are more and more products and services for pets’ sake, essential for their health and overall well-being that belong under the banner of ‘Green.’ All pet products and services should meet the basic criteria of ‘Greenness’: Namely, they should be variously animal-safe, recyclable, biodegradable, not harmful to the environment, and be produced and delivered in more efficient and sustainable ways than many conventional products and services.
 

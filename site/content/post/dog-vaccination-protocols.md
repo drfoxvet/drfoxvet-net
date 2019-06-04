@@ -1,7 +1,6 @@
 ---
 title: Dog Vaccination Protocols
 date: 2019-02-27T14:47:56.889Z
-description: ' '
 ---
 > “Anytime you inject anything into a patient you have the potential of killing them”.
 

@@ -1,7 +1,8 @@
 ---
 title: Declawing Cats
 date: 2019-02-26T20:37:53.668Z
-description: ' '
+tags:
+- Cats
 ---
 ## Say No! To Declawing Cats
 

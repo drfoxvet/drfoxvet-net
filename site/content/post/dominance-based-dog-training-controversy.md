@@ -1,7 +1,6 @@
 ---
 title: Dominance-based Dog Training Controversy
 date: 2019-02-27T15:59:48.436Z
-description: ' '
 ---
 ## DEAR DR. FOX:
 

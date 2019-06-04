@@ -1,7 +1,10 @@
 ---
 title: 'India''s Animals: Helping the Sacred & the Suffering'
 date: 2019-02-26T16:12:49.017Z
-categories: 'Wolves, Wildlife, & Conservation'
+tags:
+- Wolves
+- Wildlife
+- Conservation
 ---
 This richly illustrated book details the trials and tribulations of setting up an animal shelter and free veterinary services in the heart of a unique wildlife region in S. India, the UNESCO designated Nilgiris Biosphere Reserve.
 
