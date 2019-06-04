@@ -2,7 +2,7 @@
 title: Declawing Cats
 date: 2019-02-26T20:37:53.668Z
 tags:
-- Cats
+  - Cats
 ---
 ## Say No! To Declawing Cats
 

@@ -4,9 +4,9 @@ title: >-
   Animal & Environmental Health 
 date: 2019-02-27T18:17:57.948Z
 tags:
-- Wolves
-- Wildlife
-- Conservation
+  - Wolves
+  - Wildlife
+  - Conservation
 ---
 So called USP Grade mineral oil/petroleum jelly (old name liquid paraffin) is sold in pharmacies across the U.S. It is a petroleum-derived product liberally applied to babies, in many sun-screens and often used over the entire body after showering in the belief that this is good for the human skin. From a chemical point of view, mineral oil/petroleum jelly is a “purified” mixture of long-chained saturated hydrocarbons (also known as alkanes or paraffin), solids and liquids of general formula (CnH2n+2) obtained from refining petrol, polycyclic aromatic hydrocarbons (PAHs) being of growing public health concern (1). Questions are being raised about the potential adverse consequences of using mineral oil on our skin (2). The USP petroleum jelly does not pass the test of the European Pharmacopoeia and yet it complies with the American Pharmacopoeia norms according to one French cosmetics company (3).
 

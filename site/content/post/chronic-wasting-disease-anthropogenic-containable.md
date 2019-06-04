@@ -2,9 +2,9 @@
 title: ' Chronic Wasting Disease: Anthropogenic? Containable?'
 date: 2019-03-09T14:44:46.634Z
 tags:
-- Wolves
-- Wildlife
-- Conservation
+  - Wolves
+  - Wildlife
+  - Conservation
 ---
 From the perspective of One Health (1) dysfunctional ecosystems with wild animal and plant species imbalances and sub-optimal regulatory biodiversity (2) can put public health and the health of domestic animals at risk (3). Predator “control” and other wildlife management practices, coupled with human and livestock encroachment in ever-increasing numbers, have intensified dysbiosis and climate change from continent to continent.(4) Correcting such anthropogenic health problems with vaccines, pesticides, antibiotics and other drugs, even genetic engineering biotechnologies, while ignoring preventive measures, have limited medical and veterinary progress for decades (5). Such limitations have failed to prevent the spread of zoonoses such as Lyme disease, and the emergence of Chronic Wasting Disease in N. America in particular where there is sub-optimal biodiversity and lack of predators (6) and insectivores in the dystrophic ecosystems.  
 

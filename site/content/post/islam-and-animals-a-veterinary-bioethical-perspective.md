@@ -2,9 +2,9 @@
 title: 'Islam and Animals: A Veterinary Bioethical Perspective'
 date: 2019-02-27T20:38:03.939Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 I started to write this essay during America’s July 4th  2013   firework celebration of Independence. Victims of post-traumatic stress disorder, including many veterans of war along with countless wild animals, in-home dogs and cats and stabled horses, suffered the trauma of percussive incendiaries of this nation-wide pyrotechnic human indulgence. The previous winter several flocks of roosting birds were reported being killed, flying blindly into the night and colliding with trees after they were terrified by New Year’s Eve fireworks. What is it about human nature that we continue to indulge ourselves without concern for the consequences, and especially to the potential harm to fellow creatures?
 

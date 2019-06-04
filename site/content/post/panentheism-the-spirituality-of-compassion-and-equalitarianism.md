@@ -2,9 +2,9 @@
 title: 'Panentheism: The Spirituality of Compassion and Equalitarianism'
 date: 2019-02-27T20:39:17.756Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 >  “All are but parts of one stupendous whole
 >

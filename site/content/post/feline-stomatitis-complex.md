@@ -2,7 +2,7 @@
 title: Feline Stomatitis Complex
 date: 2019-02-26T20:40:52.748Z
 tags:
-- Cats
+  - Cats
 ---
 ## THE ORAL PLAGUE OF CATS: STOMATITIS, TREATMENT & PREVENTION
 

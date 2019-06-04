@@ -2,7 +2,7 @@
 title: Most "Feral" Cats Can be Rescued and Recover from the "Wild" Outdoors
 date: 2019-03-21T15:57:00.559Z
 tags:
-- Cats
+  - Cats
 ---
 **FROM LEAGUE OF MINNESOTA CITIES INFORMATION MEMO _Animal Regulation in Cities_:**
 

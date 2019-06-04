@@ -2,9 +2,9 @@
 title: Animals’ Altruism and Ability to Empathize
 date: 2019-02-27T20:08:26.968Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 If animals were incapable of empathy, of understanding another’s emotional state and having feeling for another’s distress, then we would find no evidence of altruistic behavior in the animal kingdom. But indeed we do.
 

@@ -2,9 +2,9 @@
 title: Dr. Fox Biographical Interview
 date: 2019-02-28T00:08:12.283Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 Dr. Michael W. Fox, DSc, PhD, BVet Med, MRCVS is a well-known veterinarian, former vice president of The Humane Society of the United States, former vice president of Humane Society International, and the author of more than 40 books on animal care and behavior, and bioethics.
 

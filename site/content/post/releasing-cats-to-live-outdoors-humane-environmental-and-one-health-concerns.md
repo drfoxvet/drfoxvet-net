@@ -2,7 +2,7 @@
 title: 'Releasing Cats To Live Outdoors: Humane, Environmental And One Health Concerns'
 date: 2019-02-26T17:23:22.990Z
 tags:
-- Cats
+  - Cats
 ---
 Contemporary society is facing many ethical challenges dealing with wildlife conflicts, the release of non-indigenous and “exotic” species into the natural environment, free-roaming and feral cats and the issue of animals’ rights and well-being.(1) While it has been said that for the truly ethical person all life is sacred and that the merciful man is merciful to his beast, there are no simple moral directives for  dealing with livestock predators, “pests”, invasive species and various human-animal conflicts. To resolve ethical dilemmas the interests of all stake-holders/involved parties must be considered as well as the consequences of decided-upon actions. To be involved is to care and to care is a virtue which must be open to moral examination especially when there are vested interests and self-righteous conviction. The desire to care for and rescue others in need, regardless of species and context, like the issue of euthanasia, call for moral reasoning in ethically challenging situations.
 

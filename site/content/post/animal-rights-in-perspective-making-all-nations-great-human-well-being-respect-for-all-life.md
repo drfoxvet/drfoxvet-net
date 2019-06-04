@@ -4,9 +4,9 @@ title: >-
   Respect for All Life
 date: 2019-03-30T04:07:05.399Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 > "Every creature has its own reason to be.  All its parts have a direct effect on one another, a relationship to one another, thereby constantly renewing the circle of life."
 >

@@ -2,9 +2,9 @@
 title: 'Animal-Insensitivity Syndrome: Recognition & Prevention'
 date: 2019-02-27T19:13:12.913Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 Several years ago in my lectures I would use the term ‘animal-deprivation syndrome’, to describe a condition of insensitivity and indifference toward animals that was acquired in early childhood. Today I regard this condition as an impaired sensitivity toward animals that may or may not be caused by a child being deprived of any meaningful contact with animals, since other factors are involved in the genesis of this animal-insensitivity syndrome. It is a cognitive and affective developmental disorder that I see as part of a larger problem of insensitivity and indifference to the Earth.
 

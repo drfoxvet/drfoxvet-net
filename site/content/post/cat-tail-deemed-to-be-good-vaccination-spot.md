@@ -2,7 +2,7 @@
 title: Cat Tail Deemed To Be Good Vaccination Spot
 date: 2019-02-26T20:12:48.443Z
 tags:
-- Cats
+  - Cats
 ---
 University of Florida's College of Veterinary Medicine determined that vaccinating cats in the tail is a viable option.
 

@@ -2,9 +2,9 @@
 title: Universal Bill of Rights For Animals and Nature
 date: 2019-02-27T20:54:23.645Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 We share this world with other animals. They share our capacity to experience the pains and pleasures of existence in their various modes of being, through which they contribute to the life and beauty of the Earth: To the functional integrity of the natural environment, upon whose healthy and productive ecosystems we humans and all life depend. They seek physical comfort, freedom from pain and fear; and according to their needs, seek emotional gratification as well as physical satisfaction like we, and the security of social relationships.
 

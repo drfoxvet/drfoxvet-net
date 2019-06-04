@@ -3,7 +3,7 @@ title: 'In Memoriam: Feral Cat Mark Twain'
 date: 2019-02-26T17:12:30.482Z
 description: A tribute to a cat who was a Bodhicattva
 tags:
-- Cats
+  - Cats
 ---
 ## In Memoriam
 

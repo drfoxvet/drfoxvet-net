@@ -4,9 +4,9 @@ title: >-
   Fox
 date: 2019-02-28T00:10:43.736Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 By Dr. Robert G. W. Kirk
 

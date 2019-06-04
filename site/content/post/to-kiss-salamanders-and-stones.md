@@ -2,9 +2,9 @@
 title: To Kiss Salamanders and Stones
 date: 2019-02-28T14:38:14.622Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 Animal powers are profound and real. Yet they are not appreciated or even recognized by modern technological society as having value or significance. Indeed, they are dismissed as mere superstition. Those who claim empowerment and ask respect for these inherent qualities (which some call the animals’ gifts and blessings) are labeled variously as primitives, heathens (dwellers of the uncivilized heath), pagans, witches, mad shamans, social deviants, and perverts—sexually and spiritually—if not outright insane.
 

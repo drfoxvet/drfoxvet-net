@@ -2,9 +2,9 @@
 title: 'Mental Effects on Physical Health: The Mind-Body Connection'
 date: 2019-02-27T20:11:17.412Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 Conventional Western human and veterinary medicine still bear the legacy of French philosopher Rene’ Descartes (1970), who promoted the false dualism of the mind being separate from the body, and the belief that animals were unfeeling machines.  Such mechanomorphization of non-human animals became the scientific consensus that condemned the belief and empirical evidence of emotional states in animals as sentimentally misguided anthropomorphism.  In spite of Charles Darwin's work (notably his book The Expression of Emotions in Man and Animals), and other scientists’ and philosophers’ opposition to Cartesian dualism and mechanistic reductionism, the resistance to accepting that animals have minds and emotions endured for over three hundred years since Descartes, especially in scientific, biomedical, and related circles of animal use and abuse, in part because of even deeper religious and cultural attitudes toward non-human life (Fox 1996). As late as the 1960s skepticism was expressed by some veterinarians over empirical evidence that dogs will feign injury to a limb in order to seek attention (Fox 1962). Some members of the profession scoffed at such evidence, contending that they would be called on to be pet shrinks or behavioral therapists, while others acknowledged the need for more expertise and research in normal and abnormal behavior in animals.
 

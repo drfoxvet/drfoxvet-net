@@ -2,9 +2,9 @@
 title: Feeling for Animals and Animal Liberation
 date: 2019-02-27T20:07:00.717Z
 tags:
-- Ethical Issues
-- Social Issues
-- Spiritual Issues
+  - Ethical Issues
+  - Social Issues
+  - Spiritual Issues
 ---
 The gulf between animal exploitation and animal kinship, and between animal abuse and animal liberation, is fundamentally a spiritual one. 
 
