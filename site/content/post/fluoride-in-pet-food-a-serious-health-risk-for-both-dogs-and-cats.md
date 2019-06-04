@@ -1,6 +1,9 @@
 ---
 title: Fluoride in Pet Food---A Serious Health Risk for Both Dogs and Cats?
 date: 2019-02-27T18:54:38.331Z
+tags:
+  - Cats
+  - Dogs
 ---
 The Environmental Working Group (EWG) has just released a study of 10 brands of manufactured dog foods analyzed for fluoride content. Eight had levels that could put dogs at risk from developing bone cancer, thyroid disease and other health problems. For details visit www.ewg.org/pethealthreport/fluoride-in-dog-food/
 

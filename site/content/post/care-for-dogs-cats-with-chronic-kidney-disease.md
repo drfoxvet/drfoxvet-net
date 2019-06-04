@@ -1,6 +1,9 @@
 ---
 title: Care For Dogs & Cats With Chronic Kidney Disease
 date: 2019-02-27T18:05:11.674Z
+tags:
+  - Cats
+  - Dogs
 ---
 First try my dog or cat food recipes posted on my website www.drfoxvet.net A highly digestible, good quality animal protein ingredient, often lacking in manufactured pet foods and the special diets prescribed for animals with kidney problems, is important, especially when the animals are losing weight (in part because their kidneys are shedding protein).
 

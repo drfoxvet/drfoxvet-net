@@ -1,6 +1,9 @@
 ---
 title: Chemical-related Human Diseases In Companion Animals
 date: 2019-02-27T18:15:19.047Z
+tags:
+  - Cats
+  - Dogs
 ---
 Living in Minnesota, I am in one of the epicenters of the nation-wide epidemic of obesity, diabetes and related degenerative and endocrine diseases afflicting the human population, many of which I witness every day when out in public. I find it particularly disturbing when health experts, including those in universities and the federal government, simply call for more public education with regard to eating habits and life style, telling people to eat more fruits and vegetables and get more exercise, because other factors are involved in this epidemic.
 

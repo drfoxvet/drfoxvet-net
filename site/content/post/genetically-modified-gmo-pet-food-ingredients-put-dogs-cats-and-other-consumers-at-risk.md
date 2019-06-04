@@ -3,6 +3,9 @@ title: >-
   Genetically Modified (GMO) Pet Food Ingredients Put Dogs, Cats And Other
   Consumers At Risk
 date: 2019-02-27T18:41:27.287Z
+tags:
+  - Cats
+  - Dogs
 ---
 Our canine and feline animal companions are like canaries down in the mines, alerting us to possible dangers in the environments we share. Since they consume some of the same dietary ingredients from the same food chain that we share with them, the following concerns about genetically modified (GMO) food ingredients that seem to be contributing to a variety of veterinary medical conditions, ---and which improve when GMOs are excluded from their diets---should also alert us all as consumers of such genetically altered, biologically anomalous foods.
 

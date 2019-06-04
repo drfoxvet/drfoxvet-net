@@ -1,6 +1,9 @@
 ---
 title: The Ethics of Krill Oil and Protein Supplements
 date: 2019-02-27T19:12:39.211Z
+tags:
+  - Cats
+  - Dogs
 ---
 I have long been concerned about the fate of whales who dependent upon krill as their primary food source as human harvesting of these small, shrimp-like creatures for livestock feed, fish farming and human consumption intensifies, and krill oils gain world wide popularity as a nutritional supplement. These are phospholipid-enriched oils, a source of the omega-3 fatty acids EPA (eicosapentaenoic acid) and DHA (docosahexaenoic acid). Krill make up one of the largest and least contaminated biomass of any animal species on the planet, and the krill fishing industry see it as a renewable resource. National Geographic’s internet entry on the 2 inch long Antarctic krill states: “Simply put, without krill, most of the life forms in the Antarctic would disappear. Alarmingly, there are recent studies that show Antarctic krill stocks may have dropped by 80 percent since the 1970s. Scientists attribute these declines in part to ice cover loss caused by global warming. This ice loss removes a primary source of food for krill: ice-algae.”
 

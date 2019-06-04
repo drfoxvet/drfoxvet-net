@@ -1,6 +1,9 @@
 ---
 title: Cat and Dog Nutrition--the Thiamine Issue
 date: 2019-02-26T20:03:35.511Z
+tags:
+  - Cats
+  - Dogs
 ---
 Thamine (vitamin B1) deficiency in pet foods is an issue of clinical importance and in spite of proclaimed advances in the science of pet food nutrition and ingredient formulation, there have been five major pet food recalls since 2009 in the United States because of thiamine deficiency, several cats developing clinical signs of deficiency disease.  Two recent articles published in the _Journal of the American Veterinary Medical Association_ ( 1&2) highlight this issue which cannot be simply fixed by manufacturers adding more thiamine supplement to their products.
 

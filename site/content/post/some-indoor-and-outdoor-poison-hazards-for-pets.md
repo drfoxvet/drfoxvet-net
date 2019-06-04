@@ -1,6 +1,9 @@
 ---
 title: Some Indoor And Outdoor Poison Hazards For Pets
 date: 2019-02-27T18:50:20.829Z
+tags:
+  - Cats
+  - Dogs
 ---
 ## PLANTS:
 

@@ -1,6 +1,9 @@
 ---
 title: Concerning Puppy And Kitten Breeding Mills
 date: 2019-02-27T18:09:20.136Z
+tags:
+  - Cats
+  - Dogs
 ---
 Commerce in purebred and ‘designer’ (cross-breed) dogs, and purebred cats has expanded in many farming states since my first investigations of commercial dog breeding facilities, so called ‘puppy mills’ in the Midwest in the early 1970’s. Brood-bitches, stud dogs and litters of puppies were generally treated like commodities; no different from other livestock, such as pigs, chickens, and fur-ranch foxes and mink.  Even then, inhumane breeding practices and conditions were widespread, and they have not been improved upon over the intervening years in spite of government (USDA/APHIS) inspections and licensing schemes and purported AKC (American Kennel Club) inspections. Most state authorities see nothing wrong with applying the same standards, if any, for how producers should treat their livestock and poultry, to puppy and kitten mill commercial breeding facilities.
 

@@ -1,6 +1,9 @@
 ---
 title: Nutrigenomics and the Pet Food Revolution
 date: 2019-02-27T19:03:26.125Z
+tags:
+  - Cats
+  - Dogs
 ---
 Manufactured pet foods are profitably derived from the human food and beverage industries that continue to rely on the use of increasingly contaminated, hazardous and depleted terrestrial and aquatic ecosystems. Most dogs and cats consume these foods, which have contained byproducts and materials rejected and condemned as unfit for human consumption, including the infamous notably “4-D” meat from animals either dead, dying, debilitated or diseased.  Billions of dollars have been repeated for pet food manufacturers, which forms a lucrative subsidiary of industrial agriculture/”agribusiness”.  Despite the efficiency and cost-saving of this highly profitable practice for companion and farmed animals (including fish) feed industries, safety and nutritional quality concerns continue to be issues regulatory agencies (FDA & USDA) are hard pressed to monitor and rectify. This is mainly because the extremely complex international industrial food system has internal problems such as nutrient-deficient soils and crops along with agrichemical and animal drug residues that call for entirely different, ecologically sound, sustainable and humane farming practices. 
 

@@ -1,6 +1,9 @@
 ---
 title: 'Animal Vaccination Concerns: Vaccine-Associated Autoimmune and Other Diseases'
 date: 2019-02-27T17:57:53.088Z
+tags:
+  - Cats
+  - Dogs
 ---
 By way of introduction to this critical review, I wish to make it clear at the onset that I am not opposed to the judicious use of vaccines. My approval is conditioned on the proviso that the deployed vaccines have high levels of proven safety and effectiveness for each species upon which they are used, and requires that they become part of an integrated, holistic health care and disease prevention program. When used as a sole therapy, vaccines do not constitute an effective preventive medicine regime. The myth of infectious and contagious diseases having a single cause---the infective organism---is at long last being abandoned as other co-factors are now being more widely recognized, extending the narrow view that developing a specific vaccine is all one requires to reduce the morbidity and mortality of a given disease.
 

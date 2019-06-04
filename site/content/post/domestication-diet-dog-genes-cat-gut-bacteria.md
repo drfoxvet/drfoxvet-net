@@ -1,6 +1,9 @@
 ---
 title: 'Domestication & Diet: Dog Genes & Cat Gut Bacteria'
 date: 2019-02-27T18:32:46.734Z
+tags:
+  - Cats
+  - Dogs
 ---
  Swedish researchers in their comparative studies of dog and wolf DNA report that dogs show changes in genes governing three critical steps in the digestion of starch, first breaking down large carbohydrate molecules into smaller ones, then breaking these up into smaller sugars and then finally facilitating their absorption in the digestive system. Significantly there was so called gene duplication, multiple copies of a gene for amylase, produced by the pancreas that is involved in the first step of starch digestion.
 

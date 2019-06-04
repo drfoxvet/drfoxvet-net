@@ -1,6 +1,9 @@
 ---
 title: The Truth About Manufactured Dog and Cat Food
 date: 2019-02-27T15:54:38.590Z
+tags:
+  - Cats
+  - Dogs
 ---
 Click on the Link below for the Podcast "The Truth About Manufactured Dog and Cat Food" originally posted on [Julie Forbes' The Dog Show](http://www.dogradioshow.com) website.
 

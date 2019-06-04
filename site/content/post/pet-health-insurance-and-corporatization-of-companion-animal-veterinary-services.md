@@ -3,6 +3,9 @@ title: >-
   Pet Health Insurance and Corporatization of Companion Animal Veterinary
   Services
 date: 2019-02-27T19:29:34.988Z
+tags:
+  - Cats
+  - Dogs
 ---
 This topic of pet health insurance, in the dark shadow of America’s human health insurance mess and less and less affordable health care, may seem absurd. But as I have emphasized in earlier writings, cat and dog owners should discuss this with their veterinarians especially if they have a purebred or “designer” puppy or kitten with extreme physical traits such as pushed-in faces ( braychcephaly), twisted limbs and extreme infantilism ( paedomorphosis) and probable genetic/inherited health problems which may surface with maturity. DNA tests are now available to identify some of these.
 

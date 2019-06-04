@@ -1,6 +1,9 @@
 ---
 title: 'Health Benefits from Good Nutrition: Testimonials from Cat and Dogs '
 date: 2019-02-27T18:55:44.347Z
+tags:
+  - Cats
+  - Dogs
 ---
 ## CATS
 
