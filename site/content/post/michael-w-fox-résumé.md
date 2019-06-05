@@ -1,6 +1,6 @@
 ---
 title: 'Michael W. Fox: Résumé'
-date: 2019-02-27T20:58:47.090Z
+date: 2000-01-01T02:00:00.000Z
 ---
 Michael W. Fox was born and educated in the UK, in his senior year in high school being elected a Fellow of the Royal Entomological Society (FRES) on the basis of his studies of Trichoptera and limnology, and was awarded the gold medal in elocution by the London School of Music and Dramatic Art (LAMDA). With a 5-year background of ‘seeing veterinary practice’ and farm work as a high school student he pursued his veterinary degree on a Derbyshire County Exhibition Scholarship at the Royal Veterinary College, London, from where he graduated in 1962, with honors in pathology and animal husbandry. He was awarded the gold medal and Fellowship of the Veterinary Medical Association by the Royal Veterinary College for his research report Diseases of the Sheep-dog in Relation to Management and Nutrition.
 
