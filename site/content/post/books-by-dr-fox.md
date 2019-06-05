@@ -1,6 +1,8 @@
 ---
 title: Books by Dr. Fox
 date: 2000-01-01T01:00:00.000Z
+tags:
+  - Books
 ---
 
 ![](/img/books-dog-mind.jpg)
