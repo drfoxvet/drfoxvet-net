@@ -1,6 +1,8 @@
 ---
 title: Dr. Fox's Good Dog Cookie Recipe
 date: 2019-02-27T16:20:41.294Z
+tags:
+  - Dogs
 ---
 4 cups Buckwheat flour\
 ½ cup rolled Oats\

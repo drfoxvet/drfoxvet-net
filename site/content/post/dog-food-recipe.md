@@ -1,6 +1,8 @@
 ---
 title: Dog Food Recipe
 date: 2019-02-27T14:59:40.789Z
+tags:
+  - Dogs
 ---
 ## Dr. Michael Fox's Homemade 'Natural' Food for Dogs
 

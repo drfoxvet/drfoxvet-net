@@ -1,6 +1,8 @@
 ---
 title: 'Dogs In Shelters: Temperament Tests & Exercise Issues'
 date: 2019-02-27T16:19:24.906Z
+tags:
+  - Dogs
 ---
 I and others have been long railing against what has become a standard practice in many animal shelters of intimidating a newly arrived dog when he/she is eating by pushing a stuffed glove that looks like a hand on the end of a stick at the poor animal trying to eat.  This was done to elicit “food guarding aggression” and dogs who growled and snarled were likely to be killed.  Other temperament tests were also of questionable value considering the situation and state of most dogs in unfamiliar and stressful conditions.
 

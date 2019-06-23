@@ -1,6 +1,8 @@
 ---
 title: Concerning Outdoor Chaining/Tethering Of Dogs
 date: 2019-02-27T16:13:20.782Z
+tags:
+  - Dogs
 ---
 As a veterinarian, member of the American Veterinary Medical Association, the British Veterinary Medical Association, and with doctoral degrees in medicine and also animal behavior/ethology, and with 45 year’s experience doing research in animal health and well-being, I wish to offer my professional opinion on the outdoor tying up of dogs.
 

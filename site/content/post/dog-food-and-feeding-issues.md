@@ -1,6 +1,8 @@
 ---
 title: Dog Food and Feeding Issues
 date: 2019-02-27T15:49:57.929Z
+tags:
+  - Dogs
 ---
 ## DOG FOOD AND FEEDING ISSUES: MYTH AND REALITY
 

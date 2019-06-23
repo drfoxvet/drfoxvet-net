@@ -1,6 +1,8 @@
 ---
 title: Introducing A Dog Into Cat's Home
 date: 2019-02-26T20:49:21.640Z
+tags:
+  - Dogs
 ---
 ## DEAR DR. FOX:
 
