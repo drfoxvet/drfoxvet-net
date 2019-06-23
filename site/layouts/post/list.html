@@ -3,14 +3,13 @@
 {{ partial "jumbotron" (dict "imageUrl" "/img/susan-yin-647448-unsplash.jpg" "title" "Articles") }}
 
 <div class="mw7 center mt3 tc">
-  Find all articles below
-  or
+  Find all articles below or
   <h2 class="f4 primary b"><a href="/tags">Browse by Subject</a></h2>
 </div>
 
 <div class="mw7 center">
   <ul class="flex-ns flex-wrap mhn1-ns pa3">
-      {{ range (.Paginator 16).Pages.ByPublishDate.Reverse }}
+      {{ range (.Paginator 1024).Pages.ByPublishDate.Reverse }}
           <div class="w-50-ns ph1-ns flex">
             {{ .Render "li"}}
           </div>
