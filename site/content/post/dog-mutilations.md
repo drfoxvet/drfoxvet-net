@@ -1,6 +1,8 @@
 ---
 title: Dog Mutilations
 date: 2019-02-27T14:58:53.887Z
+tags:
+  - Dogs
 ---
 ## DON'T LET THEM MUTILATE YOUR DOG
 
