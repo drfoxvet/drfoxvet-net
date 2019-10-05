@@ -42,6 +42,24 @@ Far too many manufactured pet foods are nutritionally deficient either because t
 
 These problems are compounded by the fact that most of the corn, soy and sugar beet derived ingredients in processed human foods and pet foods have been genetically engineered or modified (GM). (For a review and links documenting the health and environmental risks of GM crops and foods, visit [www.drfoxvet.net](www.drfoxvet.net)).
 
+COMPLEX CARBOHYDRATES IN PET FOODS
+
+The recent trend of pet food manufacturers to market “grain free” cat and dog food has been a contributing factor in some animals developing heart disease (dilated cardiomyopathy). But the various kinds of fiber in the complex carbohydrates of whole grains (and buckwheat) can help prevent obesity and other health problems in both dogs and people. Such grains have no place in cat foods, so often having corn and rice as major ingredients, but some fiber in cat foods can be beneficial.
+
+High calorie, meat and fat diets and treats for dogs play a major role in the companion animal obesity health crisis. In 2018, an estimated 60% of cats and 56% of dogs in the United States
+
+were overweight or obese. ( See https://petobesityprevention.org/).
+
+ Genetic factors, owner’s life-styles, eating habits and activity levels of both the animals and their care-givers also play a role in this health crisis. Such diets are also a major factor in dogs and cats developing pancreatitis with secondary diabetes in some dogs. High carbohydrate diets are in large part responsible for obesity, diabetes and other health problems in cats and for pancreatic enzyme insufficiency in some dogs, especially German shepherds.  
+
+Complex carbohydrates in grains and seeds, (ideally organic, minimally processed such as brown rice, barley, oats, quinoa, amaranth), include fibers that are beneficial for gut bacteria, and starches that break down into energy-providing glucose or is stored in muscle as an energy reserve  of glycogen or is converted into fat. Complex carbohydrates slow and facilitate digestion, make for regular bowel movements, firm stools and satiety, important in weight control with lower fat intake. Pregnant and nursing dogs and their pups thrive better with complex carbohydrates in their diets than when fed grain-free foods. 
+
+Food preference studies find health dogs prefer a diet of 36% carbohydrate, 30% protein and 41% fat. Some individual dogs and breeds such as the Irish setter and Wheaten terrier can have a dietary intolerance to wheat. Wheat and soy are the most common causes of adverse food reactions in dogs and some are allergic to beef, dairy, chicken and wheat in particular.
+
+So my advice to dog owners with dogs not requiring special diets ( best available from www.Secure.balanceit.com) to make sure, as per my home-prepared recipe posted on my website www.drfoxonehealth.com, to be sure that some complex carbohydrates are included in their daily meals.
+
+Thanks to Drs. A. Rankovic, J. L. Adolphe and A. Verbrugghe for their article’ Role of carbohydrates in the health of dogs’. _Journal of the American Veterinary Medical Association_, 255: 546-554, 2019. 
+
 Beneficial supplements for companion animals include Brewer’s yeast, fish or flax seed oil, organic butter from grass-fed cows, and chondriotin, glucosamine, probiotics and prebiotics (like inulin). Some pet food manufacturers are touting these on their ingredient lists, thus indirectly acknowledging that supplements are of value and are not just hype or some consumer fad. They are key ingredients in prescription diets for various pet health problems.
 
 Consumers are becoming more health conscious as the obesity, diabetes and other diet-related health problems reach epidemic proportions while government efforts to address these and related issues of food quality and safety issues intensify. But these efforts will continue to founder so long as government panders to the corporate interests of the transnational food and drug industrial complex. The parallels between what people are feeding their pets and eating themselves and the health-related problems they share as a consequence are striking indeed. I find it just as absurd for veterinarians to be selling high carbohydrate and by-product filled pet foods to the caregivers of carnivorous companion animals as it is for health authorities to permit the sale of high fructose, ‘fortified’ junk breakfast cereals, snacks and beverages for children to consume and then rationalize putting them on Ritalin and other psychotropic drugs to correct diet-related cognitive, emotional and behavioral impairments.
