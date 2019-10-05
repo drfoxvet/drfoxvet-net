@@ -17,18 +17,16 @@ Pinch of salt\
 2 T butter\
 2 T unflavored gelatin
 
-1 egg, whole\
+3 eggs, whole\
 1 T. cider vinegar\
 1 T. chopped canned clams in juice\
-1 t. nutritional yeast*\
-1 t. dried kelp*\
+1 t. nutritional yeast\
+_1 t. dried kelp_\
 1T.  calcium lactate/citrate/ or carbonate supplement, or oyster shell, or 3 Tums tablets.
 
-Combine all above ingredients. Add water to cover all ingredients, simmer and stir, and add more water as needed until cooked and thickened.  Stew should be thickened enough to be molded into medium-sized or muffin-size patties (add a little oat meal, bran, or mashed potato to thicken if needed). Also add an egg or cup of cottage cheese. Immediately after cooking and cooling, de-bone and discard bones (cats should not be given cooked bones to eat since they can splinter and cause internal damage). This stew can be served as: 1/2 cup full for a cat with the rest of his/her rations. Freeze the rest of the stew as patties, or in muffin trays, and thaw out as needed. Serve one patty to a cat about three times per week with regular rations. 
+Combine all above ingredients. Add water to cover all ingredients, simmer and stir, and add more water as needed until cooked and thickened.  Stew should be thickened enough to be molded into medium-sized or muffin-size patties (add a little oat meal, bran, or mashed potato to thicken if needed). Also add 3 eggs or 1cup of cottage cheese immediately after cooking. After cooling, de-bone and discard bones (cats should not be given cooked bones to eat since they can splinter and cause internal damage). This stew can be served as: 1/2 cup full for a cat with the rest of his/her rations. Freeze the rest of the stew as patties, or in muffin trays, and thaw out as needed. Serve one patty to a cat about three times per week with regular rations. Alternatively, use this recipe as the main food, and feed one heaped tablespoon 4-6 times daily, weighing your cat at the start and then every 3-4 weeks to determine optimal weight and feed more or less accordingly.
 
-For variation, substitute 1 pound lightly cooked and mixed equal parts of ground or chopped pieces of calf heart, kidney and liver. (NOTE: some cats are allergic to
-
-fish, corn and also to beef and dairy products).
+For variation, substitute 1 pound lightly cooked and mixed equal parts of ground or chopped pieces of calf heart, kidney and liver. (NOTE: some cats are allergic to fish, corn and also to beef and dairy products).
 
 \* These items are available in health food stores. Ideally all ingredients should be **Organically Certified**.
 
