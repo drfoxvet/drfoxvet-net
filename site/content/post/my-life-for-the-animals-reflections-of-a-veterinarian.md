@@ -6,7 +6,7 @@ tags:
   - Social Issues
   - Spiritual Issues
 ---
-I grew up during World War 11 in the industrial, cotton milling and coal mining county of Lancashire in the north of England surrounded by William Blake’s “satanic mills.” I came to respect the dignity of hard labor, the spirit of the Luddite and the virtues of frugality, self-reliance and serving the greater good in accord with the Golden Rule. I also witnessed how humans can harm the natural environment and create toxic wastelands. Animals taught me through their trust and affection to be gentle and respectful, qualities of character that were lacking in some of my peers whom I found had blown up frogs with straws at one of the local ponds where I played and studied the life in the waters, and in some adults who had thrown a sack in the pond which I opened and found a litter of drowned kittens. A year or so after these experiences I looked though the yard fence of the veterinary hospital that I passed every day on my walk home from school and saw two large trash cans abuzz with flies, brimming over with dead dogs, cats, puppies and kittens. This tragic sight was incomprehensible to my nine-year old mind but I realized that there was something seriously wrong and resolved to become a veterinarian to help save the animals. This mass mercy- killing, I learned later, was one of the dark consequences of food shortages during World War 11. 
+I grew up during World War 2 in the industrial, cotton milling and coal mining county of Lancashire in the north of England surrounded by William Blake’s “satanic mills.” I came to respect the dignity of hard labor, the spirit of the Luddite and the virtues of frugality, self-reliance and serving the greater good in accord with the Golden Rule. I also witnessed how humans can harm the natural environment and create toxic wastelands. Animals taught me through their trust and affection to be gentle and respectful, qualities of character that were lacking in some of my peers whom I found had blown up frogs with straws at one of the local ponds where I played and studied the life in the waters, and in some adults who had thrown a sack in the pond which I opened and found a litter of drowned kittens. A year or so after these experiences I looked though the yard fence of the veterinary hospital that I passed every day on my walk home from school and saw two large trash cans abuzz with flies, brimming over with dead dogs, cats, puppies and kittens. This tragic sight was incomprehensible to my nine-year old mind but I realized that there was something seriously wrong and resolved to become a veterinarian to help save the animals. This mass mercy- killing, I learned later, was one of the dark consequences of food shortages during World War 2. 
 
 My childhood engagements with animals and nature, encouraged by my parents and “seeing practice” from my early teens with the local country vet when we moved to the sheep-raising county of Derbyshire, famed for its dales and moors, provided further inspiration to become a veterinarian. Most urgent, I believed, was the need to help restore human-animal relationships which I felt were dysfunctional at best and cruelly exploitative at worst..
 
@@ -20,9 +20,9 @@ Researching the behavior and development of wolves, coyotes and other wild canid
 
 It was a welcome affirmation to receive an invitation from veterinary college Dean, Prof. Leo Bustad to give the graduation address at the School of Veterinary Medicine in Pullman Washington State University at Pullman in 1978.I also was greatly encouraged during these several years by Prof. Calvin Schwabe at the College of Veterinary Medicine at Davis, California who engaged me in giving a series of lectures there and at the University of Minnesota in the published Wesley W. Spink Lectures on Comparative Medicine, Concepts in Ethology: Animal and Human Behavior (1974).
 
-My growing affection and respect for the wolf, detailed in my book The Soul of the Wolf (1980) was contrary to the prevailing American view that sought their extermination by any and all means so I joined others in successfully securing endangered species status to protect the wolf and censor wild canid eradication methods and consequences. Of several children’s books published during this period, three were widely read on schools: The Wolf (1973), Wild Dogs Three (1977) and Animals Have Rights Too (1991). After training and certification as a massage therapist I was able to contribute to the advancement of holistic, integrative veterinary medicine writing the book on therapeutic massage for companion animals, The Healing Touch (1981),and  sequels, The Healing Touch for Cats (2004) and The Healing Touch for Dogs (2004).
+My growing affection and respect for the wolf, detailed in my book The Soul of the Wolf (1980) was contrary to the prevailing American view that sought their extermination by any and all means so I joined others in successfully securing endangered species status to protect the wolf and censor wild canid eradication methods and consequences. Of several children’s books published during this period, three were widely read in schools: The Wolf (1973), Wild Dogs Three (1977) and Animals Have Rights Too (1991). After training and certification as a massage therapist I was able to contribute to the advancement of holistic, integrative veterinary medicine writing the book on therapeutic massage for companion animals, The Healing Touch (1981),and  sequels, The Healing Touch for Cats (2004) and The Healing Touch for Dogs (2004).
 
-Two sabbatical leaves in the Indian jungle studying the Dhole or Asiatic wild dog gave me a deeper immersion in ecology, conservation and the politics of extinction, as per my book The Whistling Hunters: Field Studies of the Asiatic Wild Dog Cuon alpinus (1984). I was radicalized by the times---the Vietnam War, the War on Wildlife, especially against wolves and other predators across the U.S., and by the ignored realities of climate change associated with a non-sustainable fossil fuel based economy compounded by petrochemicals, overpopulation and overconsumption.  I was also concerned about the family farm crisis, the proliferation of factory farms and puppy mills which I investigated along with laboratory animal care and zoo facilities. So I left academia to be the Director of The Institute for the Study of Animal Problems,(ISAP), a division of the Humane Society of the United States, (HSUS), a non-profit organization in Washington DC, seeking a broader realm to implement more effective ways to improve the health and well-being of animals. For some years we published the International Journal for the Study of Animal Problems (http://animalstudiesrepository.org/v3_ijsap) and Advances in Animal Welfare Science which helped pave the way for animal welfare science research and bioethics. My book Returning to Eden: Animal Rights & Human Responsibilities (1980) helped set the agenda for all involved in various arenas of animal use and potential abuse. ISAP helped establish animal welfare as a scientific discipline and relevant field of research. It was eventually replaced by the Center for Respect of Life and Environment (CRLE) which I also directed while concurrently serving as HSUS’s Vice President for Farmed Animals & Bioethics. CRLE served as a catalyst to bring various religious and spiritual traditions to address animal and environmental concerns through various conferences, symposia and monographs, many of my writings being later incorporated in the book The Boundless Circle: Caring for Creatures & Creation (1996).
+Two sabbatical leaves in the Indian jungle studying the Dhole or Asiatic wild dog gave me a deeper immersion in ecology, conservation and the politics of extinction, as per my book The Whistling Hunters: Field Studies of the Asiatic Wild Dog Cuon alpinus (1984). I was radicalized by the times---the Vietnam War, the War on Wildlife, especially against wolves and other predators across the U.S., and by the ignored realities of climate change associated with a non-sustainable fossil fuel based economy compounded by petrochemicals, overpopulation and over-consumption.  I was also concerned about the family farm crisis, the proliferation of factory farms and puppy mills which I investigated along with laboratory animal care and zoo facilities. So I left academia to be the Director of The Institute for the Study of Animal Problems, (ISAP), a division of the Humane Society of the United States, (HSUS), a non-profit organization in Washington DC, seeking a broader realm to implement more effective ways to improve the health and well-being of animals. For some years we published the International Journal for the Study of Animal Problems (http://animalstudiesrepository.org/v3_ijsap) and Advances in Animal Welfare Science which helped pave the way for animal welfare science research and bioethics. My book Returning to Eden: Animal Rights & Human Responsibilities (1980) helped set the agenda for all involved in various arenas of animal use and potential abuse. ISAP helped establish animal welfare as a scientific discipline and relevant field of research. It was eventually replaced by the Center for Respect of Life and Environment (CRLE) which I also directed while concurrently serving as HSUS’s Vice President for Farmed Animals & Bioethics. CRLE served as a catalyst to bring various religious and spiritual traditions to address animal and environmental concerns through various conferences, symposia and monographs, many of my writings being later incorporated in the book The Boundless Circle: Caring for Creatures & Creation (1996).
 
 According to the website Activist Facts (https://www.activistfacts.com/person/3365-michael-w-fox/) “Former HSUS CEO John Hoyt said the Center was created “to let Dr. Fox direct some of his views in a channel that was an arm’s length removed from the HSUS. What are those controversial views about which Hoyt was so concerned? Fox holds the radical view that humans and animals have the same moral standing. --- In his book The Inhumane Society, Fox’s opines: “The life of an ant and that of my child should be granted equal consideration.”
 
@@ -38,13 +38,13 @@ My critique of mis-applied science and technology adding to the social ills of h
 
 Around that time as I was walking across the campus to present a lecture to the students at one mid-western veterinary college when I was intercepted by an embarrassed professor who told me apologetically that my lecture had been cancelled and that security would be called if I did not vacate the premises immediately. Just before another lecture to the student body on factory farming and animal rights at the University of Rochester, MN, the graduate student organizer informed me that the powers that be had instructed the university book store and the main one in the town not to carry any of my books!
 
-So it was no surprise to me that one of the Board members of The Humane Society of the U.S, for whom I was serving as scientific director, one Robert Marshak, DVM, Dean of the University of Pennsylvania School of Veterinary Medicine, sought at that time to have me fired from the Society because I was becoming a “dangerous cult figure” according to the CEO of the Society, John Hoyt. Hoyt kept me on after I was called to the University of Pennsylvania campus to defend my concerns with an oral presentation and a written report about the welfare, health and rights of “factory” farmed animals before a panel of various department heads involved in the livestock and poultry industries, accompanied by John Hoyt and The HSUS’s attorney (who opposed the concept of animal rights).
+So it was no surprise to me that one of the Board members of The Humane Society of the U.S, for whom I was serving as scientific director, one Robert Marshak, DVM, Dean of the University of Pennsylvania School of Veterinary Medicine, sought at that time to have me fired from the Society because I was becoming a “dangerous cult figure” according to the CEO of the Society, John Hoyt. He kept me on after I was called to the University of Pennsylvania campus to defend my concerns with an oral presentation and a written report about the welfare, health and rights of “factory” farmed animals before a panel of various department heads involved in the livestock and poultry industries, accompanied by John Hoyt and The HSUS’s attorney (who opposed the concept of animal rights).
 
 My report was subsequently given the German Felix-Wankel international award for research into animal welfare and published as a book in 1984, Farm Animals: Husbandry, Behavior and Veterinary Care, not long after Dean Marshak had resigned from The HSUS Board of Directors.
 
 One memorable occasion was after my testimony before a Senate sub-committee to secure legislation prohibiting raising calves for veal in narrow crates, when animal science professor Stanley Curtis, who became Dean of the Dept. of Animal Science at the University of Pennsylvania, was asked by the committee chairman if he believed that veal calves need to turn around. The professor replied saying that “More research was needed before we could be really sure if they really need to.”
 
-I was not too surprised by the lack of evident responsiveness by this University of   Pennsylvania veterinary panel when I raised the issue of animals’ social and emotional needs because earlier, at the inaugural meeting of the Institute for Laboratory Animal Resources Committee on Laboratory Animal Ethology, which I chaired at the National Academy of Sciences in Washington DC, I had my first encounter with this mind-set. Veterinarian Bernard Trum, Director of the U.S. government’s New England Regional Primate Center. He actually scoffed and shook his head in dismissal as a non-issue when I raised the question concerning the emotional needs of primates confined in laboratory small cages.. In 1986 the State University of New York Press published my scientific treatise Laboratory Animal Husbandry: Ethology, Welfare and Experimental Variables, to legitimize my concerns, documenting how animals’ stress and emotional distress were uncontrolled variables when not considered as influencing experimental results and data interpretation.
+I was not too surprised by the lack of evident responsiveness by this University of   Pennsylvania veterinary panel when I raised the issue of animals’ social and emotional needs because earlier, at the inaugural meeting of the Institute for Laboratory Animal Resources Committee on Laboratory Animal Ethology, which I chaired at a meeting at the National Academy of Sciences in Washington DC, I had my first encounter with this mind-set expressed by veterinarian Dr. Bernard Trum, Director of the U.S. government’s New England Regional Primate Center. He actually scoffed and shook his head in dismissal as a non-issue when I raised the question concerning the emotional needs of primates confined in small cages. In 1986 the State University of New York Press published my scientific treatise Laboratory Animal Husbandry: Ethology, Welfare and Experimental Variables, to legitimize my concerns, documenting how animals’ stress and emotional distress were uncontrolled variables when not considered as influencing experimental results and data interpretation.
 
 It was evident to me that the denial of animal sentience, of their rights and inherent value by those involved in their exploitation, was a necessary distancing to avoid the censorship of conscience and of public censure and accountability. It paralleled those who exploit the natural environment as a mere resource with total disregard for the rights and intrinsic ecological value of indigenous plant and animal species and of sustainable, traditional native communities and cultures.
 
@@ -60,7 +60,7 @@ I was demoted and virtually silenced by the CEO and CFO of The HSUS, Paul Irwin,
 
 I subsequently published the book Not Fit for a Dog: The Truth About Manufactured Cat & Dog Food, (2009) co-authored with two other veterinarians to further document these pet food health concerns.
 
-##  SOLUTIONS AND RESOLUTIONS
+## SOLUTIONS AND RESOLUTIONS
 
 Now some twenty years later I see the business world and aligned industries seeking to change their public image to appear more animal-and environmentally friendly. This is ultimately enlightened self-interest because when we harm the Earth we harm ourselves and when we demean animals we do no less to our own humanity as I detailed Bringing Life to Ethics: Global Bioethics for a Humane Society (2001).
 
@@ -76,11 +76,11 @@ As Dr. Schweitzer advised, the scope of ethical concern should not be limited to
 
 I am especially appreciative to have had the opportunity to communicate with millions of people through my syndicated newspaper column Animal Doctor over the past 40-plus years, and in the process learn much from them about their animal issues and concerns. I am also grateful for the encouragement and inspiration of many people in the various fields in which I engaged, notably Prof Tony Palmer, Cambridge School of Veterinary Medicine, England; Drs. John Paul Scott & John L. Fuller, Jackson Laboratory, Bar Harbor, ME; Prof. Barry Commoner, Washington University, St Louis MO; Leo Bustad, Dean of the College of Veterinary Medicine, Pullman WA; Prof. Calvin Schwabe, UC Davis CA College of Veterinary Medicine; Prof. Konrad Lorenz: Prof. Van Rensselaer Potter, University of Wisconsin, Madison WI;  and Fr. Thomas Berry, advocate of Earth/Creation-centered ethics.
 
-\*The author, an Honor Roll member of the American Veterinary Medical Association, writes the internationally syndicated newspaper column Animal Doctor. His website is www.drfoxvet.net  and latest books are Healing Animals & the Vision of One Health (2011) Animals & Nature First,(2011) on CreatSpace Books/Amazon.com
+\*The author, an Honor Roll member of the American Veterinary Medical Association, writes the internationally syndicated newspaper column Animal Doctor. His website is www.drfoxonehealth.com  and latest books are Healing Animals & the Vision of One Health (2011) Animals & Nature First,(2011) on CreatSpace Books/Amazon.com
 
 ## BOOKS BY DR. MICHAEL W. FOX
 
-  (Research papers and other writings between1962-1999 by Fox are in the Special Collections Department, Iowa State University. Reference: Michael W. Fox Papers, MS 452)
+  (Research papers and other writings between 1962-1999 by Fox are in the Special Collections Department, Iowa State University. Reference: Michael W. Fox Papers, MS 452)
 
 HEALING ANIMALS & THE VISION of ONE HEALTH. CreatSpace publ/Amazon.com 2011
 
@@ -104,9 +104,9 @@ THE SOUL OF THE WOLF (reprint edition 1992) Lyons & Burford, New York (now ebook
 
 UNDERSTANDING YOUR DOG (revised edition 1992) St. Martin's Press, New York ( now ebook with DogWise publications)
 
-BEHAVIOR OF WOLVES, DOGS, AND RELATED CANIDS (reprint edition 1984 (now ebook with DogWise publications).
+BEHAVIOR OF WOLVES, DOGS, AND RELATED CANIDS   Harper & Row, New York 1971. (reprint edition  (now ebook with DogWise publications).
 
-THE DOG: ITS DOMESTICATION AND BEHAVIOR (reprint edition 1987) (now ebook with DogWise publications).
+THE DOG: ITS DOMESTICATION AND BEHAVIOR  Garland Press New York, 1978. (now ebook with DogWise publications).
 
 THE WILD CANIDS (reprint edition 1983) (now ebook with DogWise publications).
 
@@ -124,17 +124,17 @@ THE WHISTLING HUNTERS  State University of New York Press, Albany, New York  198
 
 <hr>
 
-##  Books out of print but available on www.amazon.com
+## Books out of print but available on www.amazon.com
 
 AGRICIDE: THE HIDDEN FARM AND FOOD CRISIS THAT AFFECTS US ALL (revised edition 1996) R.E. Krieger Publishing Co., Malabar, Florida
 
-LOVE IS A HAPPY CAT   Newmarket Press, New York 198
+LOVE IS A HAPPY CAT   Newmarket Press, New York 1982
 
 UNDERSTANDING YOUR CAT (revised edition 1992) St. Martin's Press, New York
 
 YOU CAN SAVE THE ANIMALS (1991) St. Martin's Press, New York
 
-SUPERDOG (1990) Howell Books, New York
+SUPERDOG (1990) Howell Books, New York 1990
 
 INHUMANE SOCIETY: THE AMERICAN WAY OF EXPLOITING ANIMALS (1990) St Martin's Press, NY
 
@@ -160,7 +160,7 @@ INTEGRATIVE DEVELOPMENT OF BRAIN AND BEHAVIOR IN THE DOG (1971)University of Chi
 
 CANINE PEDIATRICS (1966) Charles C. Thomas Publishing, Springfield, Illinois
 
-##  Editor of:
+## Editor of:
 
 ADVANCES IN ANIMAL WELFARE SCIENCE (annual series 1984-1987) Martinus  Nijhoff in Holland, and The Humane Society of the United States, Washington, DC
 
@@ -170,7 +170,7 @@ READINGS IN ETHOLOGY AND COMPARATIVE PSYCHOLOGY (1973) Brooks/Cole, California
 
 ABNORMAL BEHAVIOR IN ANIMALS (1968) Saunders, Philadelphia
 
-##  Children's Books:
+## Children's Books:
 
 ANIMALS HAVE RIGHTS TOO (1991) Crossroads/Continuum, New York
 
