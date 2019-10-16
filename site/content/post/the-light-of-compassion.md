@@ -62,4 +62,4 @@ I would appreciate responses from readers after viewing the two images posted be
 
 July 26, 1985 Nara Park, Japan, Ven. K.C. Ayang Rinpoche blessing the deer
 
-Vision on Iona in St Oran&#8217;s Chapel, July 1958
+Vision on the Isle of Iona in St Oran;s Chapel, July 1958
