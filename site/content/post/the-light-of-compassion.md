@@ -60,6 +60,10 @@ These kinds of phenomena, and the visionary experiences described over the ages 
 
 I would appreciate responses from readers after viewing the two images posted below (email me at <mailto:animaldocfox@gmail.com>). I feel that these metaphysical/mystical dimensions are significant in these difficult times of escalating religious and political conflict, ecological desecration and suffering, not as an escape but as an affirmation that we are part of one stupendous whole and that there is a deeper, spiritual dimension to all our lives which we must not abandon and become extinct by losing our humanity, or succumb to chauvinism and materialism, and instead evolve spiritually and ethically as a more empathic and enlightened species.
 
-July 26, 1985 Nara Park, Japan, Ven. K.C. Ayang Rinpoche blessing the deer
+![](/img/buddhist-rainbow-11.jpg)
 
-Vision on the Isle of Iona in St Oran;s Chapel, July 1958
+_July 26, 1985 Nara Park, Japan, Ven. K.C. Ayang Rinpoche blessing the deer_
+
+![](/img/subud-1114151-1-.jpg)
+
+_Vision on the Isle of Iona in St Oran's Chapel, July 1958_
