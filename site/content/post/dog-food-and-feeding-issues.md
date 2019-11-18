@@ -59,6 +59,20 @@ Food preference studies find health dogs prefer a diet of 36% carbohydrate, 30% 
 So my advice to dog owners with dogs not requiring special diets ( best available from www.Secure.balanceit.com) to make sure, as per my home-prepared recipe posted on my website www.drfoxonehealth.com, to be sure that some complex carbohydrates are included in their daily meals.
 
 Thanks to Drs. A. Rankovic, J. L. Adolphe and A. Verbrugghe for their article’ Role of carbohydrates in the health of dogs’. _Journal of the American Veterinary Medical Association_, 255: 546-554, 2019. 
+To calculate carbohydrates in a pet food, you can utilize the required information in the Guaranteed Analysis listed on a pet food label. As example, a GA might list:
+Protein: 20% minimum
+Fat: 7% minimum
+Fiber: 4% maximum
+Moisture: 8% maximum
+
+Some pet food labels will also list Ash. If they do not, estimate Ash at 6%.
+
+To estimate carbohydrates, subtract all of the above EXCEPT Fiber (Fiber is a carbohydrate) from the total of 100%. Such as...
+20% + 7% + 8% + 6% = 41%. 100% - 41% = 59% carbohydrates.
+This is only an estimate, but the standard method to calculate carbs in a pet food. Here is a post from friend Rodney Habib on this: https://www.planetpaws.ca/2015/07/05/how-to-calculate-how-many-carbs-are-in-a-bag-of-pet-food/
+---From Susan Thixton ( www.truthaboutpetfood.com)..
+
+
 
 Beneficial supplements for companion animals include Brewer’s yeast, fish or flax seed oil, organic butter from grass-fed cows, and chondroitin, glucosamine and MSM, probiotics and prebiotics (like inulin). Some pet food manufacturers are touting these on their ingredient lists, thus indirectly acknowledging that supplements are of value and are not just hype or some consumer fad. They are key ingredients in prescription diets for various pet health problems.
 FERMENTED FOODS GOOD FOR OUR DOGS---AND US
