@@ -112,3 +112,10 @@ The core vaccinations against canine distemper virus, canine adenovirus and cani
 In sum, these core vaccinations need not be given annually. Other vaccinations (non-core) may be called for depending on the region, outbreaks of infections and associated exposure risks.
 
 \*See Michael J. Day, Small animal vaccination: a practical guide for vets in the UK. _The Veterinary Record, In Practice_, 39: 110-118 2017.
+CANINE DISTEMPER VACCINATION AT AN ACUPUNCTURE POINT BENEFICIAL
+Results of this study demonstrated that acupoint vaccination at GV-14 in dogs given CDV vaccination resulted in a significantly elevated humoral immune response to the CDV vaccine when compared to control dogs that did not receive acupoint vaccination. Thus, acupoint vaccination has the potential to enhance the immune response to this immunological challenge. 
+Reference: Perdrizet JA, Shiau DS, Xie H. The serological response in dogs inoculated with canine distemper virus vaccine at the acupuncture point governing vessel-14: A randomized  controlled trial. Vaccine. 2019;37(13):1889–1896. 
+
+
+ 
+
