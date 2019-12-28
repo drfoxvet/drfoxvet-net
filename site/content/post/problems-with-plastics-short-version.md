@@ -2,9 +2,7 @@
 title: 'Problems With Plastics: Short version'
 date: 2019-12-11T21:52:59.487Z
 tags:
-  - Published in AHVMA JOURNAL
-  - Winter
-  - Vol.57. p 19-21
+  - ''
 ---
 
 Article published in the AHVMA JOURNAL, Vol. 57, Winter 2019. P 19-21
