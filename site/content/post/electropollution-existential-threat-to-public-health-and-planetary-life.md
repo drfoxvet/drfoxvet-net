@@ -1,5 +1,5 @@
 ---
-title: 'Electropollution: Existential Threat to Public health and Planetary Life?'
+title: 'Electropollution: Existential Threat to Public Health and Planetary Life?'
 date: 2019-12-29T16:31:22.358Z
 tags:
   - ENVIRONMENT
