@@ -9,6 +9,16 @@ tags:
 
 _\---…Mircea Eliade, Patterns in Comparative Religions._
 
+\    _FOREWORD_
+
+_CHEMICAL POLLUTANTS THAT HARM US AND OUR ANIMAL COMPANIONS_
+
+_Per-and polyfluoroalkyl substances (PFAS) have been manufactured since the 1940s by DuPont, 3M and other countries around the world to make thousands of products stain-heat and water-resistant. They have been linked to high cholesterol, ulcerative colitis, various cancers, thyroid disease and other health problems in the human population since they contaminate our environment, food and water. The non-profit Environmental Working Group (EWG). calls these “forever chemicals” because they do not break down in nature and they accumulate in our bodies. According to a study by the EWG and Northeastern University’s Social Science Environmental Health Research Institute more than 100 million Americans in 1,400 communities have been exposed to PFAS-tainted drinking water._
+
+_Along with flame-retardant PBDE (Polybrominated diphenyl ether) especially in furniture upholstery and carpets, PFAS have been found at high levels in cats suffering from hyperthyroid disease, an all too common affliction of older cats. Indeed, our animal companions serve as bio-sentinels of human exposure to such chemicals The impacts on aquatic and terrestrial wildlife are probably very considerable._
+
+_The U.S. House of Representatives passed a sweeping bill Jan. 10th 2020 to address this national pollution health crisis because the government’s Environmental Protection Agency failed to meet a February 2019 deadline to come up with an action plan to address this issue. According to Star Tribune reporter Jim Spencer ( Star Tribune, Jan 11th 2020) the White House indicates Trump would veto the bill over” litigation risk” and  “unwarranted” cost concerns if it were to be passed in the Senate._
+
 The municipal water and public health crisis of tap water contamination with lead in Flint, Michigan was a wake- up call and underscores the 2017 report from the Natural Resources Defense Council that U.S. residents have a one-in-four chance that their tap water is either unsafe to drink or has not been properly monitored for contaminants. (See https://www.nrdc.org/sites/default/files/whats-in-your-water-flint-beyond-report.pdf)
 
 It is difficult to find pure, potable water almost anywhere on the planet, and that shortage is exacerbated because of chemical contamination. This contamination results from pesticides, heavy metals like lead and mercury, copper from pipes, arsenic compounds, radioactivity in some regions, excessive amounts of nitrates and phosphates, potentially harmful bacteria and other microorganisms, even pharmaceutical products excreted by humans and other animals given various drugs, and also industrial pollutants especially dioxins and PCBs. Pollution of the air can result in contaminated rain, which can pollute lakes, crops, the water we drink and the food we eat.
