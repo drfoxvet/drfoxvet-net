@@ -98,9 +98,11 @@ These concerns raise the question of the safety for animals wearing radio collar
 
 Electronic shock and vibration-generating collars have been associated with cancer in dogs by several owners using such devices in association with electric “Invisible Fences” and to stop their dogs from barking. But further research would be helpful in confirming such associations as documented in the Canine Journal (  https://www.caninejournal.com/community/do-shock-collars-cause-cancer/ Remote electronic training collars have been documented to have adverse welfare consequences to dogs and such stress could play a contributory role in some dogs developing cancer ( See Jonathan J. Cooper, Nina Cracknell, Jessica Hardiman, Hannah Wright, Daniel Mills. The Welfare Consequences and Efficacy of Training Pet Dogs with Remote Electronic Training Collars in Comparison to Reward Based Training. PLoS ONE, 2014; 9 (9): e102722 DOI: [10.1371/journal.pone.0102722](http://dx.doi.org/10.1371/journal.pone.0102722)).See also Steiss, J.E., Schaffer, C., Ahmed, H.A., Voith, V.L., 2007, Elevation of plasma cortisone levels and behaviour in dogs wearing bark control collars. Applied Animal Behaviour Science 106: 96-106
 
+![](/img/invisible-fence.jpg)
+
 So- called invisible, wireless, electric fences widely used to contain dogs on private property have been anecdotally associated with fear/anxiety syndromes, seizures, lymphoma and other cancers in dogs having frequent exposure to such non-ionizing radiation. More research is called for to determine the veracity of such concerns and in other species where such systems of containment are used. (Electric pulse training aids: more evidence needed, says CAWCVeterinary Record Vol 171, 257. 2012. http://dx.doi. org/10.1136/vr.e6093). 
 
-The first veterinarian to highlight problems in animals to my knowledge, was Dr. Allen Schoen,  ( www.drschoen.com/2011/09/01/).Not surprisingly he is one of the leaders in veterinary acupuncture and holistic, integrative veterinary practice. He was alerted by the article by Josh Hart (http://stopsmartmeters.org/2011/08/31/and-what-of-the-animals/) about a woman and her dogs, all of whom had adverse reactions after a Smart water meter was installed in her home. 
+The first veterinarian to highlight problems in animals to my knowledge, was Dr. Allen Schoen,  ( www.drschoen.com/2011/09/01/). Not surprisingly he is one of the leaders in veterinary acupuncture and holistic, integrative veterinary practice. He was alerted by the article by Josh Hart (http://stopsmartmeters.org/2011/08/31/and-what-of-the-animals/) about a woman and her dogs, all of whom had adverse reactions after a Smart water meter was installed in her home. 
 
 To find out how many cell phone towers and wireless antennae there are within a 2 mile radius of where you live, go to www.antennaesearch.com and you may be in for a big surprise.
 
@@ -311,7 +313,7 @@ Also see: http://www.bemri.org/publications/cat_view/2-publications/5-biological
 
 Dairy cattle have become a significant indicator species of some of the adverse consequences of exposure to various electromagnetic fields, the following references from  Cows: a big model for EMF research, somewhere between Vet-Journals and “Nature” by: Maren Fedrowitz: Sep 05, 2014 Department of Pharmacology, Toxicology, and Pharmacy University of Veterinary Medicine Hannover, Germany. ( published by The Bioelectromagnetics Society)
 
-##  References:
+## References:
 
 **Magneto-reception in cows and other mammals:**
 
