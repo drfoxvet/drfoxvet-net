@@ -88,6 +88,40 @@ With the consequences of anthropogenic climate change challenging future generat
 
 The author is grateful for the help of Dr. Nancy Van Dover DVM, OMD, Lic Acup. and Rudy Edalati in the execution of this review.
 
+**EMF AND NIR PROTECTION**
+
+From a holistic veterinarian colleague who is electrosensitive:
+
+https://takebackyourpower.net/wp-content/uploads/2019/12/7-Essential-Ways-to-Make-Your-Home-Safe.pdf.  The addendum is great too!
+
+ I’ve read these suggestions on the link above…good, better, best solutions to reduce radiation in daily life that Josh has sent.  There are a few things I’d add and written about below….after you read the above link, these will make sense.  (The attachment are some of my own that I haven’t updated for a while.  The internet over powerline method works well but may not be good for very sensitive people because it creates some dirty electricity in house wiring.)  
+
+ I use direct ethernet cords from my modem to my computer, no router in the house at all ($10 for 50’ cord).  My cords are not shielded and are fine for me.  If you still need to use a router for a short time before you get hardwire converted, you can get a Signal Tamer from lessemf.com ($35) to put it in when using it.  It also helps keep radiation w/in small apartments and offices so there isn’t extra spilling over into everyone’s spaces.  It will reduce the radiation about 90% and the area it services will be smaller.  If you already have a “smart” tv, cover it’s black box w/ several layers of aluminum foil.
+
+ Only use ear buds that have air in them, not all wire (that will act as an antenna for the radiation to travel to your brain)
+
+https://www.amazon.com/EMF-Relief-Radiation-Headset-Microphone/dp/B00BY882R0/ref=sr_1_300?hvadid=78134098644714&hvbmt=bb&hvdev=c&hvqmt=b&keywords=emf+books&qid=1565216119&s=gateway&sr=8-300
+
+Watch video to change settings and reduce the radiation your phone puts out. Never put it next to your body when turned ON (the fine print on your phone will tell you the same), esp when you first answer it. https://www.brighteon.com/6044665631001  it’s best not to use a phone in a vehicle, the metal captures and amplifies the radiation.
+
+ You can use speaker phone w/ the Safe Sleeve cover ($50) closed (as far from your body as possible) to reduce the large amount of radiation from your cell phone but earbuds are also available.  Airtubes are better than the ones w/ wires because wires still transmit some EMF/RFs to your brain.  By using a Safe Sleeve or Defender Shield you not only reduce your own radiation exposure but also help reduce the electrosmog pollution which is now so high in all public places, I and other EMS people, cannot safely go into them w/o severe symptoms developing.  Defender Shield is another proven cell phone shield that works.  Both will allow radiation in and out because otherwise the phone wouldn’t work but it will cut down on it while close to you and others while you have the phone turned on.  Today I just measured a phone that was supposedly on airplane mode and it was still irradiating a lot.  Not sure why.  Make sure your laptop is also on airplane mode!
+
+ For pregnant women Belly Armor (online) is a good option to protect the fetus.  It will not completely block all radiation so if I was pregnant I would never use a cell phone, tablet or laptop anywhere close to my abdomen.  ADHD, autism,etc have been associated w/ exposure in the womb and early childhood.  Dr. Devra Davis’s Baby Safe Project w/ Yale U. is a good resource.
+
+ Meters:  I have a Safe and Sound Pro…has the numbers, very accurate, reads only radiofrequencies RF’s (cell phones, Bluetooth, wifi, cell towers, baby monitors, microwave ovens, etc).  Well worth the extra compared to the S&S Classic.  A Cornet 88T+ would be my 2nd choice, it will also read electro and magnetic fields (EMF’s), pretty accurate for the RF’s.  
+
+ There is another meter to use to read DE (dirty electricity), I got the Greenwave one because it has a bigger range. These plug into your outlets.   It is not recommended to put in Stetzer filters in your outlets unless you have a dirty electricity problem, so measure first and also have a meter to be able to measure magnetic fields afterwards too.  Because if your house, like mine and many others, has wiring errors, these filters will increase the magnetic fields along that part of the wiring which are as bad or worse than the dirty electricity for health.    If you share a transformer w/ houses that have solar panels then they will be increasing dirty electricity into your house too unfortunately.  All inverters (DC/AC) do this.  Whole house filters may be the best solution.  They cost about $1500.  Again measure first to see if it’s a big problem.  DE has caused cancer, cardiovascular disease, depression, etc.  A friend of mine developed polycythemia vera, a blood cancer, from it…. also EMS Disabled now. 
+
+ An important thing to remember if you are mitigating/shielding w/ paint, fabric/window film, etc you don’t want to use wireless radiation w/in the area because it will also capture and amplify the radiation w/in it.  Like a Faraday cage, or a car.  Shielding is best done w/ the help of an expert, at least w/ the use of an accurate meter.
+
+ Many don’t know that their symptoms are coming from wireless radiation.  If you are sensitive to chemicals, esp chemical fragrances, then you most likely are sensitive to EMF/RFs too.  Those most susceptible are children, elderly, the infirm and people w/ medical devices in their bodies…these can be turned off or affected by the microwave radiation.  Most medical practitioners don’t know about this toxin or it’s symptoms.
+
+Acupuncture needles act as antenna for the microwave toxin so should not be performed in wireless radiation fields.
+
+ Thank you for taking the time to learn about this toxin that has become ubiquitous and allowed to be used at unsafe levels.  We must educate and protect ourselves until the government decides to listen to the science and protect public and environmental health.  
+
+
+
 ## POSTCRIPT CONCERNING COMPANION ANIMALS AND RADIO COLLARS
 
 Users of cell phones, tablets and lap-top computers are advised to keep such devices away from various body parts. Such warnings are predicated by The CDC stating; “We don’t know for sure if RF radiation from cell phones can cause health problems years later. The International Agency for Research on Cancer (IARC) has classified RF radiation as a “possible human carcinogen.” [https://www.cdc.gov/nceh/radiation/cell_phones._faq.html](https://www.cdc.gov/nceh/radiation/cell_phones._faq.html)
