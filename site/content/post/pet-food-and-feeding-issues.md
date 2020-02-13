@@ -2,7 +2,7 @@
 title: Pet Food and Feeding Issues
 date: 2020-02-13T15:51:59.076Z
 tags:
-  - Cats
+  - Dogs
 ---
 The advice of Hippocrates, whom some regard as the founder of Western medicine, was that we should make our food our medicine. This also holds true for what people are feeding to their dogs and cats. I am not referring to the special therapeutic ‘prescription’ diets which are problematic enough, but to the widely marketed manufactured pet foods from multinational corporations whose products we see advertised nightly on TV.  
 
