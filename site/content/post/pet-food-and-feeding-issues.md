@@ -1,9 +1,13 @@
 ---
 title: Pet Food and Feeding Issues
-date: 2020-02-13T15:51:59.076Z
-tags:
-  - cats
+date: 2020-02-13T16:22:00.000Z
 ---
+                                          
+                   PET FOOD AND FEEDING ISSUES: SOY DOGS AND CORN CATS
+                                                  MYTH AND REALITY
+                                                   By Dr. Michael W. Fox*
+
+
 The advice of Hippocrates, whom some regard as the founder of Western medicine, was that we should make our food our medicine. This also holds true for what people are feeding to their dogs and cats. I am not referring to the special therapeutic ‘prescription’ diets which are problematic enough, but to the widely marketed manufactured pet foods from multinational corporations whose products we see advertised nightly on TV.  
 
 There are several myths and truths about what we feed our dogs and cats which I want to share because there are many health problems that could be prevented since the best and first medicine is good nutrition. We will look at these myths first, and then each will be dispelled in turn for pet’s sake, and for the sake of companion animal caregivers who want to avoid the harmful and costly veterinary consequences of feeding their dogs and cats the equivalent of junk and virtual convenience foods that are not fit for a dog and especially for a cat. Corn, for example, has no place in a cat’s biologically appropriate diet, and soy is no substitute for quality protein for dogs.
@@ -11,9 +15,13 @@ There are several myths and truths about what we feed our dogs and cats which I 
 One long-standing myth was that manufactured dog and cat food was good for all dogs and cats, and that you just give more of the same the larger the animal may be. The industry dispelled this myth several years ago, coming out with new ‘designer’ diets especially tailored for breeds of different ages, sizes and activity levels. But there are other myths perpetuated by the industry and by ignorance that should not enjoy such a long life as the aforementioned.
 
 1. The first myth to be dispelled is that dogs and cats should not be fed human food, because dog food is made for dogs, and cat food for cats. Food is food, but what is often put into manufactured pet foods is neither fit for human consumption nor nutritionally complete as a ‘whole’ food. More details on this pivotal issue will be given shortly. 
+
 2. The old myth that one kind of  food is good for all, long promoted by pet food manufacturers, has been replaced by three new ones. One is that modern pet foods are scientifically formulated and ‘balanced,’ and therefore provide complete nutrition for health maintenance. 
+
 3. Close on the tail of this myth is that dogs and cats should never be fed table-scraps/left-overs from the dinner table because that would upset the balance of their specially formulated diets. 
+
 4. Another myth promoted for obvious reasons by many pet food manufacturers is that dogs and cats should be fed the same kind and brand of manufactured pet food day in and day out because varying what they are fed will cause digestive and other health problems, and anyway these animals are not like us and do not enjoy or particularly need variety. 
+
 5. Yet another myth is that dogs and cats, just like humans, really don’t need to take vitamin, mineral and other supplements because modern foods are nutritionally fortified with supplements and additives.  
 
 Before dispelling the above myths, I want to stress that there are some good quality manufactured pet foods on the market, including some with organically certified ingredients, and ranging from raw and freeze-dried to canned and dry. Unfortunately, along with all the junk breakfast cereals, processed and convenience foods, snacks and sodas taking up shelf-space for people, they are given little space in most grocery stores that continue to sell big brand, TV advertised, over-priced, and all too often inferior quality  pet foods. Specialty pet stores and health food stores provide better choices, and for a list of some dog and cat foods that I have researched and endorse, check my website www.drfoxvet.net
@@ -37,117 +45,74 @@ Far too many manufactured pet foods are nutritionally deficient either because t
  The raw dog food movement is a reaction to this, the acronym ‘BARF’ diet meaning a biologically appropriate, raw food diet, not simply bones, which can harm dogs, and raw foods. Lightly cooking most ingredients for some dogs and cats is advisable, however, and the risk of Salmonella and other bacterial contamination of meats calls for careful handling and preparation.
 
 2. Scientifically formulated dog and cat foods are not necessarily biologically appropriate, the science of pet food nutrition being limited in its mandate by corporate interests to maximize profits from lowest cost ingredients, and to minimize risks. This is a far cry from veterinary nutrition, advances in which were stalled for many years by the pet food industry’s assurances to veterinarians that their products were ‘science-based’, and by their continuing influence both financially and educationally on veterinary students around the world.  
+
 3. I advocate giving suitable table scraps as treats (no cooked bones or high- fat scraps) to dogs and cats after they have had their regular food, or mixing no more than 10 percent with their regular food. If they become picky eaters it may be time to stop feeding table scraps, or give a better quality pet food. Many dogs and cats are constantly hungry and can become obese because they are never nutritionally satisfied by their regular ‘junk’ pet food. Dogs enjoy sharing what we have been eating, and I see this as part of the pack ritual when we share our lives with them. Such food-sharing is also enjoyed by cats since it is an integral aspect of parent care-giving to weaned kittens.
+
 4. Dogs and cats enjoy variety, and in nature most carnivores and omnivores enjoy a varied diet. I advocate feeding pets different animal proteins like lamb, turkey, fish, beef, on a 3 or 7 day rotation. This can help both identify and avoid food-hypersensitivities/allergies, and is one way to reduce the odds of nutrient deficiencies and imbalances feeding just one kind of manufactured pet food. Sticking to one or two good brand with several different kinds or varieties, as per the selection on my website, may be wise. Animals should always be transitioned gradually over several days onto a new diet to avoid possible adverse reactions or rejection, by adding a little more of the new food mixed in with less and less of the old. Giving probiotics during this transition can be beneficial.
+
 5. Supplements are called for especially if all ingredients are not organically certified, because the soils of conventional agriculture are nutrient deficient, and almost toxic with synthetic agrichemical fertilizers and pesticides which also contaminate crops. Produce from poultry and livestock fed these crops and their byproducts can also be nutritionally deficient and contaminated with agrichemicals. 
 
 These problems are compounded by the fact that most of the corn, soy and sugar beet derived ingredients in processed human foods and pet foods have been genetically engineered or modified (GM). (For a review and links documenting the health and environmental risks of GM crops and foods, visit www.drfoxonehealth.com). 
 
 COMPLEX CARBOHYDRATES IN PET FOODS
-
 The recent trend of pet food manufacturers to market “grain free” cat and dog food has been a contributing factor in some animals developing heart disease (dilated cardiomyopathy). But the various kinds of fiber in the complex carbohydrates of whole grains (and buckwheat) can help prevent obesity and other health problems in both dogs and people. Such grains have no place in cat foods, so often having corn and rice as major ingredients, but some fiber in cat foods can be beneficial.
-
 High calorie, meat and fat diets and treats for dogs play a major role in the companion animal obesity health crisis. In 2018, an estimated 60% of cats and 56% of dogs in the United States were overweight or obese. ( See https://petobesityprevention.org/).
-
  Genetic factors, owner’s life-styles, eating habits and activity levels of both the animals and their care-givers also play a role in this health crisis. Such diets are also a major factor in dogs and cats developing pancreatitis with secondary diabetes in some dogs. High carbohydrate diets are in large part responsible for obesity, diabetes and other health problems in cats and for pancreatic enzyme insufficiency in some dogs, especially German shepherds.  
-
 Complex carbohydrates in grains and seeds, (ideally organic, minimally processed such as brown rice, barley, oats, quinoa, amaranth), include fibers that are beneficial for gut bacteria, and starches that break down into energy-providing glucose or is stored in muscle as an energy reserve  of glycogen or is converted into fat. Complex carbohydrates slow and facilitate digestion, make for regular bowel movements, firm stools and satiety, important in weight control with lower fat intake. Pregnant and nursing dogs and their pups thrive better with complex carbohydrates in their diets than when fed grain-free foods. 
-
 Food preference studies find health dogs prefer a diet of 36% carbohydrate, 30% protein and 41% fat. Some individual dogs and breeds such as the Irish setter and Wheaten terrier can have a dietary intolerance to wheat. Wheat and soy are the most common causes of adverse food reactions in dogs and some are allergic to beef, dairy, chicken and wheat in particular.
-
 So my advice to dog owners with dogs not requiring special diets ( best available from www.Secure.balanceit.com) to make sure, as per my home-prepared recipe posted on my website www.drfoxonehealth.com, to be sure that some complex carbohydrates are included in their daily meals.
-
 Thanks to Drs. A. Rankovic, J. L. Adolphe and A. Verbrugghe for their article’ Role of carbohydrates in the health of dogs’. Journal of the American Veterinary Medical Association, 255: 546-554, 2019. 
-
 To calculate carbohydrates in a
-
  pet food, you can utilize the required information in the Guaranteed Analysis listed on a pet food label. As example, a GA might list:
-
 Protein: 20% minimum
-
 Fat: 7% minimum
-
 Fiber: 4% maximum
-
 Moisture: 8% maximum
 
 Some pet food labels will also list Ash. If they do not, estimate Ash at 6%.
 
 To estimate carbohydrates, subtract all of the above EXCEPT Fiber (Fiber is a carbohydrate) from the total of 100%. Such as...
-
 20% + 7% + 8% + 6% = 41%. 100% - 41% = 59% carbohydrates.
-
 This is only an estimate, but the standard method to calculate carbs in a pet food. Here is a post from friend Rodney Habib on this: https://www.planetpaws.ca/2015/07/05/how-to-calculate-how-many-carbs-are-in-a-bag-of-pet-food/
-
-\---From Susan Thixton ( www.truthaboutpetfood.com)..
+---From Susan Thixton ( www.truthaboutpetfood.com)..
 
 SOY CONCERNS
-
 Some vegetable ingredients such as soy in dog foods, especially in dry kibble, are pro-inflammatory, inflammation leading to a variety of health issues in humans as well.
-
 Soy consumption, adhesion molecules, and pro-inflammatory ...
-
 https://www.ncbi.nlm.nih.gov › pubmed
-
 by KM Beavers - ‎2009 - ‎Cited by 49 - ‎Related articles
-
 Nutr Rev. 2009 Apr;67(4):213-21. doi: 10.1111/j.1753-4887.2009.00191.x. Soy consumption, adhesion molecules, and pro-inflammatory cytokines: a brief ...
-
  The grain-free pet food craze has caused another set of health problems in dogs ( dilated cardiomyopathy) which in my opinion is attributable to high levels of legumes/pulses like pea flour and potatoes that are high in lectins that can block uptake of essential nutrients like cardioprotective taurine.
-
 Beneficial supplements for companion animals include Brewer’s yeast, fish oil, or flax seed oil (only good for dogs), organic butter from grass-fed cows, and chondroitin, glucosamine, probiotics and prebiotics (like inulin). Some pet food manufacturers are touting these on their ingredient lists, thus indirectly acknowledging that supplements are of value and are not just hype or some consumer fad. They are key ingredients in prescription diets for various pet health problems. 
 
 FERMENTED FOODS GOOD FOR OUR DOGS---AND US
-
 There is a growing consensus among holistic veterinarians and other health care professionals and health-conscious consumers that fermented foods are extremely beneficial in helping maintain a healthy gut flora, the intestinal microbiome. Cooked and highly processed human and dog and cat foods are lacking in the beneficial enzymes vitamins, minerals and probiotics which fermented foods provide. These include miso, tempeh, probiotic yoghurt, kefir and sauerkraut. For details visit animalwellnessmagazine.com/fermentedfoods-good-dogs/ for more details. 
-
 Consumers are becoming more health conscious as the obesity, diabetes and other diet-related health problems reach epidemic proportions while government efforts to address these and related issues of food quality and safety issues intensify. But these efforts will continue to founder so long as government panders to the corporate interests of the transnational food and drug industrial complex. The parallels between what people are feeding their pets and eating themselves and the health-related problems they share as a consequence are striking indeed. I find it just as absurd for veterinarians to be selling high carbohydrate and by-product filled pet foods to the caregivers of carnivorous companion animals as it is for health authorities to permit the sale of high fructose, ‘fortified’ junk breakfast cereals, snacks and beverages for children to consume and then rationalize putting them on Ritalin and other psychotropic drugs to correct diet-related cognitive, emotional and behavioral impairments.
 
 PET FOODS AND CLIMATE CHANGE: AN ISSUE TO CONSIDER
-
 According to one evaluation of the environmental costs of feeding cats and dogs in the U.S., author G.S. Okin concludes: Dog and cat animal product consumption is responsible for release of up to 64 ± 16 million tons CO2-equivalent methane and nitrous oxide, two powerful greenhouse gasses (GHGs). Americans are the largest pet owners in the world, but the tradition of pet ownership in the US has considerable costs. As pet ownership increases in some developing countries, especially China, and trends continue in pet food toward higher content and quality of meat, globally, pet ownership will compound the environmental impacts of human dietary choices. Reducing the rate of dog and cat ownership, perhaps in favor of other pets that offer similar health and emotional benefits would considerably reduce these impacts. Simultaneous industry-wide efforts to reduce overfeeding, reduce waste, and find alternative sources of protein will also reduce these impacts.) Okin GS (2017) Environmental impacts of food consumption by dogs and cats. PLoS ONE 12(8): e0181301. https://doi.org/10.1371/journal.pone.0181301).
-
 Dr. Okin’s suggestion to reduce the rate of cat and dog ownership will offend many. My suggestion that cat owners, who should know that their cats are carnivores, should become vegetarian or vegan to offset their companion animals; contribution to climate change and other adverse environmental impacts, along with the suffering of factory farmed animals. Dog owners, who should at least consider becoming vegetarian, should know that dogs are more omnivorous but need some good quality proteins and fats derived from animals in their daily food. This can follow the human vegetarian inclusion of ideally Organically Certified dairy products and eggs from free-range, uncaged hens.in their diets. Some farmed animals, including aquaculture fish, will always be available for consumption by people and their animal companions because they do play a vital role in recycling crop byproducts and in environmental health and biodiversity in ecological farming systems. Some visionaries are already including nutritious proteins and fats in pet foods derived from various sources including insect larvae, algae, various fungi and fermented foods. These are becoming part of the human diet as we evolve into a less harmful planetary species, phasing out cruel, wasteful and polluting animal factory farms that are also bad for our health, the economy and for the well-being of future generations.
-
-\    To download the white paper "Sustainable Pet Food for the Future: Koji or Aspergillus oryzae makes protein affordable, nutritious and eco-friendly" written by Dr.Ward, Wild Earth chief science officer Ron Shigeta Ph.D., et al,  visit https://www.wildearthpets.com/koji-white-paper.
-
-\    Another stellar initiative is by the Dutch company Yora that has invested over $23 million in 2019 to develop and market a highly nutritious dog food (kibble) with the main ingredient being insect larvae (grubs). Oats, potato and plants including kale, seaweed and chicory for their anti-inflammatory properties and to help improve digestion. 
-
-\    While some cringed at the news of a popular candy bar manufactured and consumed in Russia that contains cow and pig blood (developed decades ago to provide iron for children during a time of food-shortages), we should not be aversive to providing our animal companions with insect, algal and fungus-enriched foods that are within the scope of being biologically appropriate for them and for ourselves.
-
+     To download the white paper "Sustainable Pet Food for the Future: Koji or Aspergillus oryzae makes protein affordable, nutritious and eco-friendly" written by Dr.Ward, Wild Earth chief science officer Ron Shigeta Ph.D., et al,  visit https://www.wildearthpets.com/koji-white-paper.
+     Another stellar initiative is by the Dutch company Yora that has invested over $23 million in 2019 to develop and market a highly nutritious dog food (kibble) with the main ingredient being insect larvae (grubs). Oats, potato and plants including kale, seaweed and chicory for their anti-inflammatory properties and to help improve digestion. 
+     While some cringed at the news of a popular candy bar manufactured and consumed in Russia that contains cow and pig blood (developed decades ago to provide iron for children during a time of food-shortages), we should not be aversive to providing our animal companions with insect, algal and fungus-enriched foods that are within the scope of being biologically appropriate for them and for ourselves.
    Humans ate grubs long before they drank cow’s milk, ate beef and veal, and various insects are still part of the diet of indigenous peoples. As our numbers increase it is self-evident that the planet cannot sustain public demand for meat, the consumption of which is increasing with increased affluence around the world.
-
-\    I am encouraged that the British Veterinary Association is now promoting the benefits of sustainable consumption and the concept of “less and better” of farmed animal produce for animal welfare, One Health and sustainability reasons. “Eating “less and better” sees some citizens reduce consumption of animal derived products, whilst maintaining proportional spend on high animal health and welfare products.” (BVA Position on UK sustainable animal agriculture - British Veterinary ...https://www.bva.co.uk/...policies/Policies/Farm_animals/BVA-Position-on-UK-Sustain.)..
-
-\    Food science can be applied with an ecological and environmental orientation to develop and market alternative, cultured, fermented and cultivated foods that are nutritious, highly sustainable, safe and affordable. This, includes recycling organic fruit and vegetable wastes with worms and insect larvae into “grub” ---the old generic name for food---  a harvest that is no less nutritious and infinitely more humane and sustainable than our current sources of animal proteins and fats from land and sea. Growing organically, more nut and seed trees as a rich source of oils, fats and protein, some of which could also be incorporated in pet foods, would also be good business. But if we do not save the bees and other vital pollinators and the microorganisms in healthy, bioremediated soils we will face the consequences of the loss of biodiversity with extinction of cultures, communities and economies around the world.
-
+    I am encouraged that the British Veterinary Association is now promoting the benefits of sustainable consumption and the concept of “less and better” of farmed animal produce for animal welfare, One Health and sustainability reasons. “Eating “less and better” sees some citizens reduce consumption of animal derived products, whilst maintaining proportional spend on high animal health and welfare products.” (BVA Position on UK sustainable animal agriculture - British Veterinary ...https://www.bva.co.uk/...policies/Policies/Farm_animals/BVA-Position-on-UK-Sustain.)..
+     Food science can be applied with an ecological and environmental orientation to develop and market alternative, cultured, fermented and cultivated foods that are nutritious, highly sustainable, safe and affordable. This, includes recycling organic fruit and vegetable wastes with worms and insect larvae into “grub” ---the old generic name for food---  a harvest that is no less nutritious and infinitely more humane and sustainable than our current sources of animal proteins and fats from land and sea. Growing organically, more nut and seed trees as a rich source of oils, fats and protein, some of which could also be incorporated in pet foods, would also be good business. But if we do not save the bees and other vital pollinators and the microorganisms in healthy, bioremediated soils we will face the consequences of the loss of biodiversity with extinction of cultures, communities and economies around the world.
 Making informed choices in the market place for oneself and family, including companion animals, is now part of the healthful eating revolution that recognizes good nutrition is the best medicine. My slogan for this long overdue revolution is “Kitchen Anarchists Unite”! The politics of the plate and the power of the fork are now being utilized by civil society to restore dietary sensibility and the ethics of eating with conscience. This will ultimately change agricultural practices for the better, and will do more to help insure food quality and safety for ourselves and for our companion animals than more government regulations and oversight at tax payer’s expense.
 
 To find documented evidence of the nutritional superiority of organically certified foods and the prenatal (epigenetic) risks of poor nutrition and agrichemical contaminants, visit www.organic-center.org
 
 PET FOOD INDUSTRY PROTECTING THE STATUS QUO?
-
 The November 2019 Veterinary Record Supplement  “Obesity: Understanding a tackling a weighty problem”, published by the British Veterinary Association in association with MARS Petcare is a helpful guide for veterinarians dealing with this all too common problem in companion animals. As a former, frequent seminar presenter on cat care and behavior in Europe sponsored by Mars Inc, I feel duty-bound to respond to what I see as a serious omission in this publication.
-
-\[Mars, Incorporated is an American global manufacturer of confectionery, pet food, and other food products and a provider of animal care services, with US$33 billion in annual sales in 2015. It was ranked as the 6th largest privately held company in the United States. Mars Petcare U.S. markets popular dog and cat foods such as IAMS, Pedigree, Royal Canin, Sheba, Eukanuba, Cesar, Whiskas, Greenies, and Nutro and Temptations and Dreamies cat treats. VCA Animal Hospitals, the trade name of veterinary company VCA, Inc. (previously known as Veterinary Centers of America), an operator of more than 750 animal hospitals in the US and Canada, and owner of more than 50 veterinary diagnostic laboratories are now owned by Mars Inc; also Banfield Pet Hospitals, AniCura, BluePearl Emergency & Specialty clinics, Sound: Veterinary Imagining, Wisdom Panel: Pet DNA and Health test, Linnaeus Group: Veterinary Services and Village Vet: Veterinary chain (managed by the Linnaeus Group) and The Waltham Petcare Science Institute. Mars Petcare is a growing segment of approximately 50 brands, made up of about 85,000 Associates in more than 55 countries who serve the nutrition and health needs of dogs, cats, horses, fish and birds.]
-
+[Mars, Incorporated is an American global manufacturer of confectionery, pet food, and other food products and a provider of animal care services, with US$33 billion in annual sales in 2015. It was ranked as the 6th largest privately held company in the United States. Mars Petcare U.S. markets popular dog and cat foods such as IAMS, Pedigree, Royal Canin, Sheba, Eukanuba, Cesar, Whiskas, Greenies, and Nutro and Temptations and Dreamies cat treats. VCA Animal Hospitals, the trade name of veterinary company VCA, Inc. (previously known as Veterinary Centers of America), an operator of more than 750 animal hospitals in the US and Canada, and owner of more than 50 veterinary diagnostic laboratories are now owned by Mars Inc; also Banfield Pet Hospitals, AniCura, BluePearl Emergency & Specialty clinics, Sound: Veterinary Imagining, Wisdom Panel: Pet DNA and Health test, Linnaeus Group: Veterinary Services and Village Vet: Veterinary chain (managed by the Linnaeus Group) and The Waltham Petcare Science Institute. Mars Petcare is a growing segment of approximately 50 brands, made up of about 85,000 Associates in more than 55 countries who serve the nutrition and health needs of dogs, cats, horses, fish and birds.]
  Given the evident global reach of this family-owned business and incorporation of veterinary practices to market highly profitable basic and special prescription diets to deal with various companion animal health issues, obesity in particular, there is an evident conflict of interest or serious omission in the joint BVA Mars Petcare Veterinary Record Supplement publication.
-
  Specifically, there is no reference to preventing obesity with proper nutrition in kittens and puppies after weaning, and of their mothers during gestation to help prevent obesity, genetics (as with Labrador retrievers) not withstanding; and owners mistaking attention-seeking and play-soliciting behavior for food-solicitation especially in cats. Many manufactured pet foods from various manufacturers have high glycemic index carbohydrates in particular, pro-inflammatory soy bean protein (and thus biologically inappropriate for obligate-carnivore cats) denatured animal protein from heat-processed animal byproducts and are deficient in essential fatty acids. 
-
 Such widely advertised and marketed obesogenic and diabetogenic diets can trigger the metabolic syndrome, animals becoming constantly hungry and food-soliciting as insulin resistance sets in. Hyperinsulinemia leads to abnormal fat deposition, obesity and constant hunger in cats fed dry kibble; so called “carbaholic” cats (1). With a weak thirst drive, cats fed kibble are more prone to develop cystitis and crystal formation with subsequent urinary stone formation. High fat content in some diets can lead to pancreatitis and fatty liver disease, Companion animals are needlessly suffering (2).  Rather than prevent such diet-related conditions from developing in the first place, costly, profitable and often highly unpalatable prescription diets are marketed, the ethics of which should be questioned by all concerned when prevention through proper nutrition after weaning is not addressed.  
-
-1. Bessant, C, feeding the indoor cat for health and longevity.  Innovative Veterinary Care, 10: 17-20, Winter, 2019/2020
-2. 2. Fox, MW, Hodgkins, E and Smart, ME.  Not Fit for a Dog: The Truth About Manufactured Cat and Dog Food. Fresno CA Quill Driver Books, 2009.
+1.	Bessant, C, feeding the indoor cat for health and longevity.  Innovative Veterinary Care, 10: 17-20, Winter, 2019/2020
+2.	2. Fox, MW, Hodgkins, E and Smart, ME.  Not Fit for a Dog: The Truth About Manufactured Cat and Dog Food. Fresno CA Quill Driver Books, 2009.
 
 DOG FOOD KIBBLE PROBLEMS
-
 Dogs’ diets can influence inflammatory and immune system functions
-
 R.C.Anderson et al Effect of kibble and raw meat diets on peripheral blood mononuclear cell gene expression profile in dogs. The Veterinary Journal Volume 234, April 2018, Pages 7-10
-
 https://doi.org/10.1016/j.tvjl.2018.01.005Get rights and content
-
 Canine peripheral blood mononuclear cell (PBMC) gene expression was altered by changing diets.Differences in PBMC gene profiles were observed between dogs fed raw red meat and kibble diets .Microarray analysis of PBMCs provides a non-invasive approach to study the effects of diet on gene expression in dogs.In this study, PBMC gene expression was determined in dogs fed kibble or raw red meat diets for 9 weeks to test the hypothesis that diet influences canine immune cell gene expression profiles. The two diets were associated with differences in PBMC gene expression profiles, which corresponded with changes in plasma IgA concentrations. Dogs fed 100 per cent raw red meat developed a decrease in cytokine gene and receptor expression compared to those fed a kibble diet. Dogs on kibble had increased expression of immune-related genes and plasma immunoglobulin concentrations (IgA). The practical implications of this research is that it is highly ill -advised to feed dogs a diet of only regular dog kibble which continues to be a widely condoned practice both in the U.S. and abroad.
-
-****
