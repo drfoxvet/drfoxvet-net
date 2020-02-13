@@ -1,0 +1,399 @@
+---
+title: PET FOOD AND FEEDING ISSUES
+date: 2020-02-13T15:51:59.076Z
+tags:
+  - Dogs   Cats
+---
+The advice of Hippocrates, whom some regard as the founder of Western medicine, was that we should make our food our medicine. This also holds true for what people are feeding to their dogs and cats. I am not referring to the special therapeutic ‘prescription’ diets which are problematic enough, but to the widely marketed manufactured pet foods from multinational corporations whose products we see advertised nightly on TV.  
+
+There are several myths and truths about what we feed our dogs and cats which I want to share because there are many health problems that could be prevented since the best and first medicine is good nutrition. We will look at these myths first, and then each will be dispelled in turn for pet’s sake, and for the sake of companion animal caregivers who want to avoid the harmful and costly veterinary consequences of feeding their dogs and cats the equivalent of junk and virtual convenience foods that are not fit for a dog and especially for a cat. Corn, for example, has no place in a cat’s biologically appropriate diet, and soy is no substitute for quality protein for dogs.
+
+One long-standing myth was that manufactured dog and cat food was good for all dogs and cats, and that you just give more of the same the larger the animal may be. The industry dispelled this myth several years ago, coming out with new ‘designer’ diets especially tailored for breeds of different ages, sizes and activity levels. But there are other myths perpetuated by the industry and by ignorance that should not enjoy such a long life as the aforementioned.
+
+1. The first myth to be dispelled is that dogs and cats should not be fed human food, because dog food is made for dogs, and cat food for cats. Food is food, but what is often put into manufactured pet foods is neither fit for human consumption nor nutritionally complete as a ‘whole’ food. More details on this pivotal issue will be given shortly. 
+2. The old myth that one kind of  food is good for all, long promoted by pet food manufacturers, has been replaced by three new ones. One is that modern pet foods are scientifically formulated and ‘balanced,’ and therefore provide complete nutrition for health maintenance. 
+3. Close on the tail of this myth is that dogs and cats should never be fed table-scraps/left-overs from the dinner table because that would upset the balance of their specially formulated diets. 
+4. Another myth promoted for obvious reasons by many pet food manufacturers is that dogs and cats should be fed the same kind and brand of manufactured pet food day in and day out because varying what they are fed will cause digestive and other health problems, and anyway these animals are not like us and do not enjoy or particularly need variety. 
+5. Yet another myth is that dogs and cats, just like humans, really don’t need to take vitamin, mineral and other supplements because modern foods are nutritionally fortified with supplements and additives.  
+
+Before dispelling the above myths, I want to stress that there are some good quality manufactured pet foods on the market, including some with organically certified ingredients, and ranging from raw and freeze-dried to canned and dry. Unfortunately, along with all the junk breakfast cereals, processed and convenience foods, snacks and sodas taking up shelf-space for people, they are given little space in most grocery stores that continue to sell big brand, TV advertised, over-priced, and all too often inferior quality  pet foods. Specialty pet stores and health food stores provide better choices, and for a list of some dog and cat foods that I have researched and endorse, check my website www.drfoxvet.net
+
+Now some pet owners will say that they never had any problems with their animals being fed the same food every day. While it is true that animals can adapt to some degree to deficient diets, it is also true that many health problems that could have been prevented, and which are soon cured with a proper diet and certain supplements, are not actually recognized as being diet-related. These include chronic skin, anal gland, eye and ear inflammation, periodontal disease, arthritis, obesity, diabetes, allergies, and serious conditions involving internal organs such as the kidney and urinary tract, heart, liver and pancreas, as well as the digestive and related immune and endocrine systems. 
+
+ These and other diet-related health problems, rooted in part in the consequences of raising pups and kittens and feeding their mothers on manufactured ‘junk’ pet foods, have spawned the lucrative business of prescription and medicated veterinary diets. These have been critically examined in my book, co-authored with two respected veterinarians, nutrition Prof. Marion E. Smart, and former director of technical affairs with Hills Pet Nutrition, Dr. Elizabeth Hodgkins, entitled Not Fit for a Dog: The Truth About Manufactured Dog and Cat Food. 
+
+Good nutrition from puppy- and kitten-hood on, and indeed for their pregnant and nursing mothers, is a far better health insurance than lots of vaccinations and frequent treatments for internal and external parasites which may not actually exist, but do thrive on poorly nourished animals. 
+
+It should not be forgotten that many of the basic ingredients in these special prescription diets are the same as in far too many regular pet foods, the manufacture of which, using human food and beverage industry byproducts, some being frequently imported from third world countries, has become a multi-billion dollar recycling enterprise. The competitive nature of the multinational pet food industry has lead to a down-spiral of lowest cost ingredient formulations to maximize profit margins, tests being conducted on caged dogs and cats to evaluate digestibility. But every manufactured batch of products is never fully tested since this would be cost-prohibitive. Subsequent recalls are therefore frequent due to ingredient and supplement deficiencies, excesses, and bacterial and fungal contamination from poor quality ingredients. The massive pet food recall of 2007, where several brands of pet food were contaminated with melamine, imported as fake soy protein from China, resulted in the deaths of thousands of dogs and cats from kidney failure.
+
+Knowing the risks of feeding big-brand pet foods, many dog and cat owners are choosing instead some of the brands listed on my website which contain whole food ingredients from reliable sources, often organically certified, minimally processed, and frequently manufactured in the smaller company’s own facilities where contamination is better monitored and controlled. Alternatively, people are preparing their own pet food and treats, as per the recipes on my website, or purchase from a local home- cooked pet food provider. Veterinarians are also providing their clients with basic recipes and utilizing the services of  the veterinarian-run company Balance IT®  (Customer Support, DVM Consulting, Inc. 606 Peña Drive, Suite 700 Davis, CA 95618 Tel: 1-888-346-6362). They offer special diet recipes for animals needing to go on prescribed diets for various health problems as an alternative to the costly and often unpalatable manufactured prescription diets.  The website www.felinenutritioneducationsociety.org is an excellent free resource fodr cat caregivers.
+
+Now to dispel the above myths and see through the advertising propaganda on TV and in too many veterinary clinics promoting those manufactured pet foods which may not be fit for dogs and cats.
+
+1. Food is food, be it for humans, dogs, cats, or other species. Food and beverage industry byproducts, including beet pulp, brewer’s grains, processed corn and soy meal, poultry remains (‘byproducts’), meat and bone meal, discarded restaurant grease, and rendered proteins and fats from small processing plants are incorporated into many manufactured dog and cat foods. Pet foods labeled as containing meat meal and meat and bone meal may include dead and diseased livestock, road-kills, and can included barbiturate-loaded, euthanized horses, and dogs and cats from animal shelters. 
+
+Far too many manufactured pet foods are nutritionally deficient either because the poor quality ingredients have been variously processed to remove desired nutrient components for human consumption: Or because other nutrients are destroyed or ‘denatured’ by heat-processing and extraction methods that can leave various chemical contaminants and adulterants. Synthetic additives to correct for nutrient deficiencies, along with chemical preservatives, stabilizers and coloring agents, make for a chemical mash that at best is an analog of real food.
+
+ The raw dog food movement is a reaction to this, the acronym ‘BARF’ diet meaning a biologically appropriate, raw food diet, not simply bones, which can harm dogs, and raw foods. Lightly cooking most ingredients for some dogs and cats is advisable, however, and the risk of Salmonella and other bacterial contamination of meats calls for careful handling and preparation.
+
+2. Scientifically formulated dog and cat foods are not necessarily biologically appropriate, the science of pet food nutrition being limited in its mandate by corporate interests to maximize profits from lowest cost ingredients, and to minimize risks. This is a far cry from veterinary nutrition, advances in which were stalled for many years by the pet food industry’s assurances to veterinarians that their products were ‘science-based’, and by their continuing influence both financially and educationally on veterinary students around the world.  
+3. I advocate giving suitable table scraps as treats (no cooked bones or high- fat scraps) to dogs and cats after they have had their regular food, or mixing no more than 10 percent with their regular food. If they become picky eaters it may be time to stop feeding table scraps, or give a better quality pet food. Many dogs and cats are constantly hungry and can become obese because they are never nutritionally satisfied by their regular ‘junk’ pet food. Dogs enjoy sharing what we have been eating, and I see this as part of the pack ritual when we share our lives with them. Such food-sharing is also enjoyed by cats since it is an integral aspect of parent care-giving to weaned kittens.
+4. Dogs and cats enjoy variety, and in nature most carnivores and omnivores enjoy a varied diet. I advocate feeding pets different animal proteins like lamb, turkey, fish, beef, on a 3 or 7 day rotation. This can help both identify and avoid food-hypersensitivities/allergies, and is one way to reduce the odds of nutrient deficiencies and imbalances feeding just one kind of manufactured pet food. Sticking to one or two good brand with several different kinds or varieties, as per the selection on my website, may be wise. Animals should always be transitioned gradually over several days onto a new diet to avoid possible adverse reactions or rejection, by adding a little more of the new food mixed in with less and less of the old. Giving probiotics during this transition can be beneficial.
+5. Supplements are called for especially if all ingredients are not organically certified, because the soils of conventional agriculture are nutrient deficient, and almost toxic with synthetic agrichemical fertilizers and pesticides which also contaminate crops. Produce from poultry and livestock fed these crops and their byproducts can also be nutritionally deficient and contaminated with agrichemicals. 
+
+These problems are compounded by the fact that most of the corn, soy and sugar beet derived ingredients in processed human foods and pet foods have been genetically engineered or modified (GM). (For a review and links documenting the health and environmental risks of GM crops and foods, visit www.drfoxonehealth.com). 
+
+COMPLEX CARBOHYDRATES IN PET FOODS
+
+The recent trend of pet food manufacturers to market “grain free” cat and dog food has been a contributing factor in some animals developing heart disease (dilated cardiomyopathy). But the various kinds of fiber in the complex carbohydrates of whole grains (and buckwheat) can help prevent obesity and other health problems in both dogs and people. Such grains have no place in cat foods, so often having corn and rice as major ingredients, but some fiber in cat foods can be beneficial.
+
+High calorie, meat and fat diets and treats for dogs play a major role in the companion animal obesity health crisis. In 2018, an estimated 60% of cats and 56% of dogs in the United States were overweight or obese. ( See https://petobesityprevention.org/).
+
+ Genetic factors, owner’s life-styles, eating habits and activity levels of both the animals and their care-givers also play a role in this health crisis. Such diets are also a major factor in dogs and cats developing pancreatitis with secondary diabetes in some dogs. High carbohydrate diets are in large part responsible for obesity, diabetes and other health problems in cats and for pancreatic enzyme insufficiency in some dogs, especially German shepherds.  
+
+Complex carbohydrates in grains and seeds, (ideally organic, minimally processed such as brown rice, barley, oats, quinoa, amaranth), include fibers that are beneficial for gut bacteria, and starches that break down into energy-providing glucose or is stored in muscle as an energy reserve  of glycogen or is converted into fat. Complex carbohydrates slow and facilitate digestion, make for regular bowel movements, firm stools and satiety, important in weight control with lower fat intake. Pregnant and nursing dogs and their pups thrive better with complex carbohydrates in their diets than when fed grain-free foods. 
+
+Food preference studies find health dogs prefer a diet of 36% carbohydrate, 30% protein and 41% fat. Some individual dogs and breeds such as the Irish setter and Wheaten terrier can have a dietary intolerance to wheat. Wheat and soy are the most common causes of adverse food reactions in dogs and some are allergic to beef, dairy, chicken and wheat in particular.
+
+So my advice to dog owners with dogs not requiring special diets ( best available from www.Secure.balanceit.com) to make sure, as per my home-prepared recipe posted on my website www.drfoxonehealth.com, to be sure that some complex carbohydrates are included in their daily meals.
+
+Thanks to Drs. A. Rankovic, J. L. Adolphe and A. Verbrugghe for their article’ Role of carbohydrates in the health of dogs’. Journal of the American Veterinary Medical Association, 255: 546-554, 2019. 
+
+To calculate carbohydrates in a
+
+ pet food, you can utilize the required information in the Guaranteed Analysis listed on a pet food label. As example, a GA might list:
+
+Protein: 20% minimum
+
+Fat: 7% minimum
+
+Fiber: 4% maximum
+
+Moisture: 8% maximum
+
+Some pet food labels will also list Ash. If they do not, estimate Ash at 6%.
+
+To estimate carbohydrates, subtract all of the above EXCEPT Fiber (Fiber is a carbohydrate) from the total of 100%. Such as...
+
+20% + 7% + 8% + 6% = 41%. 100% - 41% = 59% carbohydrates.
+
+This is only an estimate, but the standard method to calculate carbs in a pet food. Here is a post from friend Rodney Habib on this: https://www.planetpaws.ca/2015/07/05/how-to-calculate-how-many-carbs-are-in-a-bag-of-pet-food/
+
+\---From Susan Thixton ( www.truthaboutpetfood.com)..
+
+SOY CONCERNS
+
+Some vegetable ingredients such as soy in dog foods, especially in dry kibble, are pro-inflammatory, inflammation leading to a variety of health issues in humans as well.
+
+Soy consumption, adhesion molecules, and pro-inflammatory ...
+
+https://www.ncbi.nlm.nih.gov › pubmed
+
+by KM Beavers - ‎2009 - ‎Cited by 49 - ‎Related articles
+
+Nutr Rev. 2009 Apr;67(4):213-21. doi: 10.1111/j.1753-4887.2009.00191.x. Soy consumption, adhesion molecules, and pro-inflammatory cytokines: a brief ...
+
+ The grain-free pet food craze has caused another set of health problems in dogs ( dilated cardiomyopathy) which in my opinion is attributable to high levels of legumes/pulses like pea flour and potatoes that are high in lectins that can block uptake of essential nutrients like cardioprotective taurine.
+
+Beneficial supplements for companion animals include Brewer’s yeast, fish oil, or flax seed oil (only good for dogs), organic butter from grass-fed cows, and chondroitin, glucosamine, probiotics and prebiotics (like inulin). Some pet food manufacturers are touting these on their ingredient lists, thus indirectly acknowledging that supplements are of value and are not just hype or some consumer fad. They are key ingredients in prescription diets for various pet health problems. 
+
+FERMENTED FOODS GOOD FOR OUR DOGS---AND US
+
+There is a growing consensus among holistic veterinarians and other health care professionals and health-conscious consumers that fermented foods are extremely beneficial in helping maintain a healthy gut flora, the intestinal microbiome. Cooked and highly processed human and dog and cat foods are lacking in the beneficial enzymes vitamins, minerals and probiotics which fermented foods provide. These include miso, tempeh, probiotic yoghurt, kefir and sauerkraut. For details visit animalwellnessmagazine.com/fermentedfoods-good-dogs/ for more details. 
+
+Consumers are becoming more health conscious as the obesity, diabetes and other diet-related health problems reach epidemic proportions while government efforts to address these and related issues of food quality and safety issues intensify. But these efforts will continue to founder so long as government panders to the corporate interests of the transnational food and drug industrial complex. The parallels between what people are feeding their pets and eating themselves and the health-related problems they share as a consequence are striking indeed. I find it just as absurd for veterinarians to be selling high carbohydrate and by-product filled pet foods to the caregivers of carnivorous companion animals as it is for health authorities to permit the sale of high fructose, ‘fortified’ junk breakfast cereals, snacks and beverages for children to consume and then rationalize putting them on Ritalin and other psychotropic drugs to correct diet-related cognitive, emotional and behavioral impairments.
+
+PET FOODS AND CLIMATE CHANGE: AN ISSUE TO CONSIDER
+
+According to one evaluation of the environmental costs of feeding cats and dogs in the U.S., author G.S. Okin concludes: Dog and cat animal product consumption is responsible for release of up to 64 ± 16 million tons CO2-equivalent methane and nitrous oxide, two powerful greenhouse gasses (GHGs). Americans are the largest pet owners in the world, but the tradition of pet ownership in the US has considerable costs. As pet ownership increases in some developing countries, especially China, and trends continue in pet food toward higher content and quality of meat, globally, pet ownership will compound the environmental impacts of human dietary choices. Reducing the rate of dog and cat ownership, perhaps in favor of other pets that offer similar health and emotional benefits would considerably reduce these impacts. Simultaneous industry-wide efforts to reduce overfeeding, reduce waste, and find alternative sources of protein will also reduce these impacts.) Okin GS (2017) Environmental impacts of food consumption by dogs and cats. PLoS ONE 12(8): e0181301. https://doi.org/10.1371/journal.pone.0181301).
+
+Dr. Okin’s suggestion to reduce the rate of cat and dog ownership will offend many. My suggestion that cat owners, who should know that their cats are carnivores, should become vegetarian or vegan to offset their companion animals; contribution to climate change and other adverse environmental impacts, along with the suffering of factory farmed animals. Dog owners, who should at least consider becoming vegetarian, should know that dogs are more omnivorous but need some good quality proteins and fats derived from animals in their daily food. This can follow the human vegetarian inclusion of ideally Organically Certified dairy products and eggs from free-range, uncaged hens.in their diets. Some farmed animals, including aquaculture fish, will always be available for consumption by people and their animal companions because they do play a vital role in recycling crop byproducts and in environmental health and biodiversity in ecological farming systems. Some visionaries are already including nutritious proteins and fats in pet foods derived from various sources including insect larvae, algae, various fungi and fermented foods. These are becoming part of the human diet as we evolve into a less harmful planetary species, phasing out cruel, wasteful and polluting animal factory farms that are also bad for our health, the economy and for the well-being of future generations.
+
+\    To download the white paper "Sustainable Pet Food for the Future: Koji or Aspergillus oryzae makes protein affordable, nutritious and eco-friendly" written by Dr.Ward, Wild Earth chief science officer Ron Shigeta Ph.D., et al,  visit https://www.wildearthpets.com/koji-white-paper.
+
+\    Another stellar initiative is by the Dutch company Yora that has invested over $23 million in 2019 to develop and market a highly nutritious dog food (kibble) with the main ingredient being insect larvae (grubs). Oats, potato and plants including kale, seaweed and chicory for their anti-inflammatory properties and to help improve digestion. 
+
+\    While some cringed at the news of a popular candy bar manufactured and consumed in Russia that contains cow and pig blood (developed decades ago to provide iron for children during a time of food-shortages), we should not be aversive to providing our animal companions with insect, algal and fungus-enriched foods that are within the scope of being biologically appropriate for them and for ourselves.
+
+   Humans ate grubs long before they drank cow’s milk, ate beef and veal, and various insects are still part of the diet of indigenous peoples. As our numbers increase it is self-evident that the planet cannot sustain public demand for meat, the consumption of which is increasing with increased affluence around the world.
+
+\    I am encouraged that the British Veterinary Association is now promoting the benefits of sustainable consumption and the concept of “less and better” of farmed animal produce for animal welfare, One Health and sustainability reasons. “Eating “less and better” sees some citizens reduce consumption of animal derived products, whilst maintaining proportional spend on high animal health and welfare products.” (BVA Position on UK sustainable animal agriculture - British Veterinary ...https://www.bva.co.uk/...policies/Policies/Farm_animals/BVA-Position-on-UK-Sustain.)..
+
+\    Food science can be applied with an ecological and environmental orientation to develop and market alternative, cultured, fermented and cultivated foods that are nutritious, highly sustainable, safe and affordable. This, includes recycling organic fruit and vegetable wastes with worms and insect larvae into “grub” ---the old generic name for food---  a harvest that is no less nutritious and infinitely more humane and sustainable than our current sources of animal proteins and fats from land and sea. Growing organically, more nut and seed trees as a rich source of oils, fats and protein, some of which could also be incorporated in pet foods, would also be good business. But if we do not save the bees and other vital pollinators and the microorganisms in healthy, bioremediated soils we will face the consequences of the loss of biodiversity with extinction of cultures, communities and economies around the world.
+
+Making informed choices in the market place for oneself and family, including companion animals, is now part of the healthful eating revolution that recognizes good nutrition is the best medicine. My slogan for this long overdue revolution is “Kitchen Anarchists Unite”! The politics of the plate and the power of the fork are now being utilized by civil society to restore dietary sensibility and the ethics of eating with conscience. This will ultimately change agricultural practices for the better, and will do more to help insure food quality and safety for ourselves and for our companion animals than more government regulations and oversight at tax payer’s expense.
+
+To find documented evidence of the nutritional superiority of organically certified foods and the prenatal (epigenetic) risks of poor nutrition and agrichemical contaminants, visit www.organic-center.org
+
+PET FOOD INDUSTRY PROTECTING THE STATUS QUO?
+
+The November 2019 Veterinary Record Supplement  “Obesity: Understanding a tackling a weighty problem”, published by the British Veterinary Association in association with MARS Petcare is a helpful guide for veterinarians dealing with this all too common problem in companion animals. As a former, frequent seminar presenter on cat care and behavior in Europe sponsored by Mars Inc, I feel duty-bound to respond to what I see as a serious omission in this publication.
+
+\[Mars, Incorporated is an American global manufacturer of confectionery, pet food, and other food products and a provider of animal care services, with US$33 billion in annual sales in 2015. It was ranked as the 6th largest privately held company in the United States. Mars Petcare U.S. markets popular dog and cat foods such as IAMS, Pedigree, Royal Canin, Sheba, Eukanuba, Cesar, Whiskas, Greenies, and Nutro and Temptations and Dreamies cat treats. VCA Animal Hospitals, the trade name of veterinary company VCA, Inc. (previously known as Veterinary Centers of America), an operator of more than 750 animal hospitals in the US and Canada, and owner of more than 50 veterinary diagnostic laboratories are now owned by Mars Inc; also Banfield Pet Hospitals, AniCura, BluePearl Emergency & Specialty clinics, Sound: Veterinary Imagining, Wisdom Panel: Pet DNA and Health test, Linnaeus Group: Veterinary Services and Village Vet: Veterinary chain (managed by the Linnaeus Group) and The Waltham Petcare Science Institute. Mars Petcare is a growing segment of approximately 50 brands, made up of about 85,000 Associates in more than 55 countries who serve the nutrition and health needs of dogs, cats, horses, fish and birds.]
+
+ Given the evident global reach of this family-owned business and incorporation of veterinary practices to market highly profitable basic and special prescription diets to deal with various companion animal health issues, obesity in particular, there is an evident conflict of interest or serious omission in the joint BVA Mars Petcare Veterinary Record Supplement publication.
+
+ Specifically, there is no reference to preventing obesity with proper nutrition in kittens and puppies after weaning, and of their mothers during gestation to help prevent obesity, genetics (as with Labrador retrievers) not withstanding; and owners mistaking attention-seeking and play-soliciting behavior for food-solicitation especially in cats. Many manufactured pet foods from various manufacturers have high glycemic index carbohydrates in particular, pro-inflammatory soy bean protein (and thus biologically inappropriate for obligate-carnivore cats) denatured animal protein from heat-processed animal byproducts and are deficient in essential fatty acids. 
+
+Such widely advertised and marketed obesogenic and diabetogenic diets can trigger the metabolic syndrome, animals becoming constantly hungry and food-soliciting as insulin resistance sets in. Hyperinsulinemia leads to abnormal fat deposition, obesity and constant hunger in cats fed dry kibble; so called “carbaholic” cats (1). With a weak thirst drive, cats fed kibble are more prone to develop cystitis and crystal formation with subsequent urinary stone formation. High fat content in some diets can lead to pancreatitis and fatty liver disease, Companion animals are needlessly suffering (2).  Rather than prevent such diet-related conditions from developing in the first place, costly, profitable and often highly unpalatable prescription diets are marketed, the ethics of which should be questioned by all concerned when prevention through proper nutrition after weaning is not addressed.  
+
+1. Bessant, C, feeding the indoor cat for health and longevity.  Innovative Veterinary Care, 10: 17-20, Winter, 2019/2020
+2. 2. Fox, MW, Hodgkins, E and Smart, ME.  Not Fit for a Dog: The Truth About Manufactured Cat and Dog Food. Fresno CA Quill Driver Books, 2009.
+
+DOG FOOD KIBBLE PROBLEMS
+
+Dogs’ diets can influence inflammatory and immune system functions
+
+R.C.Anderson et al Effect of kibble and raw meat diets on peripheral blood mononuclear cell gene expression profile in dogs. The Veterinary Journal Volume 234, April 2018, Pages 7-10
+
+https://doi.org/10.1016/j.tvjl.2018.01.005Get rights and content
+
+Canine peripheral blood mononuclear cell (PBMC) gene expression was altered by changing diets.Differences in PBMC gene profiles were observed between dogs fed raw red meat and kibble diets .Microarray analysis of PBMCs provides a non-invasive approach to study the effects of diet on gene expression in dogs.In this study, PBMC gene expression was determined in dogs fed kibble or raw red meat diets for 9 weeks to test the hypothesis that diet influences canine immune cell gene expression profiles. The two diets were associated with differences in PBMC gene expression profiles, which corresponded with changes in plasma IgA concentrations. Dogs fed 100 per cent raw red meat developed a decrease in cytokine gene and receptor expression compared to those fed a kibble diet. Dogs on kibble had increased expression of immune-related genes and plasma immunoglobulin concentrations (IgA). The practical implications of this research is that it is highly ill -advised to feed dogs a diet of only regular dog kibble which continues to be a widely condoned practice both in the U.S. and abroad.
+
+**Health Benefits from Good Nutrition:**
+
+**Testimonials from Cat and Dog Owners**  
+
+CATS
+
+DEAR DR. FOX: I started making cat food as you recommended and my 14-year-old cat's eyes stopped watering and her horrible coughing stopped within 48 hours!  When I was feeding her Purina Indoor Salmon & Rice, I may have been killing her.  My vet thought she probably had cat shelter herpes.
+
+Nowadays, she is running around, chasing her tail and generally acting like a fool--she's very healthy and happy.
+
+S.W., Naples, FL
+
+```
+DEAR DR. FOX: I had a cat that would throw up shortly after eating.  Through trial and error, I found he was allergic to food that had fish in it. After eliminating that from his soft food diet, he was fine.  I had to read the labels closely because, although they perhaps said 'beef' or 'turkey', fish was sometimes included.
+```
+
+P.M.S., Bedford, TX
+
+```
+DEAR DR. FOX: Our cat had a weight problem.  I began feeding her wet food that was organic only.  Because of carbs being cut out and more protein added, she ate less but was more satisfied and became more  lean.
+```
+
+N.B., Front Royal, VA
+
+DEAR DR. FOX: I have an 11-year-old male cat, Jerry, who had his first cystitis episode in 2001.  At that point, he was switched to a raw food diet and a small amount (10 pieces/day) of Wysong Uretica dry cat food (formulated for cats with cystitis).
+
+Jerry loved the raw food diet but 6 months later, he had another cystitis episode.  One holistic vet I went to suggested taking Jerry off of turkey, though my regular holistic vet thought turkey was an unlikely cause--he didn't think food allergies could cause cystitis episodes.  6 months after that, I tried a new cat litter made from corn gluten ("World's Best Cat Litter").  A week later, Jerry was blocked again and I made the connection that corn might be a culprit: Jerry loves corn and even ate some of the litter.  Then, I discovered that the Wysong Uretica dry food contained corn (it has since been reformulated, the corn removed and is now Wysong Uretic).
+
+Several months later, my normal supply of chicken raw cat food was interrupted and I had to put my two cats onto the dog version of raw food for a few weeks.  I had forgotten that turkey might be a trigger and decided to give my cats some variety by giving them the turkey raw food as well as the chicken.  That was the last time Jerry has eaten anything with turkey, as that triggered his 5th cystitis episode.  He recovered and has been fine since.  
+
+He'll be 12 years old soon and is very happy with a corn-free/turkey-free raw food diet. 
+
+One food often prescribed for cats with cystitis, Hill's Prescription Diet C/D, has corn gluten as the second ingredient in the dry food and has both corn gluten and ground corn in the wet food.  Besides the corn, the food is just garbage.  I don't understand how the company is still in business.  
+
+I would advise your readers to feed only high-quality food with no corn, no turkey and no byproducts or preservatives.  Make your own observations and don't assume your vet knows everything.
+
+R.A.P., Bridgeport, CT
+
+DEAR DR. FOX: I appreciate your advice that saved my cat, Putty, who was wasting away.
+
+He had been to the vet several times and had fecal and blood tests done.  Several solutions were prescribed, among which were Prednisone, FortiFlora, Enisyl-F paste and Hill's Science Diet W-D Feline Sensitive Stomach food.  His weight dropped from 17 to 10 pounds.
+
+None of these procedures or meds had any effect on his continued weight loss.  It was about the time I was finished with these attempts that I had the good fortune to read a column of yours that suggested the addition of several drops of fish oil containing omega 3 to the animal's food each day.  Within 6 weeks, I noticed gradual improvement; and now, 14 months later, he's back up to his normal weight of about 15 pounds.
+
+My sincere thanks.
+
+R.S., Silver City, NM
+
+DEAR DR. FOX: We'd like to add our testimony to the benefits of switching from dry food to a diet richer in proteins and fat.
+
+We have two cats: Tanner is 5 and Rocky is 1 year old.  Both had been accustomed to Science Diet dry food.  However, after reading your column and Elizabeth Hodgkins' book Your Cat (which you suggested), we were convinced to make the switch to wet foods.
+
+It took a few days to convince our cats, but they have made the switch successfully and seem much happier for it.
+
+Tanner was several pounds overweight, but lost several pounds due to the switch and is no longer lethargic. Dr. Hodgkins said: "You will be amazed at the immediate change in our cat's behavior."  We took that to be hyperbole but, to our amazement, Tanner's behavior changed within two days.  Whereas previously he just sat and watched Rocky play, he now began to initiate play.  His tolerance of the younger cat has grown significantly and the two have become even closer friends than before.
+
+L. & C.H., Washington, DC
+
+DEAR DR. FOX: I would like to thank you for steering pet owners to a home-prepared diet for their animal companions.
+
+About a year ago, my 12-year-old indoor cat, Chloe, began to throw up on a fairly regular basis.  As time went on, the problem became worse.  Eventually, she reached a point where she was throwing up 2-4 times a day.  I was constantly washing blankets, cleaning carpets and dreading coming home because I never knew what sort of cleanup job to expect.  
+
+I brought her to the vet several times and spent quite a bit of money on blood tests, X-rays and exams.  The test all came back normal.  I had been feeding her the commercial wet and dry cat foods and even tried the sensitive stomach and indoor formula foods--nothing seemed to work.
+
+Then I tried the recipe on your website and began to research and make other homemade cat foods.  I now feed her almost exclusively home-prepared food and the problem has disappeared.
+
+D.S., Columbia, MD
+
+DEAR DR. FOX: We have three cats, all 'rescues', ages 16, 8 and 4.  
+
+All three ate a primarily cheap canned food diet, supplemented with small portions of dry food mixed in.  They were fed twice a day.  During the course of two years, the oldest had to be brought to the vet for enemas.  The vet recommended adding pumpkin to his diet and that seemed to work well at first, but it appeared to be an overload of fiber and his constipation got worse.
+
+After much research, I decided to dramatically change my cats' diets.  They are now on a no-dry-food, no-grain, all-moist-and-raw-food diet.  The changes over the last three years have been remarkable.  They are all incredibly healthy, their coats are shiny and soft, and they play with each other regularly.  
+
+The older cat had occasional vomiting and 'accidents', so I added plain yogurt (about a teaspoon) to his meals a couple of times a week--he is much better in that regard now.
+
+I have all cats on a rotating list of canned foods (brands such as Wellness, Nature's Variety and Evo).  This changeup in their diets has seemed to work well at keeping their digestive systems happy and they seem to appreciate the changes in menu.  
+
+C.P., St. Paul, MN
+
+DEAR DR. FOX: My partner and I adopted a 2-year-old male gray tabby cat from our local Humane Society.  They wouldn't release him for adoption for several months as he was suffering from diarrhea of an "unknown origin".  We finally convinced them to release him to our care.  He had a good appetite and was not dehydrated but couldn’t have normal stools no matter what we tried.  
+
+First, we took him to our vet who tried a broad-spectrum de-wormer.  When that didn't work, he thought it might be irritable bowel syndrome and suggested a good quality high fiber diet.  I always read labels when buying food for my pets and my rule of thumb is if it doesn't look like something I would eat, I won't buy it.  So, we gave him 'high quality' dry and wet food.  If, after several months, there was no improvement re: his diarrhea, we would switch to other brands.
+
+Then I read a recent column of yours that referred to the raw diet website at www.felinefuture.com.  I switched him to a mix I make at home of raw ground turkey, raw ground chicken and the supplement mix and liver powder from the Feline Future website.  The very next day after feeding him this diet exclusively, he had a solid bowel movement and has continued this way every since!
+
+```
+We thought we just had a big 'mellow' cat, but he has turned into an energetic, playful boy and he seems to feel so much better.  
+```
+
+L.K., Naples, FL
+
+DEAR DR. FOX: Three years ago, I adopted two kittens from a local cat rescue shelter.  
+
+After they reached one year of age, I noticed one seemed to groom herself more than the other and she would get a swollen lip from time to time.  We thought it was maybe a reaction to spider bites because she was known to chase and try to eat spiders.  I finally took her to the vet and he said it could be allergies and I should give her Sudafed.  
+
+After some research and reading of your columns, I realized that just about every cat food on the market today contains wheat gluten.  I finally found one dry food with no wheat gluten and some wet foods that were wheat gluten-free or that ingredient was far down the list.
+
+The fat lip disappeared and I didn’t have to drug my cat to achieve this outcome.  Both cats are now very healthy with nice shiny coats.  
+
+L.S., Virginia Beach, VA
+
+DEAR DR. FOX: Your column helped solve my 16-year-old cat's throwing-up problem by suggesting wet food over dry and recommending the book Your Cat by Elizabeth Hodgkins (now on loan to my vet) which addressed the dry food problem.
+
+My cat was throwing up 3-4 times a day, listless and seemed to be failing.  He now gets wet food 3 times a day and I keep a bowl of Hill's ID laced with a capsule of fish oil available, too.  
+
+The vomiting is down to a minimum now and he is happier and friskier than he's been in years.  
+
+P.W., Palm Beach, FL
+
+\===============================================================
+
+DOGS
+
+DEAR DR. FOX: I have recently switched my 11-year-old Sheltie, Tux, from eating commercial dog food to your recommended homemade dog food recipe.  The results have been dramatic.
+
+A few months ago, Tux had a staph infection of his skin that cleared with medication but left him with no appetite for eating.  He developed a mast cell tumor in his groin area that grew to the size of an orange.  His liver numbers were off and the vet wondered if he might be a candidate for surgery, fearing the cancer had spread to his liver.  
+
+I started feeding Tux your dog food recipe and he loved it.  He would stand at the stove and bark when I was cooking it.  After 3 weeks, we re-tested his blood and everything had improved/looked great, so we proceeded with removing the tumor.  It was a major surgery but he came through it with flying colors.  He healed quickly and his skin and coat are beautiful.  It looks like we will get to enjoy him for more years to come.
+
+Thanks again for encouraging pet owners to feed their animals high quality homemade foods.  This definitely saved my dog's life.
+
+R.T., Minneapolis, MN
+
+DEAR DR. FOX: Our Border collie mix, Lilly, suddenly began throwing up bile several times a day--on walks, in the house, wherever.  Her throwing up continued after several diet changes to eliminate such food items as corn.  Of course, there were numerous consultations with her vet along the way.  He recommended Pepcid AC, but she never seemed to get better.
+
+Finally, I bit the bullet and began cooking for Lilly from Dr. Strombeck's book Home Prepared Dog and Cat Diets, which I believe I first learned of through your column.  Her coat improved immediately (she had lost her shine).  She stopped throwing up, except on rare occasions when she grabbed something from the ground outside.
+
+Lilly started on the rice and cottage cheese diet for dogs with gastrointestinal problems and she tolerated that well, so we moved on to the balanced version.  We tried adding beef and brown rice, but she began to throw up again.  Back to the rice and cottage cheese, but now with chicken and, most recently, sardines added.  We also tried adding organic baby food of sweet potatoes, but she threw up again.  We've now begun introducing some of her past treats, e.g. Mother Hubbard peanut butter bones and some of the Wellness non-sweet potato cookies and so far so good.
+
+These homemade recipes have made all the difference in the world.
+
+D.E.C., Chevy Chase, MD
+
+DEAR DR. FOX: I have a 13-year-old Pomeranian, Bear, who, for the past several years (7 at least), has suffered from dry, irritated skin and hair loss.  When I first adopted him, he had the thickest, most beautiful black coat.  This deteriorated to the point where the fur on his hindquarters and sides was almost non-existent, particularly in winter.  He was diagnosed with "seasonal alopecia".  I was told that this breed was particularly susceptible to this condition.
+
+Bear was given blood test after blood test.  He was prescribed special shampoos, skin conditioners and medications, including Thyroxine and Prednisone to treat his problems.  All the while, he was eating IVD, an expensive veterinary-prescribed low-ingredient dog food because he had experienced digestive difficulties with regular dog food.
+
+My mother reads your column often and printed out your recipe for homemade dog food.  I was very skeptical because I had assumed he had a genetic condition that couldn't be fixed by simply changing his diet.
+
+Was I wrong!  The change was almost immediate.  Bear's fur began growing back, thick and shiny, all over his body.  For the first time in years, his tail 'returned'.  I can see that he will soon again have the 'feather duster' tail he had as a young dog.  His dry, flaky, irritated skin is clear and healthy again.
+
+I cannot thank you enough for your recipe.  I feel awful that my dog had suffered all those years and that we spent so much money on vet visits and medications that did nothing to help his problem.  I promised our vet that I would give her the recipe to share, since it has been so helpful to our little dog.
+
+N.W., Rhineback, NY
+
+DEAR DR. FOX: About 5 years ago, my Golden retriever (7 years old at the time) started getting a rash in her stomach area.  
+
+I took her to our regular vet and he prescribed an antibiotic (Cephalexin).  The rash cleared for a while, but returned.  I took her back and he prescribed a higher dosage.  The results were the same.  I then took her to a different vet, but they prescribed the same thing.  Neither vet speculated on the cause of the rash.
+
+About two years ago, this dog started having frequent spells of diarrhea.  The vet treated her, but the diarrhea returned after a while.  My dog's diet at the time was a mix of dry dog food (Nutro) and canned dog food (Alpo).  I decided to eliminate the canned food from her diet and substituted either cottage cheese or yogurt and ground beef or chicken.  She hasn't had rashes or diarrhea since!
+
+It's obvious to me that the rash and diarrhea were directly related to the commercial canned dog food and this change in diet made all the difference.
+
+M.M., Corolla, NC
+
+DEAR DR. FOX:  When our 4-year-old English bulldog developed canine epilepsy, she was prescribed phenobarbital and potassium bromide to control the seizures.
+
+Once we started her on a diet of cooked ground beef mixed with Sojourner's food (all natural, human-grad dog food mix--www.Sojos.com), she stopped having seizures!  We also eliminated as much sodium chloride (aka table salt) from her diet by reading the dog treat labels carefully.
+
+C.G., St. Louis Park, MN
+
+DEAR DR. FOX: I walk a friend's Golden retriever,  Bucky, daily because she is physically unable to do so herself.  I also brush his teeth and comb him every day. 
+
+Your column has been a favorite of mine and I started making your recommended homemade, natural dietary supplement posted on your website.  I vary the kind of meat and vegetables each week.  
+
+I've now noticed that Bucky doesn't try to eat goose poop anymore (we have lots of geese and ducks around here) and he seems more docile and doesn't pull hard on his leash like he used to. 
+
+I think this homemade diet has caused these welcome changes.
+
+R.J., Stillwater, MN
+
+DEAR DR. FOX: My 11-year-old Westie has been having seizures for the past two years.  My net put her on phenobarbital, but this hasn't helped much.
+
+I read your column a few weeks ago re: food allergies, specifically gluten.  I read the label of my dog food and it was loaded with corn gluten and gluten meal.  I changed her diet to no gluten and she improved greatly--usually just one seizure a day and with less intensity.  My vet never suggested gluten as a problem.  My poor dog suffered due to ignorance--she was having seizures every hour; small seizures, but seizures nonetheless.  
+
+Since she is a small dog, I now cook her food: rice with either beef or chicken and I add a multivitamin.  She's doing just fine now.
+
+D.B., Nanjemoy, MD
+
+DEAR DR. FOX: While visiting Houston, Texas, I adopted a Chihuahua mix (Basenji?) dog from a shelter and named him Paco.  He was found wandering on the street, close to starvation and had a severe case of heartworm.  
+
+He was a frightened, nervous dog.  I brought him back to Massachusetts and worked with him diligently for a long time.  However, from the start he suffered from colitis.  He'd been under my vet's care from the beginning, but we couldn't get the colitis completely under control.  I purchased a special Science Diet food from the vet, along with pills and a liquid medicine.  Nothing worked well.  He gained some weight, but seemed uncomfortable all the time.
+
+One day, I happened upon your column and read a letter from someone who had changed their dog's diet to your special homemade diet with good results.  I printed your recipe out, went shopping and began to feed my dog your diet.
+
+It has been 9 months now and he has not had one episode of colitis!  My only problem is keeping the amount of food under control--he loves it so much.  He hated the Science Diet, both canned and dry.  
+
+He is now 16 pounds and looks wonderful.  He runs every day for over an hour, is happy and cheerful and I feel I owe it all to you.  I've made you famous with my dog-walking friends: everyone calls him "Paco the Wonder Dog" because he is now so friendly, listens to every command cheerfully and we all can see he feels great.
+
+D.C., Northampton, MA
+
+DEAR. DR. FOX: I have switched my dogs to your dog food recipe.
+
+My 6-year-old Aussie has arthritis in her knees and legs and was going lame.  My vet put her on Rimadyl, but that didn't help much.  Since I have been feeding her your recipe and stopped feeding her dog biscuits, she has dropped 14 pounds and now hardly notices her arthritis.
+
+All my dogs love this recipe and are healthy and happy.
+
+L.B., Eugene, OR
+
+DEAR DR. FOX: I have two dogs.  
+
+Holly is 15 years old and ½-Brittany/½-English Springer.  I rescued her from being chained to a doghouse when she was 1 year old and she is my best friend.  
+
+Delta is a 10-year-old Welsh Springer.  She must have a companion or she eats the furniture (she has outlived several).  Delta was carefully bred by a wonderful breeder and is very healthy.  
+
+Holly, however, has always had skin problems.  I put her on the Biologically Appropriate Raw Food Diet (BARF) at an early age, but my vet didn't approve so I eventually gave up on this.  After years of medicines and special baths (which left her with chronic ear infections and smelly, broken-out skin), I went back to bones and raw food.  
+
+I make my own dog food.  I am not doing the raw wings (like the BARF diet recommends), but I buy ground beef and turkey and mix it with vegetables I have put through the food processor.  I add yogurt, flaxseed oil, uncooked oats, garlic and olive oil.  I make it into 1-cup patties and give each dog ½ patty, twice a day. They love the food.  
+
+They get table scraps like meat and vegetables, but no bread.  I've eliminated any dog food that has gluten in it (I think Holly has a wheat allergy).  Special dog foods like Science Diet weren't helpful.
+
+Holly's skin and ears are now perfect!    
+
+M.E.C., Fort Myers, FL
+
+DEAR DR. FOX: I have a 4-year-old Lab who had constant ear infections.  My sister has a good friend who is a Lab breeder and veterinarian and she advised me to change my dog's food.
+
+I was feeding Science Diet Light (Labs always have weight problems).  The vet recommended no beef or chicken, so I switched to Nutru Natural Choice Lamb and only gave him lamb treats.  The ear infections cleared up and I had no problems for 2 years, but he gradually gained weight, so I switched to a Light version and he now has no problems with his ears and has lost weight.
+
+My regular vet said he looks good and to continue doing what I' doing.
+
+S.F.G., Milford, CT
+
+DEAR DR. FOX: I have two small Maltese/Poodle mix dogs, Sonny (14 lbs.) and Cher (8 lbs.), both 4 years old.
+
+For more than a year now, I have been feeding them your fresh food recipe and they are better than ever.  The benefits are truly worth the extra effort to make the food once a week.  I will never go back to commercial dog foods.
+
+Their faces are no longer constantly wet, the dark discharge from their eyes is much less and their fur has much better texture.  They don't have bad odors any more and are much easier to groom, as before they matted terribly and hated to be groomed.  
+
+I have also discontinued giving them once-a-month flea/tick medicine--neither I nor the groomer has seen any evidence of fleas or ticks.  
+
+B.J., Alexandria, VA
+
+DEAR DR. FOX: I rescued a Rhodesian ridgeback/Lab mix.  She is 3 ½ years old.
+
+A couple of months ago, I noticed she was limping then holding her leg off the ground.  I had just started her on a new dog food that was supposed to be the best (one of the Wellness dry foods) and it happened it happened 3 weeks into this new diet.  I took her to the vet right away, thinking she had maybe fractured her leg or something.  They did X-rays and told me that she did no have hip dysplasia or a fractured or broken bone.  
+
+They sent me to an orthopedic specialist to check for fragment ruptures.  He palpated the her knees and said, right away, that she needed TPLO (tibial plateau leveling osteotomy) surgery on both hind legs.  I mentioned the change in diet and he said it was just coincidence.  
+
+I took her home, did some research and changed her to a dehydrated raw food diet (made by Honest Kitchen) and added chicken breasts.  I also gave her the no-grain food made by Evo and added fish oil.  
+
+The change in her was nothing short of miraculous!  She was off the anti-inflammatory meds with a week.  Now, 2 months later, she is taking short jogs with me and running up and down the stairs (which she could barely do before).  She is getting stronger every day, so I've decided to not go ahead with the surgery.  The specialist checked her out and said he could hardly believe the change and that she didn't need the surgery after all.  
+
+D.D., Arlington VA
+
+\*Dr. Michael W. Fox is a graduate of the Royal Veterinary College, London, and holds doctoral degrees in medicine and ethology/animal behavior from the University of London, England. He is author of over 40 books, writes the nationally syndicated newspaper column Animal Doctor, is a member of the British Veterinary Association, American Holistic Veterinary Medical Association and Honor Roll Member of the American veterinary Medical Association.
