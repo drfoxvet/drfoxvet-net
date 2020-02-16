@@ -2,7 +2,8 @@
 title: Pet Food and Feeding Issues
 date: 2020-02-13T16:22:00.000Z
 tags:
-  - CATS
+  - Cats
+  - Dogs
 ---
                                           
                    PET FOOD AND FEEDING ISSUES: SOY DOGS AND CORN CATS
