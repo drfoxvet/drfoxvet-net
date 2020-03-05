@@ -42,6 +42,8 @@ _From_ [_https://www.cdc.gov/nceh/radiation/nonionizing_radiation.html_](https:/
 
 The Bioinitiative Report 2012 makes the claim that there are significant health risks associated with low frequency non-ionizing electromagnetic radiation\[8] ["BioInitiative Report: A Rationale for a Biologically-based Public Exposure Standard for Electromagnetic Fields (ELF and RF)"](http://www.bioinitiative.org/).
 
+Hundreds of thousands of data storage and streaming centers around the world powered by fossil fuels and the high energy demand of 5G compared to wifi wireless technology are escalating carbon emissions and have become a major contributor to the global Climate Crisis.
+
 According to Physicians for Responsible Technology (4) "A diverse array of animal life relies upon the earth’s magnetic field for navigation, breeding, feeding, migration and survival. Biologists have discovered that wireless electromagnetic radiation disturbs internal magneto-receptors used for navigation, as well as disrupting other complex cellular and biologic processes in mammals, birds, fish, insects, trees, plants, seeds and bacteria with profound impacts on the natural environment. Different species have different interactions with radiofrequency radiation (RFR) and differ in their toxic effect. These effects may not be immediately apparent with a slow decline in the health of wildlife seen over time with cumulative exposure."
 
 ## Increased Radiofrequency Radiation and The Decline of Birds, Bees and Wildlife
