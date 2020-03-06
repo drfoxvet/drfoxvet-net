@@ -1,12 +1,17 @@
 ---
-title: 'What Corona Virus is Telling Us:A Holistic Veterinary and One Health View'
+title: 'What Corona Virus is Telling Us: A Holistic Veterinary and One Health View'
 date: 2020-02-29T00:21:12.682Z
 tags:
   - Environment
 ---
              WHAT CORONA VIRUS COVID-19 IS TELLING US: 
              A HOLISTIC VETERINARY AND ONE HEALTH VIEW
-             By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
+             By Michael W. Fox, BVetMed, PhD, DSc, MRCVS
+                                                                                     
+                                        SYNOPSIS
+This emerging disease and others that are likely to become pandemics in the future, calling for ever more vaccines and medications so long as preventive medicine remains human-centered and does not fight, under the banner of One Health, wildlife poaching, trafficking, habitat encroachment and our ever-increasing human numbers and consumption of animals wild and domesticated.
+***************************************************************
+
 
 Our fear-based attitude toward viruses and bacteria is based on our not appreciating how these and other micro-organisms function and help sustain this living world. Parts of them are in our DNA and vital cellular content and without them in our guts we would die in a few days. They also can play an environmentally beneficial role in regulating population density, in optimizing ecological biodiversity and reducing dysbiosis.
 When epidemics and pandemics break out there is always some ecological component and carrier agent coupled with the lack of immunity, for various reasons, of those humans or other species who succumb to infection, Those species and individuals who do not succumb and may show no symptoms can transmit infection to others. Some are killed by the primary infective agent, die from a secondary, often bacterial infection or become easy prey for a predator. Survivors may become infertile or abort if pregnant. 
