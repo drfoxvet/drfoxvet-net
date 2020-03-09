@@ -26,7 +26,7 @@ _\- EMF pioneer and Nobel prize nominee Dr. Robert Becker._
 
 _\- Samuel Milham, MD, MPH, author of Dirty Electricity._
 
-For a well documented report on the human effects of electropollution see Michael Kagelidis’ review article Electrohypersensitivity: What you need to know about the allergy of the 21st century. http://www.home-biology.com/electromagnetic-radiation/emf-radiation-health-effects/electrohypersensitivity
+For a well documented report on the human effects of electropollution see Michael Kagelidis’ review article Electrohypersensitivity: What you need to know about the allergy of the 21st century. http://www.home-biology.com/electromagnetic-radiation/emf-radiation-health-effects/electrohypersensitivity. Ronald Kostoff, Ph.D. at Georgia Institute of Technology School of Public Policy issued a 2020 report called, "The Largest Unethical Medical Experiment in Human History" which documents the validity of these concerns. https://smartech.gatech.edu/handle/1853/62452 
 
 Our planet is a living biosphere (including the atmosphere), what some call the _anima mundi_ or soul of the Earth. It sustains all sentient beings whose bioelectrical fields are attuned to the Earth’s electromagnetic field. The planetary biosphere is being covered by the electronic cybersphere, the realm of information technology and electronic communication, especially the Internet. Helping interconnect and socialize humankind, this is seen by some as the “hominizing” techno-evolution envisioned by Fr Pierre Teilhard de Chardin, SJ, facilitating the genesis of the noosphere. the collectively connected evolutionary matrix of human consciousness. (1).
 
