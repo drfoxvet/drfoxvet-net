@@ -103,7 +103,7 @@ But I would caution that COVID-19 could mutate, and like the Swine flu infecting
  How people respond in the face of an anthropogenic plague will determine the quality of life on Earth for generations to come. The reported public panic and hysteria in some parts of China killing cats and dogs for fear they may be infective and in Peru resulting in the mass killing of bats--- which the government sought to stop, pointing out how bats benefit us in killing insects that can transmit diseases to us,--- is one indicator of how we need to evolve into a more intelligent life form.
 
 
-Feline Coronavirus (FCoV) is a common viral, but highly contagious intestinal (enteric) infection in cats. It can be asymptomatic, but may cause a few problems, like diarrhea in most infected cats. In some cats, however, the intestinal form of FCoV mutates and turns into feline infectious peritonitis (FIP), a disease that is generally fatal. Two forms of FIP may occur, effusive (wet) and non-effusive (dry). Feline Coronavirus (FCoV) is not the same Coronavirus identified first in Wuhan (2019 Novel Coronavirus). The Feline Coronavirus (FCoV) is not a threat to humans, it can only affect cats.
+
 
 *The author writes the nationally syndicated newspaper column Animal Doctor and is a member of the British Veterinary Association, the American Holistic Veterinary Medical Association and an Honor Roll member of the American Veterinary Medical Association. Website www.drfoxonehealth.com
 
