@@ -113,6 +113,8 @@ Companion Animal Concerns
 According to a release to veterinarians from the AVMA which I received on Feb 20th 2020, “ at this time, experts have not expressed concern about transmission to or from animals. Multiple international health organizations have indicated that pets and other domestic animals are not considered at risk for contracting COVID-19 or transmitting the virus that causes the disease”. 
 But I would caution that COVID-19 could mutate, and like the Swine flu infecting people that was passed on to their cats, be passed on from infected humans to domestic animals. There were news reports Feb 26/2020 of a Pomeranian dog in Hong Kong testing positive for COVID=19 which he got from his infected owner. The old dog was taken into quarantine for observation and eventually died from unrelated causes, probably the stress of isolation/separation.
 
+Belgium’s Public Health, Food Chain Safety and Environment authority announced March 27,2020 that a domestic cat tested positive for COVID-19.. About a week after its owner got sick with COVID-19, after returning from a trip to Northern Italy the cat developed diarrhea, vomiting and respiratory issues. ( https://www.livescience.com/cat-infected-covid-19-from-owner.html). 
+
  How people respond in the face of an anthropogenic plague will determine the quality of life on Earth for generations to come. The reported public panic and hysteria in some parts of China killing cats and dogs for fear they may be infective and in Peru resulting in the mass killing of bats--- which the government sought to stop, pointing out how bats benefit us in killing insects that can transmit diseases to us,--- is one indicator of how we need to evolve into a more intelligent life form.
 
 
