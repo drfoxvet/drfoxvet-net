@@ -118,7 +118,7 @@ These disturbing findings mean that domestic cats should be quarantined and test
 
 China is not alone in being responsible for animal welfare and the public health consequences of the many diseases transmitted to consumers from the animals they consume. The cruel transportation, handling and slaughter of 500,000 pigs daily in the U.S.is a call to conscience and common sense.
 
-In late March 2020, the Bronx zoo had several tigers become ill after exposure to one keeper who was infected and asymptomatic while attending to the animals. Tests verified COVID-19 in one of the tigers and all made a full recovery.
+In late March 2020, the Bronx zoo had several tigers become ill after exposure to one keeper who was infected and asymptomatic while attending to the animals. Tests verified COVID-19 in one of the tigers and all made a full recovery.Zoos are now taking precautions around their animal exhibits to limit exposure to potential human carriers of COVID-19.
 
 U.S. veterinary diagnostics firm Idexx has tested more than 3,500 samples from dogs, cats and horses for infection with SARS-CoV-2, the virus that causes COVID-19, and none of the tests have been positive. The findings support experts' assertions that pets are unlikely to catch or transmit the disease, but the virus could become attached to animals' fur, and the CDC says people should avoid kissing pets and should wash their hands after touching pets. Full Story: Today (3/24) 
 
