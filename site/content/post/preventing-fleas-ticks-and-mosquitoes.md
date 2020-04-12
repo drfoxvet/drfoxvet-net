@@ -15,6 +15,11 @@ Pesticide-releasing collars are especially risky since the chemicals are inhaled
 
 The US government’s Environmental Protection Agency announced in May 2009 that it will conduct a thorough investigation of topical anti-flea and tick products used on dogs and cats. Some 44,000 reports of adverse reactions were received by the EPA in 2008.
 
+ Veterinarian Dr. W. Jean Dodds, in Animal Wellness journal, Spring 2020, advises cat and dog owners to avoid isoxazoline-containing flea and tick meds, as in Bravecto, Nexgard, Simparica, Credelio and the recently FDA approved Revolution Plus. 
+
+ Other products to control companion animal parasites include neonicotinoids and avermectins which get into the environment from animals' coats and feces. Drs. Little and Boxall attest that "The indiscriminate prophylactic use of antiparasitic drugs in companion animals is irrational, wanton, unnecessary, irresponsible and ecologically dangerous. It should not be considered good practice." ( statement from their letter, Environmental pollution from pet paraciticides,  published in the U.K.'s Veterinary Record, Jan 25th 2020).
+
+
 ## A HOLISTIC APPROACH
 
 My holistic approach to keeping fleas and ticks at bay consists of: Daily checking with a flea comb, closely examining between the animal’s toes, and ear-folds, noting any tell-tale shiny, black, coal-dust like specks. These will turn reddish-brown on a piece of wet white paper if they are flea droppings of digested dog or cat blood.   
