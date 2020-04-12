@@ -35,8 +35,7 @@ On the contrary, fluoride can mottle the teeth and cause a host of health proble
 
 Of particular concern: Where there is some already existing kidney disease, the kidneys’ ability to excrete fluoride becomes markedly impaired, leading to a build-up of fluoride in the body.
 
-Research shows how fluoride can effect the immune system: via the spleen January 15, 2017 from NYC against Artificial Fluoridation
- Chinese scientists using both test-tube and the animal model, show that fluoride can fatally damage cells in the spleen, one of our organs responsible for maintaining a healthy immune system.
+Research shows how fluoride can effect the immune system: via the spleen, posted January 15, 2017 from NYC against Artificial Fluoridation:  Chinese scientists using both test-tube and the animal model, show that fluoride can fatally damage cells in the spleen, one of our organs responsible for maintaining a healthy immune system.
 
  As the "largest peripheral lymphatic organ", the spleen contains about one-fourth of the body’s lymphocytes and initiates immune responses." According to the researchers, treatment with sodium fluoride increased lymphocytes apoptosis, the programmed death of cells in the lymphatic system. ( Huidan, D. et al  Aging, vol.8 issue 12, 2016.)
 
