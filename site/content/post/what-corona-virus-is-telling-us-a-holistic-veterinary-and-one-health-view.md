@@ -136,6 +136,25 @@ U.S. veterinary diagnostics firm Idexx has tested more than 3,500 samples from d
 
 . How people respond in the face of an anthropogenic plague will determine the quality of life on Earth for generations to come. The reported public panic and hysteria in some parts of China killing cats and dogs for fear they may be infective and in Peru resulting in the mass killing of bats--- which the government sought to stop, pointing out how bats benefit us in killing insects that can transmit diseases to us,--- is one indicator of how we need to evolve into a more intelligent life form.
 
+ADDENDUM
+
+COVID & BIOSECURITY
+Biotechnology, Commentaries, Health April 14, 2020 
+COVID-19: A wake-up call for biosafety (slightly abridged)
+by Jonathan Matthews of GMWatch
+
+Like many of our readers, we may be sheltering-in-place, but please don’t think we’re taking our eye off the ball. Although other issues may not seem so important at the moment, the COVID-19 virus will subside one day, yet we will still be facing huge threats such as the so-called “extinction crisis” (the collapse of biodiversity) and the failure to take biosafety seriously. Interestingly, the pandemic is making many people more alert to exactly these kinds of issues.
+
+Take, for instance, biosafety. While some experts have stated that COVID-19 has not been deliberately genetically engineered and released as a bioweapon, the possibility that it emerged from a research laboratory has not been ruled out. Rutgers University’s Prof Richard Ebright, a biosecurity expert who has been speaking out on biosafety issues for nearly  a biosecurity expert who has been speaking out on biosafety issues for nearly 20 years, thinks that the COVID-19 pandemic could have started as an accidental release from a lab, such as one of the two known to have been studying bat coronaviruses in Wuhan, China, where the new coronavirus first emerged.
+
+And Stuart Newman, professor of cell biology and anatomy at New York Medical College in Valhalla, New York, editor-in-chief of the journal Biological Theory, and co-author of Biotech Juggernaut, adds crucial historical context that shows exploring whether COVID-19 could have been genetically engineered should not be dismissed as a subject fit only for conspiracy theorists from a research laboratory has not been ruled out.
+
+He points out that the genetic engineering of coronaviruses has been going on for a long time. According to Newman, “Even most biologists are not aware that virologists have been experimentally recombining and genetically modifying coronaviruses for more than a decade to study their mechanisms of pathogenicity.”Newman points to papers on engineering coronaviruses that go back a full 20 years.
+
+Others are flagging up how the proliferation of genetic engineering technologies like CRISPR could threaten us with pandemics that are even more deadly than COVID-19. The current pandemic has also fueled interest in the work of Toby Ord, Senior Research Fellow at Oxford’s Future of Humanity Institute. In his just published book The Precipice, Ord warns that global pandemics triggered by research on viruses pose one of the two biggest existential threats that humanity faces. He points to the fact that even the highest biosafety level (BSL-4) labs, working on live pathogens that are known to threaten global harm, have a poor track record for biosecurity. This includes research involving strains of these pathogens that are deliberately designed to pose even more danger – for example, through enhanced transmissibility. “With current BSL-4 labs,” Ord writes, “an escape of a pandemic pathogen is only a matter of time.”
+
+In fact, coronaviruses, Prof Ebright points out, are known to have been studied in much lower biosafety level (BSL-2) labs. This includes the bat coronaviruses studied at labs in and around Wuhan. “As a result,” Ebright says, “bat coronaviruses at Wuhan [Center for Disease Control] and Wuhan Institute of Virology routinely were collected and studied at BSL-2, which provides only minimal protections against infection of lab workers.”
+
 
 
 *The author writes the nationally syndicated newspaper column Animal Doctor and is a member of the British Veterinary Association, the American Holistic Veterinary Medical Association and an Honor Roll member of the American Veterinary Medical Association. Website www.drfoxonehealth.com
