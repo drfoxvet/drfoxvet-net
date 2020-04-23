@@ -143,6 +143,13 @@ Cats can be infected with the coronavirus that causes COVID-19 and spread it to 
 
 Chinese scientists investigated the susceptibility of ferrets and other species that have close contact with humans to SARS-CoV-2. They found in laboratory exposure tests that SARS-CoV-2 replicates poorly in dogs, pigs, chickens, and ducks, but ferrets and cats are susceptible to infection. Cats are susceptible to airborne infection and can infect each other with extensive lung damage evident in young cats. Ferrets develop milder upper respiratory infections from which they are likely to recover. (  Jianzhong Shi et al Susceptibility of ferrets, cats, dogs, and other domesticated animals to SARS–coronavirus 2 Science  08 Apr 2020: eabb7015 DOI: 10.1126/science.abb7015).
 
+On April 22nd 2020 the American Veterinary Medical Association posted:
+•	On April 22, the CDC and the USDA’s National Veterinary Services Laboratories (NVSL) announced the first confirmed cases of SARS-CoV-2 infection in two pet cats in the United States.
+•	These are the first pets in the United States to test positive for SARS-CoV-2.  
+•	The two pet cats in the United States both had signs of mild respiratory illness and are expected to make a full recovery.
+•	Currently we have no information that suggests pets might be a source of infection for people with the coronavirus that causes COVID-19.
+
+
 These disturbing findings mean that domestic cats should be quarantined and tested if exposed to infected people and precautions taken at this time when cats develop early signs of sickness involving the upper respiratory system. It has not been determined if cats with COVID-19 can infect people. Cats are sold and killed for food in Chinese markets, a practice which should be prohibited in view of these findings. The Chinese government’s declaration in early April 2020 prohibiting the same fate for dogs in these markets because they are “companion animals” is a  face-saving public relations action. A similar prohibition should be applied to cats and all live animals wild and domesticated in these widespread markets that are normative in a culture which must change for the common good.
 
 China is not alone in being responsible for animal welfare and the public health consequences of the many diseases transmitted to consumers from the animals they consume. The cruel transportation, handling and slaughter of 500,000 pigs daily in the U.S.is a call to conscience and common sense.
