@@ -169,6 +169,11 @@ China is not alone in being responsible for animal welfare and the public health
 
 In late March 2020, the Bronx zoo had several tigers become ill after exposure to one keeper who was infected and asymptomatic while attending to the animals. Tests verified COVID-19 in one of the tigers and all made a full recovery.Zoos are now taking precautions around their animal exhibits to limit exposure to potential human carriers of COVID-19.
 
+On April 22nd 2020 two cats in New York belonging to different owners tested positive for infection with SARS-CoV-2 after showing signs of a mild respiratory infection. The owner of one cat had been diagnosed with COVID-19, but the owner of the other had not.
+
+Also, on April 22nd 2020 four more tigers and three lions at the Bronx Zoo in New York City have tested positive for the virus that causes COVID-19 All of the big cats are receiving veterinary care and are expected to recover.
+
+
 U.S. veterinary diagnostics firm Idexx has tested more than 3,500 samples from dogs, cats and horses for infection with SARS-CoV-2, the virus that causes COVID-19, and none of the tests have been positive. The findings support experts' assertions that pets are unlikely to catch or transmit the disease, but the virus could become attached to animals' fur, and the CDC says people should avoid kissing pets and should wash their hands after touching pets. Full Story: Today (3/24) 
 
 . How people respond in the face of an anthropogenic plague will determine the quality of life on Earth for generations to come. The reported public panic and hysteria in some parts of China killing cats and dogs for fear they may be infective and in Peru resulting in the mass killing of bats--- which the government sought to stop, pointing out how bats benefit us in killing insects that can transmit diseases to us,--- is one indicator of how we need to evolve into a more intelligent life form.
