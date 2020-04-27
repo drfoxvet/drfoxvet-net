@@ -140,6 +140,9 @@ While this reality may make one despair, all countries should be severely sancti
 
 The still legal traffic and trade in wildlife calls for greater vigilance and health-monitoring as per the April 2020 report that hundreds of horses in Thailand have died as biting midges spread African horse sickness, which some scientists suspect arrived in zebras imported from Africa.  Without controls, the virus could even travel via wind-borne midges across seas to herds on island nations, gradually working its way to Australia, which has more than 1 million racing, sport, and feral horses. The nation is “engaging with other countries to develop a regional response to this outbreak,” says Australia’s Chief Veterinary Officer Mark Schipp. ( . Science (tiered subscription model) (4/16) 
 
+Two farms in the Netherlands were quarantined  in April 2020 after mink that were having trouble breathing tested positive for infection with the novel coronavirus. The animals were thought to have been infected by an employee who had COVID-19, and although experts said it was unlikely the animals themselves could spread the virus, movement of the animals and their manure has been halted, and people must stay away from the properties. Reuters (4/26) 
+
+
 Conclusions
 
  International trade in animals, dead and alive, for human consumption should be curtailed as a public health service and for national security and within-nations should be terminated to help reduce a major industry’s contribution to the Climate and Extinction crises (as well as rural poverty), and decline in public health. It may seem racist to say this coronavirus came from China and the last influenza pandemic from Mexico. But it is speciesist to claim that animals were created for our own use and that we can kill and consume them and otherwise exploit them as our needs and wants dictate.
