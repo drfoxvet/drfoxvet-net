@@ -51,8 +51,7 @@ While Montagnier’s assertions have been challenged by many, there is increasin
 Coronaviruses (CoVs), are enveloped positive-sense RNA viruses with club-like spikes that project from their surface, have an unusually large RNA genome, and a unique replication strategy. Coronaviruses cause a variety of diseases in mammals and birds ranging from enteritis in cows and pigs and upper respiratory disease chickens to potentially lethal human respiratory infections. Feline coronavirus is an enveloped single-stranded RNA virus that occurs as two pathotypes: feline enteric coronavirus (FECV), defined as the “ubiquitous enteric biotype,” and feline infectious peritonitis virus (FIPV), the “virulent biotype” that causes FIP in individual cats.
 
 The COVID-19 pandemic is not simply a respiratory disease, the high incidence of lung infection being in part a consequence of prior lung damage from smoking and air pollution. Some people develop serious gut problems instead, indicating that this highly contagious and opportunistic coronavirus attacks what is called the endothelium, often causing minute blood clots that can impair circulation, heart, kidney, brain and other organ functions. Through the ace2 receptors this coronavirus targets multiple organs simultaneously, the immune system/T cells through CD147, inducing a cytokine storm and other significant impacts which may be worse in those patients deficient in vitamin D. 
- (See A rampage through the body
-Meredith Wadman, Jennifer Couzin-Frankel, Jocelyn Kaiser and Catherine Matacic DOI: 10.1126/science.368.6489.356
+ (See A rampage through the body Meredith Wadman, Jennifer Couzin-Frankel, Jocelyn Kaiser and Catherine Matacic DOI: 10.1126/science.368.6489.356
 Science 368 (6489), 356-360. 24 APRIL 2020 • VOL 368 ISSUE 6489 )
 
 
