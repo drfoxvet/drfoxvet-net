@@ -13,7 +13,7 @@ tags:
                                           By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
                                                                             SYNOPSIS
 
-This emerging disease and others that are likely to become pandemics in the future, calling for ever more vaccines and medications so long as preventive medicine remains human-centered and does not address, under the banner of One Health, wildlife poaching and trafficking, habitat encroachment, our ever-increasing human numbers and consumption of animals wild and domesticated  At best, all the suffering, death, grieving and economic impact of this latest COVID-19 pandemic will change how we chose to live: Most especially our collective exploitation and consumption of animals that bring on such pandemics and other zoonotic diseases along with accelerating climate change and loss of biodiversity.
+This emerging disease and others that are likely to become pandemics in the future, call for ever more vaccines and medications, which are not-risk-free, so long as preventive medicine remains human-centered and does not address, under the banner of One Health, wildlife poaching and trafficking, habitat encroachment, our ever-increasing human numbers and consumption of animals wild and domesticated  At best, all the suffering, death, grieving and economic impact of this latest COVID-19 pandemic will change how we chose to live: Most especially to reduce our collective exploitation and consumption of animals that bring on such pandemics and other zoonotic diseases along with accelerating climate change and loss of biodiversity as well as animal suffering.
 
 
    ********************************************************
