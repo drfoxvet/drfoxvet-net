@@ -167,17 +167,14 @@ POSTSCRIPT
 Companion Animal Concerns
 
 According to a release to veterinarians from the AVMA which I received on Feb 20th 2020, “ at this time, experts have not expressed concern about transmission to or from animals. Multiple international health organizations have indicated that pets and other domestic animals are not considered at risk for contracting COVID-19 or transmitting the virus that causes the disease”. 
-But I would caution that COVID-19 could mutate, and like the Swine flu infecting people that was passed on to their cats, be passed on from infected humans to domestic animals. 
 
-There were news reports Feb 26/2020 of a Pomeranian dog in Hong Kong testing positive for COVID-19 which he got from his infected owner. The old dog was taken into quarantine for observation and eventually died from unrelated causes, probably the stress of isolation/separation. 
+But I would caution that COVID-19 could mutate, and like the Swine flu infecting people that was passed on to their cats, be passed on from infected humans to domestic animals. There were news reports Feb 26/2020 of a Pomeranian dog in Hong Kong testing positive for COVID-19 which he got from his infected owner. The old dog was taken into quarantine for observation and eventually died from unrelated causes, probably the stress of isolation/separation.
 
-In March 2020 the Hong Kong government has urged people not to abandon their pets and to stop kissing them after a second dog tested positive for coronavirus, but stressed that the animal had not shown any symptoms of the disease. A German shepherd living was sent for quarantine along with another mixed-breed dog from the same residence on Thursday after their owner was confirmed as being infected, the Agriculture, Fisheries and Conservation Department (AFCD) said in a statement. Though the shepherd tested positive for the virus, no such result was obtained from the mixed-breed dog, and “neither dog has shown any signs of disease,” the AFCD said, adding it will continue to monitor both dogs and conduct repeated tests on the animals.
+ In March 2020 the Hong Kong government has urged people not to abandon their pets and to stop kissing them after a second dog tested positive for coronavirus, but stressed that the animal had not shown any symptoms of the disease. A German shepherd living was sent for quarantine along with another mixed-breed dog from the same residence on Thursday after their owner was confirmed as being infected, the Agriculture, Fisheries and Conservation Department (AFCD) said in a statement. Though the shepherd tested positive for the virus, no such result was obtained from the mixed-breed dog, and “neither dog has shown any signs of disease,” the AFCD said, adding it will continue to monitor both dogs and conduct repeated tests on the animals.
 
 Belgium’s Public Health, Food Chain Safety and Environment authority announced March 27,2020 that a domestic cat tested positive for COVID-19.. About a week after its owner got sick with COVID-19, after returning from a trip to Northern Italy the cat developed diarrhea, vomiting and respiratory issues. ( https://www.livescience.com/cat-infected-covid-19-from-owner.html).
 
-Cats can be infected with the coronavirus that causes COVID-19 and spread it to other cats, but dogs are not really susceptible to the infection, according to researchers in China. The team, at Harbin Veterinary Research Institute in China, also concludes that chickens, pigs, and ducks are not likely to catch the virus. ( Nature News, April 1.2020 Coronavirus can infect cats-dogs, not so much.  https://www.nature.com/articles/d41586-020-00984-8)
-
-Chinese scientists investigated the susceptibility of ferrets and other species that have close contact with humans to SARS-CoV-2. They found in laboratory exposure tests that SARS-CoV-2 replicates poorly in dogs, pigs, chickens, and ducks, but ferrets and cats are susceptible to infection. Cats are susceptible to airborne infection and can infect each other with extensive lung damage evident in young cats. Ferrets develop milder upper respiratory infections from which they are likely to recover. (  Jianzhong Shi et al Susceptibility of ferrets, cats, dogs, and other domesticated animals to SARS–coronavirus 2 Science  08 Apr 2020: eabb7015 DOI: 10.1126/science.abb7015).
+Cats can be infected with the coronavirus that causes COVID-19 and spread it to other cats, but dogs are not very susceptible to the infection, according to researchers in China. The team, at Harbin Veterinary Research Institute in China, also concludes that chickens, pigs, and ducks are not likely to catch the virus. ( Nature News, April 1.2020 Coronavirus can infect cats-dogs, not so much.  https://www.nature.com/articles/d41586-020-00984-8). Chinese scientists investigated the susceptibility of ferrets and other species that have close contact with humans to SARS-CoV-2. They found in laboratory exposure tests that SARS-CoV-2 replicates poorly in dogs, pigs, chickens, and ducks, but ferrets and cats are susceptible to infection. Cats are susceptible to airborne infection and can infect each other with extensive lung damage evident in young cats. Ferrets develop milder upper respiratory infections from which they are likely to recover. ( Jianzhong Shi et al Susceptibility of ferrets, cats, dogs, and other domesticated animals to SARS–coronavirus 2 Science  08 Apr 2020: eabb7015 DOI: 10.1126/science.abb7015).
 
 On April 22nd 2020 the American Veterinary Medical Association posted:
 •	On April 22, the CDC and the USDA’s National Veterinary Services Laboratories (NVSL) announced the first confirmed cases of SARS-CoV-2 infection in two pet cats in the United States.
@@ -185,23 +182,15 @@ On April 22nd 2020 the American Veterinary Medical Association posted:
 •	The two pet cats in the United States both had signs of mild respiratory illness and are expected to make a full recovery.
 •	Currently we have no information that suggests pets might be a source of infection for people with the coronavirus that causes COVID-19.
 
+On April 27th it was reported that a Pug dog belonging to a pediatrician participating in a COVID-19 study at Duke University in North Carolina tested positive for infection with SARS-CoV-2 and displayed mild signs of illness for several days. The pediatrician, her husband and their son also tested positive for coronavirus infection, while the couple's daughter, their other dog and a pet cat did not.
 
-These disturbing findings mean that domestic cats should be quarantined and tested if exposed to infected people and precautions taken at this time when cats develop early signs of sickness involving the upper respiratory system. It has not been determined if cats with COVID-19 can infect people. Cats are sold and killed for food in Chinese markets, a practice which should be prohibited in view of these findings. The Chinese government’s declaration in early April 2020 prohibiting the same fate for dogs in these markets because they are “companion animals” is a  face-saving public relations action. A similar prohibition should be applied to cats and all live animals wild and domesticated in these widespread markets that are normative in a culture which must change for the common good.
+It was not until April 29th that the Centers for Disease Control and Prevention call for social distancing to be applied to pets, dogs being kept on the leash when outdoors and not be petted by people outside the family and cats be kept indoors. For details about how one can help cats who used to going outdoors adapt quickly and enjoy life indoors, go to the American Bird Conservancy’s website for details. ( https://abcbirds.org/program/cats-indoors/ ).
 
-China is not alone in being responsible for animal welfare and the public health consequences of the many diseases transmitted to consumers from the animals they consume. The cruel transportation, handling and slaughter of 500,000 pigs daily in the U.S.is a call to conscience and common sense.
+ I have always deplored this indoor-outdoor cat keeping knowing how many cats get killed and injured by traffic, fights and infections, and as super-predators are decimating song bird and other wildlife populations. The notion of “working cats” around homes, barns and warehouses comes from times more ignorant about zoonotic diseases and sanitation. Cats can transmit more diseases to us, especially when they are indoor-outdoor cats and have close contact with family members than human-avoiding wild rodents. Both the American Veterinary Medical Association and the British Veterinary Association in early April urged people who are self-isolating or have COVID-19 symptoms keep their cats indoors because, it is possible that outdoor cats may carry the virus on their fur, just as the virus can live on other surfaces.
 
-In late March 2020, the Bronx zoo had several tigers become ill after exposure to one keeper who was infected and asymptomatic while attending to the animals. Tests verified COVID-19 in one of the tigers and all made a full recovery.Zoos are now taking precautions around their animal exhibits to limit exposure to potential human carriers of COVID-19.
+******************************************
 
-On April 22nd 2020 two cats in New York belonging to different owners tested positive for infection with SARS-CoV-2 after showing signs of a mild respiratory infection. The owner of one cat had been diagnosed with COVID-19, but the owner of the other had not.
-
-Also, on April 22nd 2020 four more tigers and three lions at the Bronx Zoo in New York City have tested positive for the virus that causes COVID-19 All of the big cats are receiving veterinary care and are expected to recover.
-
-
-U.S. veterinary diagnostics firm Idexx has tested more than 3,500 samples from dogs, cats and horses for infection with SARS-CoV-2, the virus that causes COVID-19, and none of the tests have been positive. The findings support experts' assertions that pets are unlikely to catch or transmit the disease, but the virus could become attached to animals' fur, and the CDC says people should avoid kissing pets and should wash their hands after touching pets. Full Story: Today (3/24) 
-
-. How people respond in the face of an anthropogenic plague will determine the quality of life on Earth for generations to come. The reported public panic and hysteria in some parts of China killing cats and dogs for fear they may be infective and in Peru resulting in the mass killing of bats--- which the government sought to stop, pointing out how bats benefit us in killing insects that can transmit diseases to us,--- is one indicator of how we need to evolve into a more intelligent life form.
-
-ADDENDUM
+ADDENDA
 
 COVID & BIOSECURITY
 Biotechnology, Commentaries, Health April 14, 2020 
@@ -220,9 +209,14 @@ Others are flagging up how the proliferation of genetic engineering technologies
 
 In fact, coronaviruses, Prof Ebright points out, are known to have been studied in much lower biosafety level (BSL-2) labs. This includes the bat coronaviruses studied at labs in and around Wuhan. “As a result,” Ebright says, “bat coronaviruses at Wuhan [Center for Disease Control] and Wuhan Institute of Virology routinely were collected and studied at BSL-2, which provides only minimal protections against infection of lab workers.”
 
+SEE ALSO DR. MERCOLA'S REVIEW:
+https://articles.mercola.com/sites/articles/archive/2020/04/26/is-coronavirus-a-biological-weapon.aspx?cid_source=dnl&cid_medium=email&cid_content=art1HL&cid=20200426Z1&et_cid=DM521257&et_rid=859107171
+
+Dr. Mercola excerpts:
+So, in summary, SARS-CoV-2 appears to be a bioengineered bat coronavirus13 — which was initially benign and nontransmittable to humans. Zhengli (China, working on this for years) then genetically modified the virus to integrate spike proteins that allows the virus to enter human cells by attaching to ACE-2 receptors. That was the first modification.
+The second modification was to integrate an envelope protein from HIV called GP141, which tends to impair the immune system (U of N Carolina w/ Zhengli).  A third modification (Wuhan &Harvard Chemistry Dept Head , Dr. Charles Lieber) appears to involve nanotechnology to make the virus light enough to remain airborne for a long time, apparently giving it a range of up to 27 feet.14  
 
 
-*The author writes the nationally syndicated newspaper column Animal Doctor and is a member of the British Veterinary Association, the American Holistic Veterinary Medical Association and an Honor Roll member of the American Veterinary Medical Association. Website www.drfoxonehealth.com
 
 
 
