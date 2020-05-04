@@ -214,7 +214,9 @@ https://articles.mercola.com/sites/articles/archive/2020/04/26/is-coronavirus-a-
 
 Dr. Mercola excerpts:
 So, in summary, SARS-CoV-2 appears to be a bioengineered bat coronavirus13 — which was initially benign and nontransmittable to humans. Zhengli (China, working on this for years) then genetically modified the virus to integrate spike proteins that allows the virus to enter human cells by attaching to ACE-2 receptors. That was the first modification.
-The second modification was to integrate an envelope protein from HIV called GP141, which tends to impair the immune system (U of N Carolina w/ Zhengli).  A third modification (Wuhan &Harvard Chemistry Dept Head , Dr. Charles Lieber) appears to involve nanotechnology to make the virus light enough to remain airborne for a long time, apparently giving it a range of up to 27 feet.14  
+The second modification was to integrate an envelope protein from HIV called GP141, which tends to impair the immune system (U of N Carolina w/ Zhengli).  A third modification (Wuhan &Harvard Chemistry Dept Head , Dr. Charles Lieber) appears to involve nanotechnology to make the virus light enough to remain airborne for a long time, apparently giving it a range of up to 27 feet.14 
+
+There are additional reviews (such as https://mailchi.mp/gmwatch.org/summary-of-evidence-that-sars-cov-2-emerged-from-a-laboratory-in-wuhan-china?e=425693fa21) exploring the origin of this pandemic virus but thias does not discount the urgent need to stop the poaching, trafficking and trade in any and all wildlife species, vertebrate and invertebrate, warm-blooded and cold. All countries involved should be put under economic sanctions by the U.S. and other responsible governments until they cease and desist since conservation of natural biodiversity is linked with public, environmental and ecosystem health: 
 
 
 
