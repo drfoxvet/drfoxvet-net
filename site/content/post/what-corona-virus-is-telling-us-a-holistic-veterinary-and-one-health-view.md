@@ -203,7 +203,7 @@ On April 22nd 2020 the American Veterinary Medical Association posted:
 •	The two pet cats in the United States both had signs of mild respiratory illness and are expected to make a full recovery.
 •	Currently we have no information that suggests pets might be a source of infection for people with the coronavirus that causes COVID-19.
 
-On April 27th it was reported that a Pug dog belonging to a pediatrician participating in a COVID-19 study at Duke University in North Carolina tested positive for infection with SARS-CoV-2 and displayed mild signs of illness for several days. The pediatrician, her husband and their son also tested positive for coronavirus infection, while the couple's daughter, their other dog and a pet cat did not.
+On April 27th 2020 it was reported that a Pug dog belonging to a pediatrician participating in a COVID-19 study at Duke University in North Carolina tested positive for infection with SARS-CoV-2 and displayed mild signs of illness for several days. The pediatrician, her husband and their son also tested positive for coronavirus infection, while the couple's daughter, their other dog and a pet cat did not.
 
 In early May 2020 a cat in Spain that died from a common feline respiratory condition tested positive for SARS-CoV-2, according to the results of a necropsy, making the cat one of a handful worldwide to test positive for the coronavirus. The cat belonged to a family that had tested positive for the virus, but its viral level was low, and there is no evidence pets can transmit the virus to people, says Professor Joaquim Segales of the Animal Health Research Center in Catalonia.
 
