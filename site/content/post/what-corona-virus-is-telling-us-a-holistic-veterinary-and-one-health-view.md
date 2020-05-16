@@ -106,6 +106,11 @@ On March 30, the Jerusalem Post reported, that, just one month after China's "pe
 
  The Trump administration's eventual response calling in part for accelerated animal-tested vaccine production will certainly profit the government -subsidized and legally protected (from adverse-reaction law suits) vaccine industry which is the antithesis of true preventive medicine from a One Health perspective.
 
+The documented lack of national preparedness in the testimony of Dr. Richard Bright (who was demoted in the Dept. of Health and Human Services for raising his concerns up the government chain of command in February 2020) at Congressional hearings on May 14th 2020 gave pause for concern.
+
+In an editorial on May 15th 2020 the prestigious medical journal The Lancet was highly critical of President Trump’s gross mishandling and politicization of the coronavirus pandemic and called for him to be voted out of office in the next election.
+
+
 Earlier Pandemics and Epidemics
 
 The three major historical plagues were caused by the same bacterium (Yersinia pestis):
