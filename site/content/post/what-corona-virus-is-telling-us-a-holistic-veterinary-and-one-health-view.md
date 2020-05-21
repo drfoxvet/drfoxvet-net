@@ -175,7 +175,11 @@ While this reality may make one despair, all countries should be severely sancti
 
 The still legal traffic and trade in wildlife calls for greater vigilance and health-monitoring as per the April 2020 report that hundreds of horses in Thailand have died as biting midges spread African horse sickness, which some scientists suspect arrived in zebras imported from Africa.  Without controls, the virus could even travel via wind-borne midges across seas to herds on island nations, gradually working its way to Australia, which has more than 1 million racing, sport, and feral horses. The nation is “engaging with other countries to develop a regional response to this outbreak,” says Australia’s Chief Veterinary Officer Mark Schipp. ( . Science (tiered subscription model) (4/16) 
 
-Two farms in the Netherlands were quarantined  in April 2020 after mink that were having trouble breathing tested positive for infection with the novel coronavirus. The animals were thought to have been infected by an employee who had COVID-19, and although experts said it was unlikely the animals themselves could spread the virus, movement of the animals and their manure has been halted, and people must stay away from the properties. Reuters (4/26) 
+Two farms in the Netherlands were quarantined  in April 2020 after mink that were having trouble breathing tested positive for infection with the novel coronavirus. The animals were thought to have been infected by an employee who had COVID-19, and although experts said it was unlikely the animals themselves could spread the virus, movement of the animals and their manure has been halted, and people must stay away from the properties. Reuters (4/26)
+
+The Dutch agricultural minister subsequently reported that a worker at one of the mink farms acquired COVID-19 infection from infected mink, the first indication of animal-to-human cross-infection. Researchers compared the genetic code of the virus found in the mink to that of the patient, creating a "family tree" to map its mutation, minister Carola Schouten said."It is concluded from this investigation that it is plausible that one employee of an infected mink farm was infected by mink," Schouten said in a letter to parliament. Authorities are also looked at the role of feral farm cats in spreading the virus between the two infected farms. Three cats on one of the farms were found to have the virus, the government said last week.
+https://medicalxpress.com/news/2020-05-dutch-farm-worker-covid-mink.html
+ 
 
 
 Conclusions
