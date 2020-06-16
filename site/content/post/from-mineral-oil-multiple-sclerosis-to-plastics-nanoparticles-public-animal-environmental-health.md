@@ -4,7 +4,7 @@ title: >-
   Animal & Environmental Health 
 date: 2019-12-05T18:17:57.948Z
 tags:
-  - ''
+  - Environment
 ---
 Article published in the AHVMA JOURNAL, Vol. 57, Winter 2019. P 19-21
 From Mineral Oil and Multiple Sclerosis to Plastics, Nanoparticles, Public, Animal, and Environmental Health
@@ -212,3 +212,10 @@ Abstract: Plastics have outgrown most man-made materials and have long been unde
 Plastic wrap made from shellfish and plants is completely compostable
 
  By spraying alternating layers of the chitin and cellulose infused solution, researchers found they could make the layers fuse to one another and form one single, resilient film. Source: Satam, et. al. “Spray-Coated Multilayer Cellulose Nanocrystal—Chitin Nanofiber Films for Barrier Applications.” ACS Chemistry & Engineering. 2018.
+
+ADDENDUM  
+Microplastics are everywhere, even in pristine national parks (Star Tribune, June 15th 2020)
+Microplastics in airborne dust ranging in size from 4 to 1888 microns have been found in wilderness areas in U.S. National Parks, raising concerns about impact on ecosystems, insects and other animals and on the lungs of humans. For details see Plastic dust is blowing into U.S. national parks—more than 1000 tons each year By Erik Stokstad Jun. 11, 2020 , 
+https://www.sciencemag.org/news/2020/06/plastic-dust-blowing-us-national-parks-more-1000-tons-each-year
+
+
