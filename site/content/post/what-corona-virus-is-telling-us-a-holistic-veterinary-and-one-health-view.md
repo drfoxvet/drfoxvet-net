@@ -223,6 +223,8 @@ COVID-19 can be seen as a wake-up call. Richard Horton, the editor-in-chief of T
 “But,” he warns, “perhaps we will sink back into our culture of complacent exceptionalism and await the next plague that will surely arrive. To go by recent history, that moment will come sooner than we think.”
 
  Aside from America’s documented lack of preparedness for this pandemic, no less urgent and bioethically imperative from a One Health perspective is national and international prevention of future pandemics. The Centers for Disease Control and Prevention estimates that three-quarters of new human diseases originate in animals. Factory-farmed animals are not only the main source of influenza epidemics but being fed antibiotics, contribute to some 2.8 million Americans being sickened by antibiotic-resistant bacteria annually — of whom 35,000 die, according to the CDC.
+
+A rise in zoonotic diseases is being driven by environmental degradation, according to a report by the UN Environment Program and the International Livestock Research Institute that cites rising demand for animal protein, intensive farming practices, exploitation of wildlife and climate change among key factors. The authors suggest adopting a One Health approach, which would unite public health, veterinary and environmental experts to respond to and prevent zoonotic disease outbreaks.( https://news.un.org/en/story/2020/07/1067711)
  
 “There is always a silver lining in every cloud, and for COVID 19, I think it just might be a quantum leap for the One Health Philosophy”. Craig N. Carter, DVM MS PhD Dipl. ACVPM DSNAP   Director & Professor, Epidemiology Department of Veterinary Science, University of Kentucky Lexington, KY
 
