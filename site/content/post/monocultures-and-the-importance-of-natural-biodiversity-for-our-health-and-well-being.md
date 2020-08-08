@@ -118,7 +118,10 @@ Every nation must unite for the good of all life on Earth to avert the catastrop
  Genetic, epigenetic, physiological, psychological, cognitive and behavioral capacities to adapt to change may be inadequate for many species. The challenge to evolve or perish applies also to our own species. But becoming something less than human---no longer compassionate and caring---like a consumptive parasite or objectifying technocrat, would signal devolution.
 
 Our survival and security lies in us healing and sustaining all our symbiotic relationships, what native American Indians traditionally regarded as our sacred connections. In this "Anthropocene" age of human evolution and of a "hominized" planet the late Father Thomas Berry saw the Ecozoic era as the dawning of ecological consciousness, the emerging period in which humans would recover their creative orientation to the natural world. I see this epiphany happening now as the youth around the world have been demonstrating to call for concerted action to address the Climate and Extinction Crises. 
+
    "What's good for the animals is good for us and the environment" is a truism which must be tempered by the reality of over-population of certain species, including the human and domesticated animals and the adverse impact on biodiversity which is the keystone of sustainable and healthy ecosystems upon which our own health depends. Good governance and "greener" politics are long overdue as the climate crisis we now face clearly underscores! For more documentation see my recent book Animals & Nature First.
+
+Those who advocate and profess democracy commit the hypocrisy of human-centerdness and supremacy when they put their own interests over the rights and interests of other species. Such speciesism is of the same currency as racism. All lives matter. The political corruption of the ethics and spirituality of such democratic principles is at the root of the cultural, socio-economic and environmental crises that we face today
  
 “GLOBALIZATION” OF THE ECONOMY AND DISEASE
 
