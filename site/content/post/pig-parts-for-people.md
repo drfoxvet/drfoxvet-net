@@ -1,6 +1,8 @@
 ---
 title: Pig Parts For People
 date: 2019-02-27T19:32:15.863Z
+tags:
+  - Farmed Animals
 ---
 The U.S. government and other Western investors are backing China to be the world’s leading producer of replacement body parts for humans in need. Corporations are circling the common trough of investment and rather than wallowing in the miasma of cybersecurity and squealing over tariffs and trade they are rooting for each other in a cooperative agreement of venture capitalism. This is hardly some ground-breaking transcultural event since the shared values of East and West make them one profit-driven culture seizing an opportunity to apply biotechnology to alter pigs so their body parts can be used to replace defective human body parts.
 
