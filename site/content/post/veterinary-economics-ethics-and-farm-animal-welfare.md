@@ -46,6 +46,52 @@ I see grounds for hope when veterinary schools develop and offer degree programs
 
 Real progress in veterinary and human medicine will come not in correcting the problems of dysfunctional and often over-capitalized, energy-consuming, life and nutrition-degrading, and environmentally damaging systems and industries, but in client education, and in the creative anarchism and paradigm shift toward a more holistic, integrative approach to health care and maintenance, rather than profiting from treating disease and suffering, and in the process simply preserving the status quo. Informed consumers vote with their dollars when there is freedom of choice that monopolistic oligopolies abhor. For companion animal veterinary business enterprises to have to sell products and services that are at best ethically questionable and at worse do more harm than good, in order to stay in business, would be an unethical pursuit for any reasonably intelligent and rational life form.
 
+ADDENDUM
+
+FARMED ANIMAL WELFARE CONCERNS: A SYNOPSIS
+
+Because it stood by and did nothing other than eagerly offer professional advice and services, organized veterinary medicine in most all industrialized countries is in large part responsible for the suffering of billions of intensively raised farm animals on so called factory farmed and feedlots. Farmed animal health, behavioral and welfare issues associated with these food animal production methods, ( now referred to by the industry as confinement animal feeding operations or CAFOs), were seen as a challenge rather than as symptoms of husbandry systems and practices that were bioethically unacceptable and should never exist. But they soon spread to developing countries under the support of agencies like the World Bank and British Overseas Development Corporation which are linked with multinational agribusiness interests, from livestock feed, drugs and vaccines to breeding stock and vertically integrated market monopolies.
+
+I have visited these animal concentration camps and documented the suffering, stress and distress of poultry, pigs and cattle, including dairy cows, beef cattle and veal calves under conditions that deprive them of their basic behavioral needs and of any quality of life, all in the name of profit and ‘production efficiencies’ that are touted as reducing consumer costs. 
+
+It took over 25 years since the publication of my book Farm Animals: Husbandry, Behavior and Veterinary Practice (Baltimore, Maryland, University Park Press, 1984), along with the reports by others documenting the connections between CAFOs, animal diseases and related public health and environmental concerns for the World Health Organization, the Food and Agriculture Organization and the World Organization for Animal Health to acknowledge these connections and to begin to work together to find solutions. (See www.oie.int/eng/press/en_100422.htm).
+
+ Organized veterinary medicine in Europe and North America has begun to rally (too little too late?), one editorial in the British Veterinary Record , (June 5th, 2010, p 702) noting “The concept of ‘one world, one health, one medicine’ has so much to commend it that it is surprising that it has not caught on more quickly”. I find it not surprising considering the denial of the evils of CAFOs and the gulling of consumers into believing that this is the way modern farming is done to make food affordable and to feed the hungry world.
+
+Such unconscionable mistreatment of sentient beings is a sad reflection of our own lack of humanity which cannot be justified even if these animals were bred and raised simply for human consumption and knew no better life prior to their slaughter. It underscores the truism that when we harm others we harm ourselves.
+
+The following is a brief synopsis of the major health and welfare concerns that can only be rectified not by strict ‘humane’ standards, inspections and enforcement, but by the phasing out of all such methods of animal production, and the adoption of husbandry systems that provide for animals’ physical and behavioral needs and that are ecologically integrated with sustainable farming practices.
+
+Caged Laying Hens:  Extreme overcrowding, lack of movement induced osteoporosis, bone fractures, foot lesions from wire floor, feather-picking and cannibalism.
+
+Broiler Chickens: Extreme overcrowding, lameness, breast blisters, feather picking and cannibalism, ‘keel-over’ heart-failure from rapid growth.  Eye problems, including blindness, from poor ventilation.
+
+Penned Piglets:  Overcrowding, boredom, tail-biting, cannibalism, lameness and foot lesions from a life on concrete slatted floors.  Circulation and joint problems from rapid growth and  large body mass . Chronic respiratory problems from poor ventilation.
+
+Breeding Sows in crates: Extreme physical constraint,(unable to walk or turn around), lameness, arthritis, boredom and stereotypic behaviors indicative of stress and distress.
+
+Veal Calves in crates: Extreme physical constraint, (unable to walk or turn around), social deprivation, iron-deficient diet causing anemia and weakness.
+
+Feedlot Beef Cattle: Exposure-lack of shade and shelter, lameness and foot rot, liver disease from improper ‘fattening/finishing’ diets and lack of roughage.
+
+Confined Dairy Cows: lack of exercise related lameness, metabolic, and liver diseases from high energy/concentrate diets and lack of roughage.
+
+All the above concentrated animal feeding operations cause stress, distress, and increased disease susceptibility especially to enteric and respiratory infections, and to udder/mammary gland infections in dairy cows.
+
+The following procedures need to be addressed and where appropriate, either phased out, or only the most humane methods permitted: Castrating, branding, and dehorning cattle without anesthetic; hot-iron de-beaking of chickens; disposal of unwanted chickens & pre-slaughter collecting and handling of poultry; tail docking and castration of piglets and lambs; tail docking of dairy cows; treatment of unwanted ‘bobby’ calves and ‘downer cows;’ and of sick and injured poultry and piglets. Use of the ‘Stock-still’ electrical immobilization of cattle should be prohibited. Humane methods for the mass ‘depopulating/killing of  diseased livestock and poultry also need to be implemented.
+
+Livestock and poultry transportation, handling, and slaughter methods need significant improvements in most counties.
+ Dairy and beef cattle fed rations high in cereal grains are prone to acidosis, digestive and metabolic problems, and lameness from laminitis. Such diets create ideal conditions for the proliferation of E. coli 0157, thus putting consumers at risk (also from crops contaminated with infected manure and slurry run-off). Feeding a more natural, grass or hay-based diet results in a drastic reduction in E.coli 0157 within a few days. Regardless, Pfizer drug company began marketing a potentially high risk E.coli 0157 vaccine to the cattle industry in 2010, seeking to capitalize on yet another anthropogenic zoonosis.
+
+Cruel, intensive confinement systems of livestock and poultry production, ---concentrated/confined animal feeding operations, ---are a legacy of our inhumanity. The price of CAFOs include major public health problems associated with the wholesale use of antibiotics to help these animals grow and be productive and stay alive, leading to the rise of highly resistant strains of bacteria. They cause widespread air, surface and groundwater pollution. World- wide, the livestock industry is the leading human-created cause of climate change/global warming.
+
+It is notable that the United Nations Environment Programme’s international panel on climate change released a report on June 2nd, 2010 stating that lesser consumption of animal products is necessary to save the world from the worst impacts of climate change.
+(http://www.unep.org/resourcepanel/documents/pdf/PriorityProductsAndMaterials_Report_Full.pdf) .
+
+As the global population surges towards a predicted 9.1 billion people by 2050, western tastes for diets rich in meat and dairy products are unsustainable, says the report. It states: "Impacts from agriculture are expected to increase substantially due to population growth increasing consumption of animal products. Unlike fossil fuels, it is difficult to look for alternatives: people have to eat. A substantial reduction of impacts would only be possible with a substantial worldwide diet change, away from animal products."  Agriculture, particularly meat and dairy products, accounts for 70% of global freshwater consumption, 38% of the total land use and 19% of the world's greenhouse gas emissions, says the report.
+Produce from organically certified and free-range animals, are generally more humanely derived, and with less environmental harm and drug-dependence than similar produce from CAFOs.
+
+
 
 
 References
