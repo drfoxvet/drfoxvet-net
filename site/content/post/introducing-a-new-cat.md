@@ -7,7 +7,7 @@ tags:
 INTRODUCING A NEW CAT
 There are many benefits in adopting a second cat to enrich the life of a single cat who is  not too set in his or her ways to accept a newcomer. Two cats living together, as I emphasize in my book Cat Body, Cat Mind, are generally healthier and happier than cats who live with no contact ever with their own species.
 
-M.B. from Port St Luice, FL sent me the following useful steps to follow when introducing a new cat which she learned from a friend who helps others with cat problems and has obviously learned from experience how to facilitate the socialization of cats with cats.
+M.B. from Port St Lucie, FL sent me the following useful steps to follow when introducing a new cat which she learned from a friend who helps others with cat problems and has obviously learned from experience how to facilitate the socialization of cats with cats.
 
 1.For several days, keep the cats in separate rooms. Provide bedding for them both and periodically switch their beds. This will allow each cat to get familiar with the other's scent and realize there is another cat in the house.
 
