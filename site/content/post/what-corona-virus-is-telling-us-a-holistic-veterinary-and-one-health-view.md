@@ -214,7 +214,10 @@ Two farms in the Netherlands were quarantined  in April 2020 after mink that wer
 The Dutch agricultural minister subsequently reported that a worker at one of the mink farms acquired COVID-19 infection from infected mink, the first indication of animal-to-human cross-infection. Researchers compared the genetic code of the virus found in the mink to that of the patient, creating a "family tree" to map its mutation, minister Carola Schouten said."It is concluded from this investigation that it is plausible that one employee of an infected mink farm was infected by mink," Schouten said in a letter to parliament. Authorities are also looked at the role of feral farm cats in spreading the virus between the two infected farms. Three cats on one of the farms were found to have the virus, the government said last week.
 https://medicalxpress.com/news/2020-05-dutch-farm-worker-covid-mink.html
 
-SPECIES AT RISK FROM SARS-CoV-2
+Two of the largest mink farms in Utah were put under quarantine after animals and employees at the farm tested positive for SARS-CoV-2 infections. "There is no conclusive evidence that the animals played a role in spreading [the virus] to humans," state veterinarian Dean Taylor said. The Salt Lake Tribune (Salt Lake City) (8/17/2020).
+
+SPECIES AT RISK FROM SARS-CoV-2
+
 Analysis of 410 species of birds, fish, amphibians, reptiles and mammals found that about 40% of those that are thought to be highly susceptible to SARS-CoV-2 based on the composition of their angiotensin converting enzyme-2 receptors are considered threatened or endangered, including lowland gorillas, chimpanzees and Siberian tigers. Gray whales, bottlenose dolphins, white-tailed deer and Chinese hamsters are at high risk; cats, cows and sheep are at medium risk; dogs, pigs and horses are at low risk. University of California, Davis (8/21/2020),   
 
  
