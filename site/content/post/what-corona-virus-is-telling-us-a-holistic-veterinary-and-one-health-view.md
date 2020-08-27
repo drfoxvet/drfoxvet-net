@@ -99,8 +99,11 @@ The league of Conservation Voters posted the announcement on April 25th 2020 tha
 
 
 High population densities in confined areas where air is recycled with little fresh-air intake to save energy in heated and air-conditioned apartments and offices are also at risk from airborne infections: Also from exposure to DNA damaging and immunosuppressing electropollution by telecommunication and other devices emitting non-ionizing radiation and electromagnetic fields of varying intensity where they live and work. 5G is of particular concern, close to microwave cooking energy, is documented to kill insects, and is now being installed in U.S. stadiums. Closing them and all crowd-containing events at this time, especially with people being exposed to these forms of electropollution, may be wisely extended.
-  
-A Brief Time-Line of the COVID-19 Pandemic
+
+There is no lack of evidence of linkages between environmental pollutants and immune-related diseases according to Kostoff, R.N., Briggs, M.B., Porter, A.L.et al, The Under-Reported Role of Toxic Substance Exposures in the COVID-19Pandemic, Food and Chemical Toxicology,  https://doi.org/10.1016/j.fct.2020.111687
+
+
+  A Brief Time-Line of the COVID-19 Pandemic
 
 This virus, now causing a global pandemic and named COVID-19 should be renamed COVID-Li-W in honor of the young Chinese doctor Li Wenliang. On 30 December 2019 he warned fellow colleagues about a possible outbreak of an illness that resembled severe acute respiratory syndrome (SARS), later acknowledged as COVID-19, on WeChat. On 3 January 2020, Wuhan police summoned and admonished him for "making false comments on the Internet". Li, a family man, returned to work, later contracted the virus from an infected patient and died from the disease on 7 February 2020, at age 33.. His death was no doubt due in part to the stress of his being apprehended by the police and silenced by the government for spreading “false rumors.” 
 
@@ -210,6 +213,10 @@ Two farms in the Netherlands were quarantined  in April 2020 after mink that wer
 
 The Dutch agricultural minister subsequently reported that a worker at one of the mink farms acquired COVID-19 infection from infected mink, the first indication of animal-to-human cross-infection. Researchers compared the genetic code of the virus found in the mink to that of the patient, creating a "family tree" to map its mutation, minister Carola Schouten said."It is concluded from this investigation that it is plausible that one employee of an infected mink farm was infected by mink," Schouten said in a letter to parliament. Authorities are also looked at the role of feral farm cats in spreading the virus between the two infected farms. Three cats on one of the farms were found to have the virus, the government said last week.
 https://medicalxpress.com/news/2020-05-dutch-farm-worker-covid-mink.html
+
+SPECIES AT RISK FROM SARS-CoV-2
+Analysis of 410 species of birds, fish, amphibians, reptiles and mammals found that about 40% of those that are thought to be highly susceptible to SARS-CoV-2 based on the composition of their angiotensin converting enzyme-2 receptors are considered threatened or endangered, including lowland gorillas, chimpanzees and Siberian tigers. Gray whales, bottlenose dolphins, white-tailed deer and Chinese hamsters are at high risk; cats, cows and sheep are at medium risk; dogs, pigs and horses are at low risk. University of California, Davis (8/21/2020),   
+
  
 
 
@@ -297,6 +304,12 @@ It was not until April 29th that the Centers for Disease Control and Prevention 
 Cats infected experimentally with SARS-CoV-2 transmitted the virus to other cats in a small lab study, researchers reported in The New England Journal of Medicine, (Transmission of SARS-CoV-2 in Domestic Cats May 13, 2020 DOI: 10.1056/NEJMc2013400). But the cats did not develop clinical signs of illness. In 2016, an H7N2 influenza outbreak in New York City cat shelters highlighted the public health implications of cat-to-human transmission to workers in animal shelters. Cats may be a silent intermediate host of SARS-CoV-2, because infected cats may not show any appreciable symptoms that might be recognized by their owners. So vigilance and more monitoring is called for where there are cats in homes where people are infected with the coronavirus and such cats should also be kept indoors and not allowed to roam outdoors.
 
  I have always deplored this indoor-outdoor cat keeping knowing how many cats get killed and injured by traffic, fights and infections, and as super-predators are decimating song bird and other wildlife populations. The notion of “working cats” around homes, barns and warehouses comes from times more ignorant about zoonotic diseases and sanitation. Cats can transmit more diseases to us, especially when they are indoor-outdoor cats and have close contact with family members than human-avoiding wild rodents. Both the American Veterinary Medical Association and the British Veterinary Association in early April urged people who are self-isolating or have COVID-19 symptoms keep their cats indoors because, it is possible that outdoor cats may carry the virus on their fur, just as the virus can live on other surfaces.
+
+Could pets form coronavirus reservoir chain with people?
+
+The few cases of SARS-CoV-2 infection in pet dogs and cats were likely transmitted by people with COVID-19, and scientific evidence shows pets, livestock and wildlife pose a low infection risk to humans, writes Arjan Stegeman, a professor of veterinary medicine at Utrecht University. However, humans could become part of two-species reservoirs with either wild or domestic cats or with mink or ferrets, passing the virus between and among one another, and researchers are developing models to quantify the risk.
+ Full Story: The Conversation (8 https://theconversation.com/pets-livestock-and-wildlife-can-all-catch-coronavirus-does-that-make-them-dangerous-144440/19) 
+
 
 ******************************************
 
