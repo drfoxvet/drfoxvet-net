@@ -6,19 +6,19 @@ date: 2019-02-27T19:49:06.973Z
 
 A narrated slide show that looks at animals and nature from various religious and cultural perspectives that will interest people of all faith traditions, and those who believe in compassion and reverence for all life. This presentation is an excellent classroom discussion point to debate the nature of our duties toward animals and the natural world.
 
-[Animals, Religion and Nature](https://youtu.be/BNAyClqq4cg)
+[Animals, Religion and Nature](https://youtu.be/gq3FOgs6VSI)
 
 ## Cat Behavior and Psychology
 
 A narrated slide show that explores feline communication and body language, behavior, play, socialization, and looks at  various emotional and behavioral problems along with their prevention and treatment.
 
-[Cat Behavior and Psychology](https://youtu.be/rHdA4SAGT7Q)
+[Cat Behavior and Psychology](https://youtu.be/UjyOV_da3Q4)
 
 ## Dog Behavior and Psychology
 
 A narrated slide show that explores canine communication and body language, behavior, play, socialization, and looks at  various emotional and behavioral problems along with their prevention and treatment.
 
-[Dog Behavior and Psychology](https://youtu.be/_2Ufh3hw61A)
+[Dog Behavior and Psychology](https://youtu.be/EoPq8oAvfmg)
 
 ## Eating With Conscience
 
@@ -30,7 +30,7 @@ Eating With Conscience
 
 The advent of genetic engineering biotechnology with its new crops, foods, and drugs, cloned and bioengineered farm animals and organ donor pigs marks the new millennium. Its profound risks, long-term harmful consequences, and what we can do to stop this corporate insanity are detailed in this narrated slide-show and video presentation, with a live concluding statement from Dr. Fox.
 
-[The New Creation](https://youtu.be/RRbZRJL7--c)
+[The New Creation](https://youtu.be/mFRbzyuofew)
 
 ## Project Coyote Interview Video Clips
 
