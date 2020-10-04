@@ -4,6 +4,7 @@ date: 2019-02-27T18:27:41.368Z
 tags:
   - Cats
   - Dogs
+  - Environment
 ---
 This review of current products on the market being sold to kill fleas, ticks and other insects on dogs and cats, assessment of their documented insecticidal action and incidence of harmful side-effects indicates their long-term use for prevention, widely practiced, should be avoided for animal and public health and environmental reasons. Their short-term use in emergency situations of confirmed presence of ectoparasites on companion animals may be justified with caution when all other control measures have failed. Reference is also made to the widespread use of these substances on farmed animals.
 
@@ -56,7 +57,8 @@ This is a driver for marketing unsafe systemic insecticides as profitable preven
 
  The widespread over-use of insecticides and other anti-parasitic drugs to protect livestock in particular, (now being considered for human use in malaria and other insect-born disease “hot spots”) has resulted in the evolution of resistant strains, often more virulent and numerous where there is little natural biodiversity to regulate their numbers. Individual and ecosystem health correlate with optimal biodiversity. This creates the treadmill for ever more potent chemicals and combinations thereof.
 
-While Stockholm tar is not applicable to companion animals, essential oils derived from pine and other botanicals are less toxic alternatives to fiprinil and other synthetic insecticidal and biocidal chemical compounds when properly formulated and applied and many veterinarians are now offering these to their clients such as PetzLife’s Herbal Defense and home prepared lemon rind tea sprits as effective insect repellants.
+While Stockholm tar is not applicable to companion animals, essential oils derived from pine and other botanicals are less toxic alternatives to fiprinil and other synthetic insecticidal and biocidal chemical compounds when properly formulated and applied and many veterinarians are now offering these to their clients and home prepared lemon rind tea sprits as effective insect repellants.
+( For safer ways to control and repel fleas, ticks and mosquitoes see the posting on this website "Preventing Fleas, Ticks and Mosquitoes."
 
 The use of systemic insecticides like fiprinil and fluralaner on companion animals puts those living with them at risk, especially children and other animals in the same home who make contact with treated animals. Therefore, for public as well as legitimate and self-evident animal and environmental health reasons these insecticides should be prohibited for use except by public health and veterinary authorities in times of justified One Health emergency intervention and for bioremediation in ecosystem health care maintenance and recovery to optimize biodiversity.
 
@@ -124,19 +126,22 @@ And  https://www.nrdc.org/stories/nontoxic-ways-protect-your-pet
 
 Powell, K., Foster, C., and Evans, S. Environmental dangers of veterinary antiparasitic agents, Veterinary Record, Nov.17th, 2018,  p 599-600.
 
-<hr>
+Survey of canine use and safety of isoxazoline parasiticides by Valerie Palmieri W. Jean Dodds | Judy Morgan et al Vet Med Sci. 2020;00:1–13. Abstract ----
+
+A veterinarian and pet owner survey (Project Jake) examined the use and safety of isoxazoline parasiticides given to dogs. Data were received during August 1–31, 2018 from a total of 2,751 survey responses. Forty-two percent (1,157) reported no flea treatment or adverse events (AE), while 58% (1594) had been treated with some parasiticide for flea control, and of those that received a parasiticide, the majority, or 83% (1,325), received an isooxazoline. When any flea treatment was given, AE were reported for 66.6% of respondents, with no apparent AE noted for 36.1%. Project Jake findings were compared to a retrospective analysis of publicly available Food and Drug Administration (FDA) and European Medicines Agency (EMA) reported AE. The number of total AE reported to FDA and EMA were comparable, although a 7 to 10 times higher occurrence of death and seizures was reported from the EMA or from outside the United States (US). Serious AE responses for death, seizures and neurological effects reported in our survey were higher than the FDA but moderately lower than the EMA reports. These sizable global data sets combined with this pre and post-parasiticide administration survey indicated that isoxazoline neurotoxicity was not flea- and tick-specific. Post-marketing serious AE were much higher than in Investigational New Drug (IND) submissions. Although the labels have recently been updated, dogs, cats and their caregivers remain impacted by their use. These aggregate data reports support the need for continued cross-species studies and critical review of product labelling by regulatory agencies and manufacturers.
+
+FOIA FDA: Total Nexgard Reports = 14,116 that contain 47,550 Events; Deaths = 341/14116 ( 2.4%); Seizures = 981/14116 ( 6.97%) Total Bravecto Reports = 16,896 that contain 45,924 Events; Deaths = 416/16896 (2.5%); Seizures = 468/16896 (2.8%) Total Simparica Reports = 1,361 that contain 5,977 Events; Deaths = 44/1361 (3.2%); Seizures = 279/1361 ( 20.5%) 1–8FOIA: CVM ADE Comprehensive Clinical Detail Report Listing, Cumulative Date Range:-Jan-2013 - Sept-2017.
+Adverse consequences include:: Death. Seizures.  Shaking/Tremors/Ataxia. Behavioural Issues. Neurological/Cognitive. Muscular/Balance Issues. Skin Problems/Itching. Internal Bleeding. Anaemia. Vomiting/Nausea. Not Eating/Drinking. Diarrhea
+*****************************************************************
 
 Receiving a query from a CNN reporter I was alerted to this proposal to use these kinds of drugs in poor communities at risk from insect born diseases, which gives pause for thought:
 
 ## ORAL INSECTICIDES FOR PEOPLE
 
-Repurposing isoxazoline veterinary drugs for control of vector-borne human diseases
-
-Marie Miglianico, Maarten Eldering, Hannah Slater, Neil Ferguson, Pauline Ambrose, Rosemary S. Lees, Karin M. J. Koolen, Katerina Pruzinova, Magdalena Jancarova, Petr Volf, Constantianus J. M. Koenraadt, Hans-Peter Duerr, Graham Trevitt, Baiyuan Yang, Arnab K. Chatterjee, John Wisler, Angelika Sturm, Teun Bousema, Robert W. Sauerwein, Peter G. Schultz, Matthew S. Tremblay, and Koen J. Dechering
-
-PNAS July 2, 2018. 201801338; published ahead of print July 2, 2018. https://doi.org/10.1073/pnas.1801338115
+Repurposing isoxazoline veterinary drugs for control of vector-borne human diseases by Marie Miglianico, Maarten Eldering, Hannah Slateret al PNAS July 2, 2018. 201801338; published ahead of print July 2, 2018. https://doi.org/10.1073/pnas.1801338115
 
 Reduction in clinical cases of vector-borne diseases is strongly dependent on the ability to reduce the number of infectious insect bites. Here we describe a treatment concept based on single-dose administration of an insecticidal isoxazoline drug to a human population, which leads to killing of blood-fed insect vectors and a predicted sharp decline in disease transmission. Based on the long half-life observed in preclinical species, a single human dose of <500 mg is predicted to provide plasma exposure above the insecticidal threshold for longer than 2 months. Importantly, we show that isoxazolines are active against a range of vector species, which holds promise for expanding the concept of drug-based vector control from malaria to leishmaniasis and arboviral diseases.
+*******************************************************************
 
 The author appreciates the helpful suggestions of Dr. W. Jean Dodds in preparing this review.
 
