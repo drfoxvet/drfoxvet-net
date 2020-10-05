@@ -24,7 +24,7 @@ A narrated slide show that explores canine communication and body language, beha
 
 We are what we eat. As a nation we are unhealthy, most of the health problems being due in large measure to the kinds of food we eat, and how that food was produced. This DVD takes you into factory farms along with Dr Fox as he makes his journey of exposure, of animal sickness and suffering, and crop diseases and toxic pesticides, to finding solutions to the looming health crisis. This will take generations to resolve because what the mother eats affects the fetus. The sooner we act, ---eating and farming with conscience, the fewer will be harmed.
 
-Eating With Conscience
+[Eating With Conscience](https://youtu.be/c0ybq4GgMWA)
 
 ## The New Creation
 
