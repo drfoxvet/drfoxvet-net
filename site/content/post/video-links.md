@@ -8,17 +8,17 @@ A narrated slide show that looks at animals and nature from various religious an
 
 [Animals, Religion and Nature](https://youtu.be/gq3FOgs6VSI)
 
-## Cat Behavior and Psychology
+## Cat Behavior and Psychology Plus Massage Therapy
 
 A narrated slide show that explores feline communication and body language, behavior, play, socialization, and looks at  various emotional and behavioral problems along with their prevention and treatment.
 
-[Cat Behavior and Psychology](https://youtu.be/UjyOV_da3Q4)
+[Cat Behavior and Psychology Plus Massage Therapy](https://youtu.be/UjyOV_da3Q4)
 
-## Dog Behavior and Psychology
+## Dog Behavior and Psychology Plus Massage Therapy
 
 A narrated slide show that explores canine communication and body language, behavior, play, socialization, and looks at  various emotional and behavioral problems along with their prevention and treatment.
 
-[Dog Behavior and Psychology](https://youtu.be/EoPq8oAvfmg)
+[Dog Behavior and Psychology Plus Massage Therapy](https://youtu.be/EoPq8oAvfmg)
 
 ## Eating With Conscience
 
