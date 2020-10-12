@@ -15,6 +15,7 @@ Pinch of salt\
 1 T. cider vinegar\
 1 t. brewer's yeast\
 1 T calcium citrate/ or lactate, or human-grade bone meal
+1 T unsweetened, shredded coconut
 
 Ideally, all ingredients should be Organically Certified.
 
