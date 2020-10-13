@@ -58,12 +58,18 @@ These problems are compounded by the fact that most of the corn, soy and sugar b
 
 COMPLEX CARBOHYDRATES IN PET FOODS
 The recent trend of pet food manufacturers to market “grain free” cat and dog food has been a contributing factor in some animals developing heart disease (dilated cardiomyopathy). But the various kinds of fiber in the complex carbohydrates of whole grains (and buckwheat) can help prevent obesity and other health problems in both dogs and people. Such grains have no place in cat foods, so often having corn and rice as major ingredients, but some fiber in cat foods can be beneficial.
+
 High calorie, meat and fat diets and treats for dogs play a major role in the companion animal obesity health crisis. In 2018, an estimated 60% of cats and 56% of dogs in the United States were overweight or obese. ( See https://petobesityprevention.org/).
- Genetic factors, owner’s life-styles, eating habits and activity levels of both the animals and their care-givers also play a role in this health crisis. Such diets are also a major factor in dogs and cats developing pancreatitis with secondary diabetes in some dogs. High carbohydrate diets are in large part responsible for obesity, diabetes and other health problems in cats and for pancreatic enzyme insufficiency in some dogs, especially German shepherds.  
+ Genetic factors, owner’s life-styles, eating habits and activity levels of both the animals and their care-givers also play a role in this health crisis. Such diets are also a major factor in dogs and cats developing pancreatitis with secondary diabetes in some dogs. High carbohydrate diets are in large part responsible for obesity, diabetes and other health problems in cats and for pancreatic enzyme insufficiency in some dogs, especially German shepherds. 
+ 
 Complex carbohydrates in grains and seeds, (ideally organic, minimally processed such as brown rice, barley, oats, quinoa, amaranth), include fibers that are beneficial for gut bacteria, and starches that break down into energy-providing glucose or is stored in muscle as an energy reserve  of glycogen or is converted into fat. Complex carbohydrates slow and facilitate digestion, make for regular bowel movements, firm stools and satiety, important in weight control with lower fat intake. Pregnant and nursing dogs and their pups thrive better with complex carbohydrates in their diets than when fed grain-free foods. 
+
  The grain-free pet food craze has caused another set of health problems in dogs ( dilated cardiomyopathy) which in my opinion is attributable to high levels of legumes/pulses like pea flour and potatoes that are high in lectins that can block uptake of essential nutrients like cardioprotective taurine.
+
 Food preference studies find health dogs prefer a diet of 36% carbohydrate, 30% protein and 41% fat. Some individual dogs and breeds such as the Irish setter and Wheaten terrier can have a dietary intolerance to wheat. Wheat and soy are the most common causes of adverse food reactions in dogs and some are allergic to beef, dairy, chicken and wheat in particular.
+
 So my advice to dog owners with dogs not requiring special diets ( best available from www.Secure.balanceit.com) to make sure, as per my home-prepared recipe posted on my website www.drfoxonehealth.com, to be sure that some complex carbohydrates are included in their daily meals.
+
 Thanks to Drs. A. Rankovic, J. L. Adolphe and A. Verbrugghe for their article’ Role of carbohydrates in the health of dogs’. Journal of the American Veterinary Medical Association, 255: 546-554, 2019. 
 To calculate carbohydrates in a
  pet food, you can utilize the required information in the Guaranteed Analysis listed on a pet food label. As example, a GA might list:
@@ -81,6 +87,7 @@ This is only an estimate, but the standard method to calculate carbs in a pet fo
 
 
 SOY CONCERNS
+
 Some vegetable ingredients such as soy in dog foods, especially in dry kibble, are pro-inflammatory, inflammation leading to a variety of health issues in humans as well.
 Soy consumption, adhesion molecules, and pro-inflammatory ...
 https://www.ncbi.nlm.nih.gov › pubmed
@@ -88,9 +95,21 @@ by KM Beavers - ‎2009 - ‎Cited by 49 - ‎Related articles
 Nutr Rev. 2009 Apr;67(4):213-21. doi: 10.1111/j.1753-4887.2009.00191.x. Soy consumption, adhesion molecules, and pro-inflammatory cytokines: a brief ...
 
 CORN CONCERNS
-Corn in cat and dog food and can cause various health problems from seizures to inflammatory bowel disease, It categorically has no place in a cat's diet and its inclusion is unethical and grossly irresponsible. According to  Susan Thixton Pet Food Safety Advocate (TruthaboutPetFood.com,) " Corn is the most commonly used pet food ingredient – almost 1 million tons of corn is included in cat and dog foods than ANY other ingredient. In July 2019, 98% of corn samples tested in the US were “positive for at least one mycotoxin“, “74% of samples have more than one mycotoxin“. Even low levels of mycotoxins in pet food can result in serious illness. "
+
+Corn in cat and dog food and can cause various health problems from seizures to inflammatory bowel disease, It categorically has no place in a cat's diet and its inclusion is unethical and grossly irresponsible. According to  Susan Thixton Pet Food Safety Advocate (TruthaboutPetFood.com,) " Corn is the most commonly used pet food ingredient – almost 1 million tons of corn is included in cat and dog foods than ANY other ingredient. In July 2019, 98% of corn samples tested in the US were “positive for at least one mycotoxin“, “74% of samples have more than one mycotoxin“.
+ Even low levels of mycotoxins in pet food can result in serious illness. "
+
 The Institute for Feed Education and Research, the North American Renderers Association, and the Pet Food Institute recently published an interesting report; “Pet Food Production and Ingredient Analysis“. The report brags the pet food industry stimulates “the overall agricultural economy through the purchase of ingredients, labor and services from related industries“. 
 Most commercially grown corn is genetically modified (GMO) to be herbicide -resistant which means the corn is contaminated with routinely sprayed glyphosate ( as is much wheat just before harvest to accelerate drying). GMO corn also produces the insecticide Bt which is not a healthful food ingredient. 
+
+Pet Food Ingredient Allergies in Dogs and Cats
+
+From Ralf S. Mueller, Thierry Olivry,  and Pascal Prélaud Critically appraised topic on adverse food reactions of companion animals (2): common food allergen sources in dogs and cats. BMC Vet Res. 2016; 12: 9. Published online 2016 Jan 12. doi: 10.1186/s12917-016-0633-8:
+
+In dogs living in Australia, Europe or North America, the allergens most likely contributing to cutaneous adverse food reactions CAFR) are beef, dairy products, chicken, wheat and lamb. As a result, these foods should be the first used for allergen provocation for CAFR diagnosis. In cats, the most common allergens causing CAFRs are beef, fish and chicken.
+Other less commonly reported offending food sources were soy (18 dogs, 6 %), corn (13 dogs, 4 %), egg (11 dogs, 4 %), pork (7 dogs, 2 %), fish and rice (5 dogs each, 2 %). Barley, rabbit, chocolate, kidney bean and tomato were also reported as food allergens for single dogs. 
+The food sources most frequently causing CAFR in cats were beef, fish, chicken, wheat, corn, dairy products and lamb. Egg, barley and rabbit were also reported as offending allergens in individual cats.
+
 
  
 FERMENTED FOODS GOOD FOR OUR DOGS---AND US
