@@ -7,8 +7,9 @@ tags:
   - Cats
   - Dogs.
 ---
-     SAYING “NO! TO WILD AND “EXOTIC” ANIMALS SOLD AS PETS
-                     By Dr. Michael W. Fox 
+ SAYING “NO! TO WILD AND “EXOTIC” ANIMALS SOLD AS PETS
+
+                                  By Dr. Michael W. Fox 
 Some people think it is great to own some exotic or wild animal, which they soon learn will never become a “pet” and often die in captivity with no local veterinary expertise available. This market, blindly sustained by people wanting to feel closer to “Nature” is actually destroying Nature: natural ecosystems plundered by wildlife poachers and “legal” collectors for the international market, and targeted species becoming increasingly endangered and, in many places, now extinct. America’s wild turtles/tortoises are notably in peril. from collectors and habitat reduction and degradation.
 
 The international wildlife trade, tied in with sex and drug-trafficking cartels, is a Pandora’s box of potential zoonotic, animal-to-human diseases, the COVID-19 pandemic being one. 
