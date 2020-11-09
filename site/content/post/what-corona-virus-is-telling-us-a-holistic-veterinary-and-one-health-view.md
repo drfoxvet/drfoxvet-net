@@ -328,7 +328,9 @@ In June 2020 it was reported that a German shepherd dog in New York that display
 
 
  Also, in that month a cat in Minnesota belonging to someone who tested positive for COVID-19 was found to be infected with SARS-CoV-2, but a dog in the household shows no signs of illness, according to the state Board of Animal Health. A veterinarian tested the cat for the novel coronavirus when it presented at the clinic with a 105-degree fever and clinical signs of an upper respiratory illness.
-On July 10th 2020 the Dallas Morning news reported a healthy 2-year-old Yorkie dog whose owners had a SARS-CoV-2 infection also tested positive, according to the Texas Animal Health Commission
+A 16-year-old cat with severe respiratory illness was humanely euthanized and diagnosed with a SARS-CoV-2 infection, according to Pennsylvania State Veterinarian Kevin Brightbill. The cat lived in a home with several people who had positive COVID-19 tests, and while there is no evidence that pets can transmit the virus to people, anyone with a confirmed SARS-CoV-2 infection should take precautions to prevent transmitting it to pets, says veterinarian Suresh Kuchipudi, a clinical professor of veterinary science at Pennsylvania State University. Full report  Pennsylvania State University (10/20) 
+
+On July 10th 2020 the Dallas Morning news reported a healthy 2-year-old Yorkie dog whose owners had a SARS-CoV-2 infection also tested positive, according to the Texas Animal Health Commission.
 
 In early May 2020 a cat in Spain that died from a common feline respiratory condition tested positive for SARS-CoV-2, according to the results of a necropsy, making the cat one of a handful worldwide to test positive for the coronavirus. The cat belonged to a family that had tested positive for the virus, but its viral level was low, and there is no evidence pets can transmit the virus to people, says Professor Joaquim Segales of the Animal Health Research Center in Catalonia.
 
