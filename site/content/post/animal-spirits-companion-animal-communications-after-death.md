@@ -3,7 +3,7 @@ title: 'Animal Spirits: Companion Animal Communications After Death'
 date: 2020-10-05T15:28:26.355Z
 tags:
   - Dogs
-  - Cits
+  - Cats
   - Spiritual
 ---
 ANIMAL SPIRITS
