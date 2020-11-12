@@ -1,5 +1,5 @@
 ---
-title: Keeping cats Healthy and Happy Indoors
+title: Keeping Cats Healthy and Happy Indoors
 date: 2020-11-12T14:53:49.662Z
 tags:
   - cats
