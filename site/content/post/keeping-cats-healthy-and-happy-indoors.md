@@ -7,7 +7,7 @@ tags:
   - Ethics
 ---
 KEEPING CATS HEALTHY AND HAPPY INDOORS
-Prepared in collaboration with Joan Hargrove.
+Prepared in collaboration with Joan Hargrave.
 
 1) Free-roaming cats are needlessly killed and exposed to harm by many outdoor dangers.
 Cats kept indoors live better and longer lives than cats allowed to roam outdoors. The average life span of a cat is dramatically shorter for those that roam freely — by as much as 10-12 years. Free-roaming cats are vulnerable to many dangers, such as:
