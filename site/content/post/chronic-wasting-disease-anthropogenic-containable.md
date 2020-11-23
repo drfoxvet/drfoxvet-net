@@ -4,6 +4,7 @@ date: 2020-11-23T16:47:04.571Z
 tags:
   - Wildlife
   - Environment
+  - Conservation
 ---
   CHRONIC WASTING DISEASE: ANTHROPOGENIC? CONTAINABLE?
           From AHVMA Journal • Volume 59 Summer 2020 p. 16-18
