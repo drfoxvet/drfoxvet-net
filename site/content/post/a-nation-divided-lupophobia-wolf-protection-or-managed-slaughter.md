@@ -44,23 +44,6 @@ Within every culture there are sub-cultures and cults defined by demographics, e
 
 The public conflict over the fate of the Gray wolf has made this species an icon of opposing values and cultural discord. Resolution is called for through conciliation, legal protection of wolves with a ban on sport hunting and commercial trapping backed by effective enforcement and inspiration through education, of the sanctity, rights and inherent value of wolves and all indigenous species and communities, human and non-human.  The fate of the wolf in North America will be a measure of the success or failure of civil society to put compassion and reason, justice and respect to bear on all our relations and relationships.
 
-## AFTERTHOUGHT
-
-_Our blood is red from the air we share_
-
-_Thanks to all things green---_
-
-_The grasses, trees and those unseen,_
-
-_In a world where stones become our bones_
-
-_And the rains all life sustains._
-
-_But blood we spill and few dare care._
-
-_Green people and their wolves may soon be gone_
-
-_So who will know, remember all was one?_
 
 We should not forget that like most humans, wolves are predators; form strong emotional bonds and have familial ties, they and we play and sing, show empathy, manifest highly evolved communication, cooperation and survival skills, care for and protect the young and injured, and also on occasion fight and kill, even eat each other. But unlike us, wolves do not engage in genocide, their virtual extermination across some 90 percent of their range in North America paralleling the European insurgents’ systematic annihilation of indigenous First Peoples. We are now too many to continue to live as a predator-species, and adopting a gentler mode of existence is the last hope for the survival and sanity of humanity and for the recovery of social justice, eco-justice and a sustainable global economy. 
 
@@ -68,6 +51,86 @@ We should not forget that like most humans, wolves are predators; form strong em
 
 _\- Farley Mowat, 1921-2014, Never Cry Wolf_
 
-<br>
+ADDENDA
 
-_Dr. Fox writes the nationally syndicated newspaper column “Animal Doctor” and authored The Soul of the Wolf._
+  THE MANY VALUES OF WOLVES JUSTIFYING THEIR PROTECTION
+
+By Michael W. Fox BVetMed, PhD, DSc, MRCVS
+(Testimony given at public hearing before the U.S. Fish & Wildlife Service, Dept. of the Interior, Brainard MN June 25th 2019)
+
+ I speak before you today as a veterinarian, scientist, bioethicist and author, and also speak on behalf of my daughter Camilla Fox’s organization- Project Coyote -a national non-profit that promotes compassionate conservation and coexistence between people and wildlife. My appeal to the U.S. government is to value and protect wolves whose behavior, development and communication I have researched and whose socialized affection for me and my family and friends gave a deeper insight into their nature and sense of self and other. While they are predators who must kill to survive, they are also highly empathic, gentle, caring, playful and protective, virtues we might better emulate. Former government wolf exterminator-turned conservationist, the late Aldo Leopold wrote: “We reached the old wolf in time to watch a fierce green fire dying in her eyes. I realized then, and have known ever since, that there was something new to me in those eyes – something known only to her and to the mountain. I was young then, and full of trigger-itch; I thought that because fewer wolves meant more deer, that no wolves would mean hunters’ paradise. But after seeing the green fire die, I sensed that neither the wolf nor the mountain agreed with such a view.”
+     The existential values of wolves far exceed their material value to the trapper, self-gratification of the trophy hunter and the environmental and ecological sustainability value of free-range cattle and sheep. These existential values are derived variously from sound science, veterinary bioethics, cultural anthropology and public sensibility.
+    * Wolves are of environmental value as apex predators, their many ecological services optimizing sustainable biodiversity.
+     *Wolves are of wildlife health value, removing sick, infirm and aged deer and other prey, keeping herds healthy, most probably limiting the spread of Chronic Wasting disease (CWD) and other contagious and infectious diseases. 
+     *Wolves are of forest and woodland regenerative value, preventing over-browsing by deer and other cervids through control of numbers allowing saplings to survive and thrive.  
+     *Wolves are of public health value, their trophic effects on ecosystems helping reduce the incidence and extensiveness of Lyme and other tick-borne diseases. 
+     * Wolves are of value to smaller, commensal carnivores like the red fox in limiting the incursion of prey-competing coyotes and feral dogs into some ecosystems.
+     *Wolves are of value as an indicator species of ecosystem health and as teachers and healers.
+     * Wolves are of symbolic, recreational, educational, scientific, heuristic, artistic and spiritual value to civil society.
+      *Wolves are of totemic and religious value to indigenous peoples and others of like mind who treat them with reverential respect.
+     * Wolves are of intrinsic value in and for themselves as emotionally and cognitively intelligent, sentient, social beings with rights, interests and entitlements as an indigenous species.
+
+From a bioethical perspective these existential values far outweigh a wolf’s worth to hunters, trappers and sentiment of the lupophobic, and call for the protection of wolves from human depredation and habitat encroachment.
+
+With livestock keepers being compensated for veterinary-certified losses provided they have incorporated non-lethal methods of predator control and prevention, particularly including recognized breeds of guard dogs in their animal husbandry, fewer wolves would be killed legally and illegally.
+
+Deer-hunters and others who see wolves as competing and depleting state--managed deer herds and deer on private land need to step back and at least not eat any meat not tested for CWD, arguably an anthropogenic disease. (for details visit www.drfoxonehealth.com):  Or feed it to dogs, cats and other animals known to be susceptible to prion diseases like CWD. 
+
+It is not too late to care for the whole, which some call holy. As Henry David Thoreau declared, “In wildness is the preservation of the world.” Every state should foster their wolf populations in viable, protected and monitored habitat areas of the wolf’s original range out of enlightened self-interest and the Federal government can enforce same for Canis lupus and all sub-species throughout the United States.
+
+ The precarious status of the wolf and other endangered species and their habitats in N. America are indicative of a nation divided. The de-listing of the wolf from federal protection under the Endangered Species Act will do to this indigenous species what the dominant culture did to indigenous peoples one or two generations ago. To make America great, the rights and interests of all must be upheld without distinction as to species, race or religion. Reverential respect for all life is the hallmark of a truly democratic society and the path to One Health and justice for all.
+
+WOLF PROTECTION CAN IMPROVE PUBLIC & DEER HEALTH
+
+ On November 16th,2018 House members of  Congress, including Minnesota’s soon-to-be Governor Tim Walz, passed the bill, HR 6784, the "Manage Our Wolves Act" which, if passed in the Senate, will allow states to return to wolf trophy hunting and trapping and removes any opportunity for judicial review, which is a dangerous precedent. Ceding Federal protection under the Endangered Species Protection Act to State wildlife management has been opposed by scientists and conservationists and a large public constituency of wildlife protection. The livestock sector that supports wolf eradication is now recognized as one of the world’s major contributors to climate change and loss of biodiversity.
+
+ Wolves need to be protected and their numbers increased so the whitetail deer over-population and related health-problems can be rectified. Chronic wasting disease (CWD) in whitetail deer and other ungulates is spreading across the U.S., now reported in 22 states. While deer ranches can be one source of infection, seeking to manage a large deer population for recreational hunting---essentially wildlife farming---and winter feeding, coupled with predator control, especially of wolves, creates the perfect storm for the spread of CWD. 
+
+Outdoors reporter Dennis Anderson’s appeal (StarTribune March 9/18) to the legislature to limit the scourge of CWD in the state’s deer herd by ideally getting rid of deer and elk farms and at least making them secure with double fencing and regular inspections should not fall on deaf ears. A variant of the prions that cause chronic wasting disease in deer, moose and elk across many states caused mad cow disease in the U.K., decimating the beef industry and resulting in brain disease in humans and some companion animals. According to researchers at The University of Texas Health Science Center at Houston (UTHealth), grass plants can bind, uptake and transport infectious prions which are single proteins that cannot be destroyed by typical “kill strategies” such as extreme heat or ultraviolet light. They discovered that even highly diluted amounts of the material can bind to the roots and leaves. From there, they fed the wheat grass to hamsters, which became infected with the disease. The team also found the infectious prion proteins in plants that had been exposed to urine and feces from prion-infected hamsters and deer.
+
+ The Bureau of Microbial Hazards (BMH), Food Directorate, Health Products and Food Branch, Health Canada posted on April 26, 2017 a Risk Advisory Opinion: Potential Human Health Risks from Chronic Wasting Disease because CWD has been transmitted to cynomolgus macaques (the non-human primate species most closely related to humans that may be used in research), through both the intracranial and oral routes of exposure. Both infected brain and muscle tissues were found to transmit disease. 
+
+The probability of transmission to cattle, sheep and goats and to humans consuming infected meats and crops from corn to cabbages contaminated by infected deer feces and urine is considerable and concerted action is called for at this time to prevent such a potentially catastrophic eventuality.
+
+Against these research findings, what are the best strategies to control CWD for Minnesota and other State departments of natural resources, wildlife management and animal and public health?  Clearly in Minnesota, high concentrations of deer encouraged by private land owners, deer farms and even the DNR for deer hunters in many zones across the state need to be ecologically managed. “Eco-health” is maximized by protecting optimal numbers of carnivore species, wolves in particular and cougars in other States that may have some immunity to prion infection, who cull weak and sickly deer and prevent high densities that can mean over-brazing and destruction of habitat.
+
+ Leading wildlife biologists cited by Tod Wilkinson in his December 11, 2017 Mountain Journal article “The Undeniable Value of Wolves, Bears, Lions and Coyotes In Battling Disease: Will The Fairy Tale Mentality Of Western States Against Predators Hamper Their Ability To Slow Chronic Wasting Disease”? are unanimous in recognizing the role of predators in controlling CWD.
+
+ Their systematic extermination over the past two centuries especially by the livestock industry has facilitated the spread of this disease across the U.S. and Canada. In this article Kevin Van Tighem, a hunter and former superintendent of Banff National Park in Alberta’s Canadian Rockies opines, “I don’t know of a single credible biologist who would argue that wolves, along with other predators and scavengers, aren’t important tools in devising sound strategies for dealing with CWD.” Van Tighem says it can be rationally argued that wolves provide the best line of defense since they are confronting infected animals. So those States blessed with viable wolf populations need to recognize the role of these predators in ecosystem management and protect such large carnivores from human predation and maintain maximal wolf numbers to optimize deer and elk herd health rather than de-listing the wolf from Federal protection as an endangered species to allow trophy hunting, trapping and snaring.
+
+Bovine Tuberculosis (bTB) in deer, transmissible to cattle, follows a similar pattern of high deer numbers. As Michigan State university veterinary
+epidemiology professor Paul Bartlett opines, “My conclusion a long time ago was
+that if you raise deer like feedlot cattle they’re going to get a feedlot cattle disease.” 
+
+In addition to bTB white tail deer can also transmit other diseases to cattle and humans including Q Fever, Brucellosis and may infect cattle with EHD, epizootic hemorrhagic fever. Also, Leptospirosis, which causes reproductive failure, anemia, liver and kidney disease in ruminants and is typically shed in the urine of infected animals. People acquire the infection by oral ingestion and contact with contaminated urine, placenta, and fetal tissues. The organism can infect hosts through abraded skin. Salmonellosis, campylobacterosis, listeriosis, yersiniosis, cryptosporidiosis and giardiasis are acquired from deer by contact and accidental oral ingestion of fecal material from infected animals.
+
+ Concerning the rising incidence of Lyme disease in humans, Sam R Telford, III, Department of Infectious Disease and Global Health, Tufts University Cummings School of Veterinary Medicine asserts that reducing deer numbers in many regions is called for but is opposed socio-politically. Even though deer do not transmit Lyme disease to ticks, encouraging large deer populations for the hunting industry will mean an increase in adult female ticks feeding on deer. With fewer deer there would be fewer larval and nymphal-stage ticks being born to feed on small to medium animals, such as mice, chipmunks, shrews, or birds infected with Lyme disease thus lowering human risk. But reducing the deer population in small areas may lead to higher tick densities resulting in more tick-borne infections in rodents leading to a high prevalence of tick-borne diseases and creating a tick “hot-spot” according to Dr. S.E. Perkins and associates from the Center for Infectious Disease Dynamics,  Pennsylvania State University, These findings confirm the importance of DNR management practices encouraging thriving populations of smaller carnivore species to help control rodent numbers, especially as a ‘buffer’ when there is over-harvesting of deer in some hunting zones and seasons. 
+
+Surely it is time for all State and Federal wildlife agencies to implement ecologically sound wildlife management practices that improve deer health and not continue to put livestock and humans at risk from several diseases by maximizing natural biodiversity. This must include protection of wolves and other predators and not rely on human predation for a few weeks of hunting every year during the breeding season to limit deer population densities. Allowing the hunting and trapping of wolves will only make matters worse. 
+Can wolves guard Yellowstone's gates against CWD?
+
+Preliminary results of a study in Yellowstone National Park suggest that the park's wolf packs are helping prevent chronic wasting disease outbreaks in wild deer and other cervids by killing sick animals before they spread the prions that cause CWD, says study leader Ellen Brandell, a doctoral student in wildlife ecology at Pennsylvania State University. Natural predation probably won't make a difference where CWD is already endemic, but predators could prevent it from establishing itself elsewhere, Brandell says. Full Story: The New York Times (tiered subscription model) (11/13’2020)
+ 
+AFTERTHOUGHT:
+Our blood is red from the air we share
+
+Thanks to all things green---
+
+The grasses, trees and those unseen,
+
+In a world where stones become our bones
+
+And the rains sustain all life we kill
+
+Spilling blood while few feel shame or care.
+
+Green people and the wolves may soon be gone
+
+So who will know once all were one?
+
+
+
+
+
+
+
