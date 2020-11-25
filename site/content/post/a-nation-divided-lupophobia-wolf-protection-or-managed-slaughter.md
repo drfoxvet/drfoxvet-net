@@ -112,6 +112,7 @@ Can wolves guard Yellowstone's gates against CWD?
 Preliminary results of a study in Yellowstone National Park suggest that the park's wolf packs are helping prevent chronic wasting disease outbreaks in wild deer and other cervids by killing sick animals before they spread the prions that cause CWD, says study leader Ellen Brandell, a doctoral student in wildlife ecology at Pennsylvania State University. Natural predation probably won't make a difference where CWD is already endemic, but predators could prevent it from establishing itself elsewhere, Brandell says. Full Story: The New York Times (tiered subscription model) (11/13’2020)
  
 AFTERTHOUGHT:
+
 Our blood is red from the air we share
 
 Thanks to all things green---
