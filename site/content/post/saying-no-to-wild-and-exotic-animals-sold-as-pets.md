@@ -32,6 +32,10 @@ Salmonella Outbreaks Linked to Exotic Pets
 
 The CDC is investigating Salmonella Muenster infections in 13 people from eight states, 10 of whom said they had been in contact with a bearded dragon. Also under investigation is an outbreak of Salmonella Typhimurium that has infected 32 people in 17 states, and 16 of 23 who were interviewed after becoming ill reported contact with a pet hedgehog. Full Story: CNN (10/1)
 
+A salmonellosis outbreak that has sickened at least 32 people, four of whom were hospitalized, in six Canadian provinces has been traced to pet hedgehogs, according to public health officials. Kissing or cuddling hedgehogs raises the risk of contracting salmonellosis, which can be particularly dangerous in children younger than 5, the Public Health Agency of Canada says.
+ Full Story: CBC News (Canada) (12/1/2020) 
+
+
 World fails to Meet Every UN Biodiversity Goal
 
 We have not met any of the 20 United Nations biodiversity targets agreed on by almost 200 nations in 2010 in Aichi, Japan. There are hopeful signs to build on: in the last ten years, the rate of deforestation has fallen globally by about a third, and good fisheries-management policies have paid dividends. And 44% of key biodiversity areas are now protected, compared with 29% 20 years ago. These must inspire us to make “a significant shift away from ‘business as usual’ across a broad range of human activities” heading into the next Convention on Biological Diversity (CBD) summit, says the report. One area that is ripe for reform is government subsidies for harmful agriculture, fossil fuels and fishing practices. “We are still seeing so much more public money invested in things that harm biodiversity than in things that support biodiversity,” says David Cooper, the report’s lead author. Reference: Global Biodiversity Outlook report
