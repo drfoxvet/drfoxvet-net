@@ -4,6 +4,7 @@ date: 2019-02-27T18:31:16.115Z
 tags:
   - Cats
   - Dogs
+  - Environment
 ---
 This topic is important because of the adverse reactions many animals have to the new anti-flea and tick medicines; the environmental and public health risks of these chemicals; the suffering of animals allergic to fleas and other insects; and the increasing risks of tick-born and other insect-transmitted diseases.
 
@@ -18,6 +19,15 @@ The US government’s Environmental Protection Agency announced in May 2009 that
  Veterinarian Dr. W. Jean Dodds, in Animal Wellness journal, Spring 2020, advises cat and dog owners to avoid isoxazoline-containing flea and tick meds, as in Bravecto, Nexgard, Simparica, Credelio and the recently FDA approved Revolution Plus. 
 
  Other products to control companion animal parasites include neonicotinoids and avermectins which get into the environment from animals' coats and feces. Drs. Little and Boxall attest that "The indiscriminate prophylactic use of antiparasitic drugs in companion animals is irrational, wanton, unnecessary, irresponsible and ecologically dangerous. It should not be considered good practice." ( statement from their letter, Environmental pollution from pet paraciticides,  published in the U.K.'s Veterinary Record, Jan 25th 2020).
+
+, The Seresto collar for dogs and cats which purportedly lasts 8 months, from Bayer drug company, contains insecticides that are of concern especially to children petting the animal and dogs getting into a stream or lake and poisoning the life therein. Also, what about the animals inhaling these volatile chemicals in the collar around their necks? I say nuts to this. The active ingredients are imidacloprid (10%) and flumethrin (4.5%). Imidacloprid, which affects the central nervous system of fleas, is a member of the neonicotinoid class of insecticides; flumethrin, which repels and kills ticks, is in the pyrethroid class. 
+
+Cats are very sensitive to pyrethroids, and the neonicotinoids, which could cause seizures in dogs, are killing off the bees and other beneficial insects. Widely used in agriculture and on farmed animals, the pet component of this agribusiness chemical industry is a profitable spin-off and we all should boycott and opt for safer alternatives as posted herewith.
+
+I have yet to see any evidence that any of these kinds of products fully and effectively prevent fleas and ticks from biting into the animals and transmitting Lyme and other diseases and with fleas, causing flea-bite allergy "hot spots". 
+
+I am also concerned about microparticles of these and other chemicals in the “Spot-On” products like Bravecto in animals’ “dander” in people’s homes, and in house-dust; of them entering the environment when pets are bathed; from the plastic collars being improperly disposed of and leaching these insecticides into our ground-water and sewage wastes used as agricultural and horticultural fertilizer. The waste waters from slaughter houses and tanneries processing livestock and poultry treated liberally with these insecticides in dips and sprays and feed, is pause for concern.
+
 
 
 ## A HOLISTIC APPROACH
