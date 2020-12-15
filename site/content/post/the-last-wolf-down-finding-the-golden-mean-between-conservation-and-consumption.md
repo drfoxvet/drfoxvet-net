@@ -4,7 +4,7 @@ title: >-
   Consumption
 date: 2020-12-01T17:25:23.222Z
 tags:
-  - Wloves
+  - Wolves
   - Conservation
   - Environment
 ---
