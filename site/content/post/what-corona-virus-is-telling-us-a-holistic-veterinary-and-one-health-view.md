@@ -1,17 +1,17 @@
 ---
-title: >-
-  WHAT SARS-CoV-2 AND COVID-19 DISEASE CORONA VIRUS COVID-19         ARE TELLING
-  US:  A HOLISTIC VETERINARY AND ONE HEALTH VIEW
-date: 2020-02-29T00:21:12.682Z
+title: 'Preventing Future Pandemics and Zoonotic Diseases: A One Health Perspective'
+date: 2020-12-15T00:21:12.682Z
 tags:
   - Environment
+  - Ethical Issues
+  - Farmed Animals
+  - Conservation
 ---
             
-               
-        WHAT SARS-CoV-2 AND COVID-19 DISEASE CORONA VIRUS COVID-19
-        ARE TELLING US:  A HOLISTIC VETERINARY AND ONE HEALTH VIEW
-                                          By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
-                                                                            SYNOPSIS
+Preventing Future Pandemics and Zoonotic Diseases: A One Health Perspective
+         By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
+                                                                            
+SYNOPSIS
 
 This emerging disease and others that are likely to become pandemics in the future, call for ever more vaccines and medications, which are not-risk-free, so long as preventive medicine remains human-centered and does not address, under the banner of One Health, wildlife farming, poaching and trafficking, habitat encroachment, our ever-increasing human numbers and consumption of animals wild and domesticated.
 
@@ -24,8 +24,7 @@ COVID-19 “is but the latest example of an unexpected, novel, and devastating p
 
 
    ********************************************************
-Our fear-based attitude toward viruses and bacteria is based on our not appreciating how these and other micro-organisms function and help sustain this living world. Parts of them are in our DNA and vital cellular content and without them in our guts we would die in a few days. They also can play an environmentally beneficial role in regulating population density, in optimizing ecological biodiversity and reducing dysbiosis.
- 
+
 When epidemics and pandemics break out there is always some ecological component and carrier agent coupled with the lack of immunity, for various reasons, of those humans or other species who succumb to infection, Those species and individuals who do not succumb and may show no symptoms can transmit infection to others. Some are killed by the primary infective agent, die from a secondary, often bacterial infection or become easy prey for a predator. Survivors may become infertile or abort if pregnant. 
 
 According to the U.S. Centers for Disease Control and Prevention this new Corona virus has been named “SARS-CoV-2” and the disease it causes has been named “coronavirus disease 2019” (abbreviated “COVID-19”) The SARS-CoV-2 virus is a betacoronavirus, like MERS-CoV and SARS-CoV, all three of these viruses having their origins in bats. The sequences from U.S. patients are similar to the one that China initially posted, suggesting a likely single, recent emergence of this virus from an animal reservoir. Live-caught bats for sale for human consumption in one of China’s open animal markets are considered the most likely source. Researchers reported evidence that a small proportion of pangolins, widely sold in China’s markets, carry coronaviruses related to the strain responsible for the COVID-19 pandemic, according to a paper published March 26 in the journal Nature. Although international commercial trade of all eight species of pangolin is strictly forbidden, pangolins are believed to be the most trafficked mammal in the world. 
@@ -256,15 +255,20 @@ In late March 2020, the Bronx zoo had several tigers become ill after exposure t
 
  On Oct 30th 2020 an 11-year-old male Malayan tiger at Zoo Knoxville in Tennessee was reported to have tested positive for a SARS-CoV-2 infection that he might have caught from an asymptomatic zoo worker. The tiger and two others that displayed clinical signs of infection were quarantined and are being cared for by a University of Tennessee veterinary team. Full Story: WBIR-TV (Knoxville, Tenn.) (10/31).
 
-Four lions and two employees at Spain's Barcelona Zoo tested positive for SARS-CoV-2 infections in December 2020, and zoo veterinarians worked with the Bronx Zoo's Veterinary Service on the care plan for the lions. The animals were tested after displaying signs of infection, and they have responded well to anti-inflammatory medicines and close monitoring, according to Barcelona Zoo.Full Story: Reuters (12/8/2020) 
+Four lions and two employees at Spain's Barcelona Zoo tested positive for SARS-CoV-2 infections in December 2020, and zoo veterinarians worked with the Bronx Zoo's Veterinary Service on the care plan for the lions. The animals were tested after displaying signs of infection, and they have responded well to anti-inflammatory medicines and close monitoring, according to Barcelona Zoo.Full Story: Reuters (12/8/2020)
 
-Analysis of 410 species of birds, fish, amphibians, reptiles and mammals found that about 40% of those that are thought to be highly susceptible to SARS-CoV-2 based on the composition of their angiotensin converting enzyme-2 receptors are considered threatened or endangered. These include the Western lowland gorilla, Sumatran orangutan and Northern white-cheeked gibbon, are predicted to be at very high risk of infection by SARS-CoV-2 via their ACE2 receptor. Gray whales, bottlenose dolphins, white-tailed deer and Chinese hamsters are at high risk; cats, cows and sheep are at medium risk; dogs, pigs and horses are at low risk. University of California, Davis (8/21/2020). 
+In December 2020 NeeCee, a snow leopard at Louisville Zoo, tested positive for SARS-CoV-2, and test results are pending on the zoo's two other snow leopards. All three big cats showed signs of mild illness, including a dry cough, but they have not been lethargic and are eating well, says veterinarian Zoli Gyimesi.
+ Full Story: WDRB-TV/WMYO-TV (Louisville, Ky.) (12/11) 
+ 
+Analysis of 410 species of birds, fish, amphibians, reptiles and mammals found that about 40% of those that are thought to be highly susceptible to SARS-CoV-2 based on the composition of their angiotensin converting enzyme-2 receptors are considered threatened or endangered. These include the Western lowland gorilla, Sumatran orangutan and Northern white-cheeked gibbon, are predicted to be at very high risk of infection by SARS-CoV-2 via their ACE2 receptor. Gray whales, bottlenose dolphins, white-tailed deer and Chinese hamsters are at high risk; cats, cows and sheep are at medium risk; dogs, pigs and horses are at low risk. University of California, Davis (8/21/2020). 
 
 This report states: “In documented cases of SARS-COV-2 infection in mink, cats, dogs,  hamsters, lions and tigers, the virus may be using ACE2 receptors, or they may use receptors other than ACE2 to gain access to host cells. Lower propensity for binding could translate to lower propensity for infection, or lower ability for the infection to spread in an animal or between animals once established. Because of the potential for animals to contract the novel coronavirus from humans, and vice versa, institutions including the National Zoo and the San Diego Zoo, which both contributed genomic material to the study, have strengthened programs to protect both animals and humans..https://www.ucdavis.edu/news/genomic-analysis-reveals-many-animal-species-may-be-vulnerable-sars-cov-2-infection/
 
 This valuable contribution to our understanding of the potential threat of this virus to species other than human is one level of determination. Some species and individuals may have cross-immunity from other virus infections they survived or greater susceptibility because of environmental factors impairing their immune systems which can range from air pollution to malnutrition. Marine mammals are assailed by microplastics in the oceans that bond with toxic chemicals such as the dioxins that are carcinogenic, mutagenic and endocrine disruptors, and dwindling sea foods due to human overfishing and mismanagement of natural resources. 
 
-White-tailed deer currently overpopulating and spreading Chronic Wasting Disease across North America (see my review in the Journal of the American Holistic Veterinary Medical Association vol.59:p 16-18,. 2020) may be at higher risk especially on and from deer farms where employees infected with the SARS-CoV-2 virus could infect the deer. Such human-to non-human animal infection as happened in the U.S., (Utah), Denmark and the Netherlands where infected workers infected the mink and also cats around one of these fur ranches.  
+White-tailed deer currently overpopulating and spreading Chronic Wasting Disease across North America (see my review in the Journal of the American Holistic Veterinary Medical Association vol.59:p 16-18,. 2020) may be at higher risk especially on and from deer farms where employees infected with the SARS-CoV-2 virus could infect the deer. Such human-to non-human animal infection as happened in the U.S., (Utah), Denmark and the Netherlands where infected workers infected the mink and also cats around one of these fur ranches.
+
+ Spain ordered the culling of nearly 100,000 mink in December 2020 on a farm in the northeast after confirming many were carrying coronavirus Speaking to reporters, Joaquin Olona, agriculture minister for the Aragon region, said the cull would involve the slaughter of some 92,700 mink who are prized for their pelt. Located in Puebla de Valverde, about 100 kilometres northwest of the coastal resort of Valencia, the mink farm has been carefully monitored since 22 May after seven workers tested positive for Covid-19, he said. Barcelona tells people to stay at home and 100,000 mink to be culled in Aragon (thejournal.ie) 
 
 Hamsters are very popular cage pets and special precautions are called for with all families avoiding any physical contact and keeping the hamsters in a separate room with only one adult tending the animals and washing hands before and after cleaning, feeding and watering.( Jasper Fuk-Woo Chan, Anna Jinxia Zhang, Shuofeng Yuan,et al  Simulation of the clinical and pathological manifestations of Coronavirus Disease 2019 (COVID-19) in golden Syrian hamster model: implications for disease pathogenesis and transmissibility, Clinical Infectious Diseases, ciaa325, https://doi.org/10.1093/cid/ciaa325 ).
 
@@ -333,10 +337,6 @@ Changing our travel and dietary habits (more plant-based, home-prepared, non-pro
 But the escalating carbon footprint/energy use and public and environmental health risks of electropollution from telecommunications, especially 5G, now being used as a substitute for travel to conventions, meetings, vacations and concerts with “live streaming” to consumers coupled with business and medical teleconferencing and distance-education/learning is a growing concern, Telecommunications technology with its non-ionizing radiation must be made safe and sustainable, For details see this review posted on this website: 
 Electropollution: Existential Threat to Public Health,Companion Animals and Life on Earth?
 
-
- Albert Schweitzer, MD, summed it up with prescience decades ago when he opined “We must fight against the spirit of unconscious cruelty with which we treat the animals. Animals suffer as much as we do. True humanity does not allow us to impose such sufferings on them. It is our duty to make the whole world recognize it. Until we extend our circle of compassion to all living things, humanity will not find peace.”
-
-
 POSTSCRIPT
 
 Companion Animal Concerns
@@ -384,6 +384,8 @@ Could pets form coronavirus reservoir chain with people?
 The few cases of SARS-CoV-2 infection in pet dogs and cats were likely transmitted by people with COVID-19, and scientific evidence shows pets, livestock and wildlife pose a low infection risk to humans, writes Arjan Stegeman, a professor of veterinary medicine at Utrecht University. However, humans could become part of two-species reservoirs with either wild or domestic cats or with mink or ferrets, passing the virus between and among one another, and researchers are developing models to quantify the risk.
  Full Story: The Conversation (8 https://theconversation.com/pets-livestock-and-wildlife-can-all-catch-coronavirus-does-that-make-them-dangerous-144440/19) 
 
+Humans are the most susceptible to SARS-CoV-2 of 10 species studied, followed by ferrets, cats, civets and dogs; while ducks, rats, mice, pigs and chickens are resistant, according to researchers at Spain's Center for Genomic Regulation. "Knowing which animals are susceptible to SARS-CoV-2 helps us prevent building up animal reservoirs from which the coronavirus can re-emerge at a later date," said CRG Director Luis Serrano, senior author of the study, published in PLOS Computational Biology. Full Story: PhysOrg/Center for Genomic Regulation (12/10/2020) 
+
 
 ******************************************
 
@@ -419,6 +421,11 @@ There are additional reviews (such as https://mailchi.mp/gmwatch.org/summary-of-
 FROM  https://www.washingtontimes.com/news/2020/may/21/australian-researchers-see-virus-design-manipulati/   The preliminary report of the study, which is now being peer-reviewed, is based on computer modeling of the virus’ ability to infect various animals, including humans. It was published May 13 on the Cornell University website arXiv.org, which is used for discussion of pre-publication papers.
 Nikolai Petrovsky, the lead researcher, said his team suspects human manipulation in Wuhan because of the unmatched ability of the virus’ protruding spike to infect human cells.
 The virus’ binding strength for human cells “far exceeds” similar properties for infecting other animals, he said in a statement on the forthcoming report. “This, plus the fact that no corresponding virus has been found to exist in nature, leads to the possibility that COVID-19 is a human-created virus,” said Mr. Petrovsky, a professor at the College of Medicine and Public Health at Flinders University in Adelaide, Australia.
+
+Paper on lab origin of SARS-CoV-2 appears in peer-reviewed publication
+ 
+In an important development, a paper by Rossana Segreto of University of Innsbruck, Austria and Yuri Deigin of Youthereum Genetics Inc. in Canada, which argues for the possible lab origin and genetically engineered status of SARS-CoV-2, has appeared in a peer-reviewed publication. The authors state that SARS‐COV‐2's chimeric structure and furin cleavage site might be the result of genetic manipulation. They also state that certain features of the virus that are crucial to its ability to infect humans could result from site‐directed mutagenesis, a genetic engineering procedure "that does not leave a trace". The paper contains a thorough deconstruction of the much-cited article by Andersen et al, which stated that SARS-CoV-2 most likely has a natural origin. TheEvidenceNoNaturalEvol.pdf (minervanett.no)
+
  
 
 
