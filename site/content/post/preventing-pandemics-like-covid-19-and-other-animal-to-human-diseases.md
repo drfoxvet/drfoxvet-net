@@ -4,6 +4,7 @@ date: 2020-08-20T16:10:55.512Z
 tags:
   - Environment
   - Farm Animals
+  - Public Health
 ---
 PREVENTING PANDEMICS LIKE COVID-19 AND OTHER ANIMAL-TO-HUMAN DISEASES
                  By Dr. Michael W. Fox 
