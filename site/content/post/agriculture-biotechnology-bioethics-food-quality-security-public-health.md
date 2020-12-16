@@ -3,7 +3,7 @@ title: 'Agriculture, Biotechnology & Bioethics: Food Quality, Security & Public 
 date: 2019-02-27T20:48:01.567Z
 tags:
   - Agriculture
-  - Farm Animals
+  - Farmed Animals
   - Food
 ---
 > "Who ever could make two ears of corn or two blades of grass to grow up on a spot of ground where only one grew before would deserve better of mankind and do more essential service to his country than the whole race of politicians put together."                                                                                                      
