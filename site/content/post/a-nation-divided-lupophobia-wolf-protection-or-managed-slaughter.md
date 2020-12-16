@@ -3,7 +3,6 @@ title: 'A Nation Divided: Lupophobia, Wolf Protection or Managed Slaughter'
 date: 2019-03-21T15:52:53.645Z
 tags:
   - Wolves
-  - Wildlife
   - Conservation
 ---
 ![](/img/tiny.jpg)
