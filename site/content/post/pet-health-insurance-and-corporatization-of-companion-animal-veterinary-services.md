@@ -44,3 +44,46 @@ While such corporate consolidation of veterinary hospitals may have limited bene
 
 
  It is my hope that companion animal health care will not go the way of the increasingly profit-driven and dysfunctional human health care industry where monopolistic drug companies inflate prescription-drug prices (as they do also with veterinary medicines) and where diagnostic errors and medical mistakes led to more than 250,000 deaths each year in hospitals according to a 2016 Johns Hopkins University study. Owners of companion animals must accept responsibility for their animals’ health with annual Wellness appointments with veterinarians who embrace the principles of preventive and integrative, holistic medicine as advocated by the American Holistic Veterinary Association; and who are amenable to installment and other alternative ways of payment for those who have neither pet health insurance nor the immediate funds available for services rendered.
+
+ ADDENDUM: DEC 13th 2020
+
+PET HEALTH INSURANCE PROMOTING UNHEALTHY DOG BREEDS? (Response to an email promoting pet health insurance)
+
+Hi Michael-I hope this email finds you and yours doing well. I wanted to reach out today with the news that Petplan is the proud new insurer of Wilbur, the newly-elected mayor of Rabbit Hash, Kentucky! You can read more about Wilbur and his Petplan policy below. Once you've had a chance to review, could you kindly let me know if you might be up for sharing this news with your readers? I'm here to help however I can.
+
+Thanks so much, Casey--Casey McDonald | Account Supervisor
+LA 2219 Main Street, Santa Monica CA 90405
+NYC 1201 Broadway, Suite 505 New York NY 10001
+O 212.584.5668 M 310.403.3447
+
+Newly-elected French Bulldog mayor of KY town covered by Petplan to help ensure long, healthy term in office 
+December 1, 2020—Wilbur Beast, the newly elected mayor of Rabbit Hash, Kentucky, has had his health insured by Petplan, North America’s most comprehensive pet insurance provider. 
+
+To put the minds of all town residents at ease and ensure the smoothest transition, Wilbur will receive Petplan's most popular coverage. After all, as mayor Wilbur will be responsible for a variety of duties in his role including being adorable and shining a spotlight on the picturesque hamlet of Rabbit Hash.
+ 
+As a French Bulldog, Wilbur’s pet parent is keenly aware of the specific health issues that can arise for his breed, which include allergies, hip dysplasia, breathing issues, and heart murmur. Unlike some other pet insurance companies, Petplan covers these potential illnesses as well as behavioral care. 
+
+Wilbur is no stranger to shaking hands and paws across Kentucky to get the job done, but being in an important political position can certainly increase stress and anxiety, another condition that Petplan covers. Petplan wants to make sure that Wilbur will stay healthy to fulfill his duties at the highest levels and that he will be ready to run again in 2024. As a six month old pup, Wilbur has everything to gain from starting his promising career protected from any new injuries or illnesses. 
+
+When asked for comment, Wilbur rolled over and began gently pawing at the air, a sure sign of enthusiasm for his new healthcare plan and recent victory.”
+
+My response:
+
+DEAR C. McD., Many thanks for your communication. I will post this response in my Animal Doctor Column:
+
+ I received this e-mail, (slightly abbreviated), from a representative of one of the main pet health insurance companies in the U.S. Unwittingly, with total ignorance of the multiple and costly animal health, welfare and quality of life problems faced by the flat-faced breeds like the increasingly popular French Bulldog, they are being widely used in advertising which encourages their popularity. This is now being discouraged in the U.K. by the British Veterinary Association, of which I am a member as well as being an Honor Roll member of the American Veterinary Medical Association that is also concerned about this class of extremely brachycephalic (flat-faced) dogs. 
+
+They are known to have multiple health problems. Perhaps using a French Bulldog in your pet health insurance is ultimately a money-maker for your business. Along with the American Kennel Club and other national dog show and breed organizations at home and abroad, veterinary associations have yet to really howl over the genetic disorders being propagated, especially by commercial puppy mills and avid show-breeders, and help in their prevention. 
+
+For anyone with one of these breeds I would advise to consider purchasing an emergency insurance policy at the very least and be sure that diseases of hereditary origin/pre-existing, are well-covered by a more comprehensive and expensive pet health insurance policy. The same holds true for flat-faced cats. The breeding and purchasing of any and all such malformed creatures should end.
+Ms. McDonald did not answer my question as to what the annual comprehensive health insurance cost would be for a dog like Wilbur and if it would increase as the dog aged. 
+
+ On Dec 14th I telephoned the company after being unable to communicate through their website, to get a quote for a 3-month old French Bulldog puppy. A ‘Comprehensive” coverage of $ 52.01 per month would cover $15,000 veterinary charges with a $500.00 deductible and 82% reimbursement of all veterinary charges including Hereditary health issues. But there is no coverage of payments for Routine Care such as annual Wellness examinations and also Pre-existing conditions.
+
+ Pre-existing conditions, such as corneal ulcers, dental and breathing problems and facial dermatitis, so prevalent in these brachycephalic breeds, are related to heredity but could be called pre-existing conditions. Such a policy surely encourages inflated veterinary charges and discourages pet owners from also paying for annual Wellness appointments which are extremely important in the prevention of many health and behavioral problems in companion animals and in the prevention of infectious diseases, some transmissible to humans. The cost for vaccinations is fully not covered since they fall under Routine Care. 
+
+Perhaps pet food companies should give vouchers with their products to help pay for annual Wellness examinations and better educate the public about companion animal health care beginning with better quality and more carbon-neutral and organically sourced, human quality graded ingredients in their beloved animals’ diets. The market in special Prescription diets provided exclusively by veterinarians for diet-related health issues completes the circle, creating additional health problems with widely marketed anti-flea and tick insecticides, details of which are posted on this website ,
+
+
+“What the insurance companies have done is to reverse the business so that the public at large insures the insurance companies”. Gerry Spence— As quoted in Humanscape : Environments for People (1987), by Rachel Kaplan and Stephen Kaplan, p. 97
+
