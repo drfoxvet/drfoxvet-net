@@ -3,10 +3,10 @@ title: 'Veterinary Economics, Ethics and Farm Animal Welfare'
 date: 2020-08-17T17:03:36.012Z
 tags:
   - Farmed Animals
-  - Veterinary Responsibilities
+  - Veterinary Matters
 ---
 VETERINARY ECONOMICS, ETHICS & FARM ANIMAL WELFARE
-                                                 
+\
                                             By Dr. Michael W. Fox 
 
  Despite, and in part because of advances in the biomedical sciences, the health and welfare of farmed animals have been on the decline over the past three to four decades, due principally to competitive economic pressures in the livestock and poultry industries. This statement may seem outlandish, if not offensive to those many veterinarians dedicated to improving the health and well-being of animals under their care. But as this review will document, the veterinary profession has become as much a victim of these forces and trends as the animals themselves. 
@@ -29,8 +29,6 @@ RECYCLING BY-PRODUCTS & FOOD SAFETY
 Both production-enhancing drug and vaccine addicted  livestock and poultry industries, and the petrochemical and pesticide addicted, gene-engineering human food and beverage, and livestock feed industries, create enormous volumes of  sometimes hazardous waste by-products that are recycled very profitably  into pet foods, livestock feeds, fertilizer and human supplements, cosmetics and toiletries and a host of other secondary consumables. The safety of these secondary consumables, many imported from third world countries by US manufacturers, are too complex and costly to effectively police. This is what the heads of government agencies like the USDA and FDA say at every Congressional hearing on some major E.coli hamburger or contaminated spinach recall, or massive pet food recall as at the Senate Sub-committee hearings in 2007.
 
  The animal and human health benefits of prebiotics and probiotics, along with biologically appropriate diets, which nurture beneficial gut bacteria, parallel organic farming practices that benefit soil microorganisms essential to crop health and nutrient content. Both gut and soil bacteria are respectively harmed by agrichemicals, antibiotics and GM (genetically modified) crops and foods leading to bacterial population imbalances and dysbiosis.
-
-
 
 THE PROFESSIONS’ FUTURE
 
@@ -91,40 +89,20 @@ It is notable that the United Nations Environment Programme’s international pa
 As the global population surges towards a predicted 9.1 billion people by 2050, western tastes for diets rich in meat and dairy products are unsustainable, says the report. It states: "Impacts from agriculture are expected to increase substantially due to population growth increasing consumption of animal products. Unlike fossil fuels, it is difficult to look for alternatives: people have to eat. A substantial reduction of impacts would only be possible with a substantial worldwide diet change, away from animal products."  Agriculture, particularly meat and dairy products, accounts for 70% of global freshwater consumption, 38% of the total land use and 19% of the world's greenhouse gas emissions, says the report.
 Produce from organically certified and free-range animals, are generally more humanely derived, and with less environmental harm and drug-dependence than similar produce from CAFOs.
 
-
-
-
 References
 
 1. British Veterinary Association, Obstacles and welfare, Veterinary Record  2009, 165: p.513. See also the Farm animal Welfare council’s opinion on the welfare needs of dairy cows on p 514 of same journal edition, and the Food and Agriculture Organization’s report ‘Capacity building to implement good animal welfare practices, www.fao.org/ag/aginfo/resources/en/pubs_awelf.html).
-
 2. Narver, HC. Demographics, moral orientation, and veterinary shortages in food animal and laboratory animal medicine. J Am Vet Med Assoc 2007: 230:1798-1804.
-
 3. Time magazine, The real cost of cheap food, Aug 31, 2009   See also Steinfeld, H.P., Gerber, T., Wassenaar, V., et al (2006) Livestock’s Long Shadow: Environmental Issues and Options. Rome. Food and Agriculture Organization
-
-
 4. Fox, Michael W. Agricide: The Hidden Crisis That Affects Us All. New York, Schoken Books, 1986.
- 
-
 5. Larkin, M.  Pfizer, AVMF partner to hand out hundreds of scholarships. J Am Vet Med Assoc 2009, 235: 1022-1023
-
-
 6. Spence, Des. It shouldn’t happen to a vet, British Medical Journal 2009;339:b4883. 
-
-
 7. Nolen, R. S. More veterinary grads investing in their careers with additional training. J Am Vet Med Assoc  2009 235: 1016-1018
-
 8. .LaCroix, Jeffrey A. Is it time for limited licensure? J. Am Vet Med Assoc. 235: 1401, 2009
-
 9. Fox, Michael W. Bringing Life to Ethics: Global Bioethics for a Humane Society Albany, NY, State University of New York Press 2001
 
 POSTSCRIPT 
 Veterinarians’ Well-being: At Risk from Empathy?
 According to a Feb 13th 2015 Centers for Disease Control & Prevention Weekly Morbidity and Mortality Report Vol 64, p 131-132 by Randall J. Nett and associates, “Veterinarians are believed to be at increased risk for suicide compared with the general population.” They sent out a questionnaire that “asked respondents about their experiences with depression and suicidal behavior, and included standardized questions from the Kessler-6 psychological distress scale that assesses for the presence of serious mental illness…. Approximately 6.8% of male and 10.9%  of female respondents were characterized as having serious psychological distress… compared with 3.5% of male and 4.4% of female U.S. adults, respectively.” 
 
-That they found almost one in 10 U.S. veterinarians might suffer from serious psychological distress and more than one in six might have experienced suicidal ideation since graduation makes me deeply concerned and wonder why. The challenges of diagnosing, treating and preventing various animal maladies coupled with financial constraints in a culture with a schizoid attitude toward animals (ranging from treating them as family members to mere commodities) may be overwhelming at times: And frustrating seeing the same conditions day after day with no significant advances in the prevention of illness and suffering. But above all I believe that veterinarians are generally more empathetic toward animals than most people in the general population. They, along with others on the front lines of animal protection such as animal sheltering and in-field animal rescue and wildlife conservation, take the brunt of society’s use and abuse of animals.  This burden of empathy, combined with veterinarians’ clinical knowledge and greater understanding of how their animal patients can suffer, calls for greater public recognition and respect for the many contributions this profession provides for the good of the animals and society both at home and abroad. 
-
-
-
-
-
+That they found almost one in 10 U.S. veterinarians might suffer from serious psychological distress and more than one in six might have experienced suicidal ideation since graduation makes me deeply concerned and wonder why. The challenges of diagnosing, treating and preventing various animal maladies coupled with financial constraints in a culture with a schizoid attitude toward animals (ranging from treating them as family members to mere commodities) may be overwhelming at times: And frustrating seeing the same conditions day after day with no significant advances in the prevention of illness and suffering. But above all I believe that veterinarians are generally more empathetic toward animals than most people in the general population. They, along with others on the front lines of animal protection such as animal sheltering and in-field animal rescue and wildlife conservation, take the brunt of society’s use and abuse of animals.  This burden of empathy, combined with veterinarians’ clinical knowledge and greater understanding of how their animal patients can suffer, calls for greater public recognition and respect for the many contributions this profession provides for the good of the animals and society both at home and abroad.
