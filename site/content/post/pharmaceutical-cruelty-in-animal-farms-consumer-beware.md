@@ -3,7 +3,7 @@ title: ' Pharmaceutical Cruelty In Animal Farms: Consumer Beware'
 date: 2019-02-27T19:31:17.751Z
 tags:
   - Agriculture
-  - Farm Animals
+  - Farmed Animals
   - Food
 ---
  The documentation given in this article should put all on notice, including pet owners whose pets may be eating pet foods containing pork byproducts (often listed as meat byproducts or meat meal). A drug called Paylean is now being used widely by the pig industry. The beta-agonists ractopamine hydrochloride (sold as Optaflexx by Elanco) and zilpaterol hydrochloride (sold as Zilmax by Intervet, a subsidiary of Merck & Co.) are FDA approved drugs used to promote weight gain and growth of lean muscle in beef cattle. Topmax is Elanco’s product sold to some turkey producers.
