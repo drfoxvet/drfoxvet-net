@@ -4,7 +4,7 @@ date: 2020-09-15T18:31:03.709Z
 tags:
   - Ethical Issues
   - Environment
-  - Spiritual
+  - Spiritual Issues
 ---
 The Hopi Message
 AN ADDRESS BY THOMAS BANYACYA, KYKOTSMOVI, ARIZONA
