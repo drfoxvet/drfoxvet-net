@@ -3,7 +3,7 @@ title: '"Exotic" Hybrid Cats: Neither Propagate Nor Breed'
 date: 2020-12-02T17:22:23.504Z
 tags:
   - Cats
-  - Ethics
+  - Ethical Issues
 ---
 "EXOTIC" HYBRID CATS: NEITHER PROPAGATE NOR PURCHASE
 
