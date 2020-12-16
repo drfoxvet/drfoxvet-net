@@ -3,7 +3,6 @@ title: Animal Domestication and Breeding of Wolf-dog Hybrids
 date: 2019-02-27T19:17:27.180Z
 tags:
   - Wolves
-  - Wildlife
   - Conservation
 ---
 The primary task of all who care for animals is the alleviation and prevention of physical and psychological harm. To abolish all suffering would entail destroying all life, for wherever there is life, there is one form of suffering or another, be it physical or psychological. Some forms of suffering, however, outside of the natural prey-predator realm, and natural catastrophes like drought and famine, can be prevented. One way, for instance, is to stop producing more life, be it for commercial purposes or personal pleasure, because the Earth is beyond full carrying capacity.
