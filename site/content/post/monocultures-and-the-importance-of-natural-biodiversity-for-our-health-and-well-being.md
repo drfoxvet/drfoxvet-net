@@ -4,7 +4,7 @@ title: >-
   Well-being             
 date: 2020-05-21T15:31:33.289Z
 tags:
-  - Ethics
+  - Ethical Issues
   - Environment
 ---
     MONOCULTURES AND THE IMPORTANCE OF NATURAL BIODIVERSITY 
