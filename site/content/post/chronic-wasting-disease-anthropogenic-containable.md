@@ -2,7 +2,6 @@
 title: 'Chronic Wasting Disease: Anthropogenic? Containable?'
 date: 2020-11-23T16:47:04.571Z
 tags:
-  - Wildlife
   - Environment
   - Conservation
 ---
