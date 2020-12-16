@@ -2,7 +2,7 @@
 title: The Cambridge Declaration on Animal Consciousness
 date: 2020-01-14T15:15:13.170Z
 tags:
-  - Ethics
+  - Ethical Issues
 ---
 The Cambridge Declaration on Consciousness*
 
