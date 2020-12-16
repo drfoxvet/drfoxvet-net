@@ -6,7 +6,7 @@ tags:
   - Ethics
   - Cats
   - Dogs
-  - . Conservation
+  - Conservation
 ---
  SAYING “NO! TO WILD AND “EXOTIC” ANIMALS SOLD AS PETS
 
