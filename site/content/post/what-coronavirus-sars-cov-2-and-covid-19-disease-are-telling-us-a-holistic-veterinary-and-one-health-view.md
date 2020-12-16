@@ -5,7 +5,7 @@ title: >-
 date: 2020-12-15T18:21:15.353Z
 tags:
   - Public Health
-  - Farm Animals
+  - Farmed Animals
   - Conservation
   - Wildlife
 ---
