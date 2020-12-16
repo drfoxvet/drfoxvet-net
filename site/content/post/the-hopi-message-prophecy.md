@@ -2,7 +2,8 @@
 title: The Hopi Message/Prophecy
 date: 2020-09-15T18:31:03.709Z
 tags:
-  - Ethical  Environmental
+  - Ethical
+  - Environmental
   - Spiritual
 ---
 The Hopi Message
