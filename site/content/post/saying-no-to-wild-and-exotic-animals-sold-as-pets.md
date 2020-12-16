@@ -3,7 +3,7 @@ title: Saying "No" to Wild and "Exotic" Animals Sold as Pets
 date: 2020-11-06T17:53:35.207Z
 tags:
   - Environment
-  - Ethics
+  - Ethical Issues
   - Cats
   - Dogs
   - Conservation
