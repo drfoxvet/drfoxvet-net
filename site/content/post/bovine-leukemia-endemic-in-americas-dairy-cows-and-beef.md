@@ -4,7 +4,6 @@ date: 2020-11-11T15:40:28.911Z
 tags:
   - Agriculture
   - Food
-  - Farm Animals
   - Farmed Animals
 ---
              ANOTHER VIRUS OF PUBLIC /CONSUMER HEALTH CONCERN:
