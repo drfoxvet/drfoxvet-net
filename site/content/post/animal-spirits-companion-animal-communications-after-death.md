@@ -4,7 +4,7 @@ date: 2020-10-05T15:28:26.355Z
 tags:
   - Dogs
   - Cats
-  - Spiritual
+  - Spiritual Issues
 ---
 ANIMAL SPIRITS
 Companion Animal Communications After Death
