@@ -2,7 +2,7 @@
 title: Fur Industry Cruelties and  Endangering Species and Public Health
 date: 2020-12-19T17:53:50.290Z
 tags:
-  - Conservation
+  - Ethical Issues
 ---
 FUR INDUSTRY CRUELITES AND  ENDANGERING SPECIES AND PUBLIC HEALTH: TIME TO END
                                                    By Dr. Michael W. Fox
