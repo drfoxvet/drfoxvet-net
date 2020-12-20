@@ -2,7 +2,7 @@
 title: 'Vegetarianism: An Ethical Imperative'
 date: 2020-12-20T17:14:31.815Z
 tags:
-  - Public Health
+  - Ethical Issues
 ---
               VEGETARIANISM: A BIOETHICAL IMPERATIVE
                      
