@@ -29,6 +29,30 @@ Raccoon dogs, originally from Asia, have escaped from fur farms in Finland and a
 
 An additional source of fur for the apparel industry comes from street-harvested cats and dogs in China and other countries (where their meat is also consumed), their fur being dyed and even patterned to look like it came from a wild animal. It may be sold as faux or synthetic fur. ( See Flawed Laws Mean Your Faux Fur Could Come From Dogs And Cats, www.huffingtonpost.ca › faux-fur_b_12121648)
 
+But there is some good news perhaps temporarily for the millions of “furbearers” being trapped and snared according to Trapping Today. 2019-2020 Fur Prices: Trapping Today’s Fur Market Forecast Posted November 5, 2019   https://trappingtoday.com/2019-2020-fur-prices-trapping-todays-fur-market-forecast/
+
+“Nothing has changed, and everything’s changed. That’s the story of the fur market heading into the 2019-2020 fur selling season. The demand for raw fur remains where it’s been for years – quite low. The Chinese and Russian economies continue to struggle along, meaning our biggest fur buying countries just aren’t consuming much fur. On the supply side, however, the entire market has been shifted upside down.”
+
+The NAFA Debacle
+“North American Fur Auctions, the largest seller of wild fur in North America, is going bankrupt. After years of struggling with finances amidst rock bottom fur prices, the company dug itself a hole it couldn’t get out of. The vast majority of NAFA’s business is in ranch mink, and their strategy of financially backing struggling mink ranchers backfired. It appears that NAFA is going to be acquired, or merged, with Saga Furs, a Finnish auction company that only deals in ranched fur. Saga has no interest in wild fur, and thus NAFA won’t be accepting wild fur in 2019-2020.”
+“Fur Harvesters Auction, Inc., a wild fur company first and foremost, is still in business and plans to offer a huge collection of wild fur in the coming season. FHA is gearing up to have the capacity to take a lot of the fur that NAFA used to receive, and I’d encourage folks who haven’t shipped before to give FHA  a shot. Groenewold Fur and Wool Company is also gearing up to take more fur, and is expanding routes into new states beyond its normal buying area.”  
+
+Fashion vs. Utility
+“The fur market is driven by two types of consumer demand: fashion and utility. Fashion trends often drive the high end market for select high quality pelts, and can help support high fur prices for specific items. For instance, the beautiful white black-spotted furs worn by affluent women in Russia is supporting the market for top end Western bobcats. The fur-trimmed hoods on Canada Goose parkas is driving the incredible demand for coyotes. Other furs like muskrat and otter have benefitted from fashion trends in the past. This can be great for fur prices, but can be devastating when the fashion trends go away."
+
+"Fur is consumed as a utility in many places due to its incredible warmth, durability and functionality. Populations in cold climates wear lots of fur, and consume most of what’s not used in the fashion market. This is great for items not supported by fashion trends, like raccoon and muskrat, but utility demand can challenge fur prices because consumers aren’t paying a great deal for these items, and price doesn’t react as well to shorter supply, since demand tops out at a certain price point, above which consumers just can’t afford.”
+
+My concern now is that since the market for ranch-raised Mink fur is being crippled because these animals can contract COVID-19 from workers and then infect people and many production facilities are being de-populated, there will be an increased demand for wild furs from trapped and snared animals.
+
+ But this scenario could change again since Zoetis is developing a vaccine for mink that could be adapted for pets, and COVID-19 vaccines tested and proven effective in hamsters, mice or monkeys could also be modified to protect animals. Full Story: Science (tiered subscription model) (12/18/2020).
+
+ So the mink fur industry could recover and the pressure on wild furbearers be relaxed unless this entire market is seen for what it is through more empathic, civilized eyes of consumers especially in Russia and China and people say “No” to wearing any animal’s fur unless they are indigenous peoples like the Inuit and others living in more sustainable and traditional ways and must kill to live rather than live to kill for profit.. 
+ 
+
+
+
+
+
 
 
  
