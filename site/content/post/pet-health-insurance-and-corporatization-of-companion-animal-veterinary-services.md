@@ -45,7 +45,7 @@ While such corporate consolidation of veterinary hospitals may have limited bene
 
  It is my hope that companion animal health care will not go the way of the increasingly profit-driven and dysfunctional human health care industry where monopolistic drug companies inflate prescription-drug prices (as they do also with veterinary medicines) and where diagnostic errors and medical mistakes led to more than 250,000 deaths each year in hospitals according to a 2016 Johns Hopkins University study. Owners of companion animals must accept responsibility for their animals’ health with annual Wellness appointments with veterinarians who embrace the principles of preventive and integrative, holistic medicine as advocated by the American Holistic Veterinary Association; and who are amenable to installment and other alternative ways of payment for those who have neither pet health insurance nor the immediate funds available for services rendered.
 
- ADDENDUM: DEC 13th 2020
+ ADDENDA: DECEMBER 2020
 
 PET HEALTH INSURANCE PROMOTING UNHEALTHY DOG BREEDS? (Response to an email promoting pet health insurance)
 
@@ -84,6 +84,19 @@ Ms. McDonald did not answer my question as to what the annual comprehensive heal
 
 Perhaps pet food companies should give vouchers with their products to help pay for annual Wellness examinations and better educate the public about companion animal health care beginning with better quality and more carbon-neutral and organically sourced, human quality graded ingredients in their beloved animals’ diets. The market in special Prescription diets provided exclusively by veterinarians for diet-related health issues completes the circle, creating additional health problems with widely marketed anti-flea and tick insecticides, details of which are posted on this website.
 
+
+Most Common Companion Animal Health Problems in 2019
+From   https://www.banfield.com/state-of-pet-health
+In cats: Dental Calculus, Overweight, Gingivitis, Fleas. Otitis Externa.
+In dogs: Dental Calculus Overweight, Otitis Externa, Patellar Luxation, Nuclear Sclerosis
+
+Other key findings from Banfield's 2019 State of Pet Health Report include: 6.1% of dogs and 1.1% of cats are affected by OA. More than 20% of dogs and 4% of cats ten years of age and older are affected by OA. Dogs with OA are 1.7 times more likely to be overweight or obese.
+
+Major pet health insurance companies have reported in declining prevalence, skin allergies, ear infections, non-cancerous skin mass (lipoma) diarrhea/intestinal upset, skin infection, vomiting/upset stomach, arthritis, dental disease, anal gland inflammation and bladder/urinary tract disease in dogs: In cats, bladder/urinary tract disease, dental disease, chronic kidney disease, vomiting/upset stomach, hyperactive thyroid disease. upper respiratory infection, skin allergies, diabetes, valvular heart disease or murmur. The incidence of cancer is increasing in dogs and cats and occurring at an earlier age.
+
+Beyond those ailments associated with breed/genetics and environmental factors that we cannot easily control, most of these health problems can be effectively treated and prevented by good nutrition, exercise and at least once-yearly Wellness evaluations by veterinarians.
+
+ In the excellent article “When you can’t pay your vet bills” by Karen Elizabeth Baril in the Winter 2020 edition of Animal Wellness, it is noted that veterinary costs have increased 10% since 2015 and that a single round of chemotherapy for cancer can run between $3,500-$4,500 and insulin cost $300 for each five-pen box. There are organizations that can help with veterinary costs, this article listing: Brown Dog Foundation ( browndogfoundation.org); Diabetic Cats in Need ( dcin.dreamhosters.com);FACE foundation ( face4pets.org); The Farley Foundation ( farleyfoundation.org) and The Pet Fund ( the petfund.com). 
 
 “What the insurance companies have done is to reverse the business so that the public at large insures the insurance companies”. Gerry Spence— As quoted in Humanscape : Environments for People (1987), by Rachel Kaplan and Stephen Kaplan, p. 97
 
