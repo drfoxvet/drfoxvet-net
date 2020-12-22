@@ -27,6 +27,8 @@ Over 95% of fur sold globally, comes from farmed animals, such as mink, foxes, r
 
 Raccoon dogs, originally from Asia, have escaped from fur farms in Finland and are now living in the wild, expanding into Sweden and governments are attempting to control by extermination.
 
+ Only a minority of states have banned or restricted the use of steel-jaw traps. Arizona, California, Colorado, Florida, Hawaii, Massachusetts, New Jersey, Rhode Island, and Washington have limited the use of leghold traps. The New Jersey law is particularly strong, establishing an outright ban on the manufacture, sale, possession, import, transport, and use of steel-jaw leghold devices. Thanks to animal protection and conservation organizations like Project Coyote, in September 2019 all fur-animal trapping for recreational and commercial purposes trapping was prohibited in California.
+
 An additional source of fur for the apparel industry comes from street-harvested cats and dogs in China and other countries (where their meat is also consumed), their fur being dyed and even patterned to look like it came from a wild animal. It may be sold as faux or synthetic fur. ( See Flawed Laws Mean Your Faux Fur Could Come From Dogs And Cats, www.huffingtonpost.ca › faux-fur_b_12121648)
 
 But there is some good news perhaps temporarily for the millions of “furbearers” being trapped and snared according to Trapping Today. 2019-2020 Fur Prices: Trapping Today’s Fur Market Forecast Posted November 5, 2019   https://trappingtoday.com/2019-2020-fur-prices-trapping-todays-fur-market-forecast/
