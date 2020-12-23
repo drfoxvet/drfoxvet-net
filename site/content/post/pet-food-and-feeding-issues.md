@@ -100,7 +100,17 @@ Corn in cat and dog food and can cause various health problems from seizures to 
  Even low levels of mycotoxins in pet food can result in serious illness. "
 
 The Institute for Feed Education and Research, the North American Renderers Association, and the Pet Food Institute recently published an interesting report; “Pet Food Production and Ingredient Analysis“. The report brags the pet food industry stimulates “the overall agricultural economy through the purchase of ingredients, labor and services from related industries“. 
-Most commercially grown corn is genetically modified (GMO) to be herbicide -resistant which means the corn is contaminated with routinely sprayed glyphosate ( as is much wheat just before harvest to accelerate drying). GMO corn also produces the insecticide Bt which is not a healthful food ingredient. 
+Most commercially grown corn is genetically modified (GMO) to be herbicide -resistant which means the corn is contaminated with routinely sprayed glyphosate GMO corn also produces the insecticide Bt which is not a healthful food ingredient.
+
+Currently, over 90 percent of corn, cotton, and soybean acreage in the United States is planted with genetically engineered (GE) seeds. Most of these GE seeds are either herbicide tolerant (HT) or insect resistant (Bt, Bacillus thuringiensis) or both-so called “Stacked.”  Soybean seeds with stacked traits are currently not commercially available in the United States but are being imported from Brazil. Over 90% of the U.S. canola crop is GE, herbicide resistant.
+This means corn, soy and cotton-seed cake and oil, and canola oil, variously incorporated into farmed animal and manufactured cat and dog foods can contain herbicide residues and the Bt insecticide. These contaminants may disrupt the gut microbiome leading to multiple health problems. 
+
+Corn may be more susceptible to fungal infection or mold that can produce toxins like aflatoxin with climate-change associated increased rainfall and high moisture content of crops. Bt may reduce insect-transmitted fungal infections in “stacked” GE corn but spraying with herbicide to accelerate drying prior to harvesting ( also with conventional wheat and other cereals) creates additional food and environmental contamination.. Aflatoxin, when ingested, can cause lethargy, vomiting, diarrhea and jaundice from liver damage. According to the National Institutes of Health aflatoxin is associated with liver cancer in humans. 
+ 
+Aflatoxin contamination is the most frequent cause of pet food recalls, second to Salmonella from contaminated farmed animal ingredients. For instance, according to www. jav.ma/aflatoxinrecall (JAVMA Dec 1, 2020 p 1089) pet food maker Sunshine Mills recalled products sold under 17 brand names, mainly dog and cat kibble, namely Champ, Family Pet, Field trail, Good Dog, Heartland farms, Hunter’s Special, Old Glory, Paws Happy Life, Pet Expert, Principle, Retriever, River Bend, Sportsman’s Pride, Sprout, Thrifty, Top Runner and Whiskers and Tails, all with lot codes 3/April/2020, 4/April/2020 and 5/April 2020.
+
+Corn has no place in cat foods and all corn, soy and other ingredients in pet foods should be certified either organic or GMO free to help reduce these kinds of health-risks to both human consumers and companion animals as well as costly recalls for the manufacturers and potential liability suits.
+ 
 
 Pet Food Ingredient Allergies in Dogs and Cats
 
