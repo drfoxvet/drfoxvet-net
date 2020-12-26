@@ -110,6 +110,12 @@ Corn may be more susceptible to fungal infection or mold that can produce toxins
 Aflatoxin contamination is the most frequent cause of pet food recalls, second to Salmonella from contaminated farmed animal ingredients. For instance, according to www. jav.ma/aflatoxinrecall (JAVMA Dec 1, 2020 p 1089) pet food maker Sunshine Mills recalled products sold under 17 brand names, mainly dog and cat kibble, namely Champ, Family Pet, Field trail, Good Dog, Heartland farms, Hunter’s Special, Old Glory, Paws Happy Life, Pet Expert, Principle, Retriever, River Bend, Sportsman’s Pride, Sprout, Thrifty, Top Runner and Whiskers and Tails, all with lot codes 3/April/2020, 4/April/2020 and 5/April 2020.
 
 Corn has no place in cat foods and all corn, soy and other ingredients in pet foods should be certified either organic or GMO free to help reduce these kinds of health-risks to both human consumers and companion animals as well as costly recalls for the manufacturers and potential liability suits.
+
+Canine inflammatory bowel disease/Canine chronic enteropathy
+
+This condition can be caused by bacterial infection/dysbiosis causing chronic vomiting and diarrhea with intestinal inflammation. But some dogs and particular breeds may be suffering from sensitivity to gliadins that come from the gluten in their diet, especially wheat. But grains are still an important source of various minerals and other nutrients and beneficial fiber in their diets so gluten-free grains and other sources of fiber should be provided. These include teff, sorghum, quinoa, amaranth, whole grain brown rice, wild rice, buckwheat, millet, chia, flax, tapioca  ( from cassava root), uncontaminated ( not milled with wheat) organic oats and shredded unsweetened coconut.
+
+ Dogs with intolerance to glutens are comparable to those people who suffer from Crohn’s and Celiac disease.(CD). Human nutritionists have reported that while corn ( maize) is one of the most commonly consumed grains in the gluten-free diet, despite the low content of zeins in maize-containing foods maize could be responsible for persistent mucosal damage in a very limited subgroup of CD patients. This same issue may well apply to some dogs and cats.
  
 
 Pet Food Ingredient Allergies in Dogs and Cats
