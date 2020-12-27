@@ -48,7 +48,9 @@ My concern now is that since the market for ranch-raised Mink fur is being cripp
 
  But this scenario could change again since Zoetis is developing a vaccine for mink that could be adapted for pets, and COVID-19 vaccines tested and proven effective in hamsters, mice or monkeys could also be modified to protect animals. Full Story: Science (tiered subscription model) (12/18/2020).
 
- So the mink fur industry could recover and the pressure on wild furbearers be relaxed unless this entire market is seen for what it is through more empathic, civilized eyes of consumers especially in Russia and China and people say “No” to wearing any animal’s fur unless they are indigenous peoples like the Inuit and others living in more sustainable and traditional ways and must kill to live rather than live to kill for profit.. 
+ So the mink fur industry could recover and the pressure on wild furbearers be relaxed unless this entire market is seen for what it is through more empathic, civilized eyes of consumers especially in Russia and China and people say “No” to wearing any animal’s fur unless they are indigenous peoples like the Inuit and others living in more sustainable and traditional ways and must kill to live rather than live to kill for profit.
+
+Our redemption, recovery of our humanity and ultimate well-being are in large part through our renunciation of a culture and economy of harm. Such liberating redemption is at the core of all the world’s religions and secular humanism when shorn of politics and human-centeredness. 
  
 
 
