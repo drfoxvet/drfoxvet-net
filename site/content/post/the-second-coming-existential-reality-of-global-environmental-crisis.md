@@ -18,28 +18,54 @@ Young people in many countries are now rising in protest, fearing for their futu
  
 Reflecting on the following poem may help us all see the spiritual nature of the existential crisis we and planet Mother Earth face today: 
  The Second Coming" is a poem written by Irish poet W. B. Yeats in 1919 after World War 1. 
-Turning and turning in the widening gyre
-The falcon cannot hear the falconer;
-Things fall apart; the centre cannot hold;
-Mere anarchy is loosed upon the world,
-The blood-dimmed tide is loosed, and everywhere
-The ceremony of innocence is drowned;
-The best lack all conviction, while the worst
-Are full of passionate intensity.
 
-Surely some revelation is at hand;
+"Turning and turning in the widening gyre
+
+The falcon cannot hear the falconer;
+
+Things fall apart; the centre cannot hold;
+
+Mere anarchy is loosed upon the world,
+
+The blood-dimmed tide is loosed, and everywhere
+
+The ceremony of innocence is drowned;
+
+The best lack all conviction, while the worst
+
+Are full of passionate intensity."
+
+"Surely some revelation is at hand;
+
 Surely the Second Coming is at hand.
+
 The Second Coming! Hardly are those words out
+
 When a vast image out of Spiritus Mundi**
+
 Troubles my sight: somewhere in sands of the desert
+
 A shape with lion body and the head of a man,
+
 A gaze blank and pitiless as the sun,
+
 Is moving its slow thighs, while all about it
+
 Reel shadows of the indignant desert birds.
+
 The darkness drops again; but now I know
+
 That twenty centuries of stony sleep
+
 Were vexed to nightmare by a rocking cradle,
+
 And what rough beast, its hour come round at last,
-Slouches towards Bethlehem to be born?
+
+Slouches towards Bethlehem to be born?"
+
+ Our redemption, recovery of our humanity and ultimate well-being are in large part through our renunciation of a culture and economy of harm. Such liberating redemption is at the core of all the world’s religions and secular humanism when shorn of politics and human-centeredness. Reverential respect for all our non-human relations is long overdue and ultimately, enlightened self-interest.
+
+
+
 **The world soul ( Latin:: anima mundi) is, according to several systems of thought, an intrinsic connection between all living things on the planet, which relates to the world in much the same way as the soul  is connected to the human body Therefore, we may consequently state that: this world is indeed a living being endowed with a soul and intelligence ... a single visible living entity containing all other living entities, which by their nature are all related.
 The author is a veterinarian and author of several books including Animals and Nature First and The Boundless Circle: Caring for Creatures and Creation. Website www.drfoxonehealth.com
