@@ -45,3 +45,46 @@ While I receive a few letters from cat owners who say their declawed cats have n
 ## U.S. Feline Veterinary Specialists Oppose Declawing---At Last!
 
 The Journal of the American Veterinary Medical Association posted an announcement in November 1st, 2017 ( Vol, 251, p.991) that the American Association of Feline Practitioners (AAFP) has revised its 2015 position on declawing cats to strongly oppose declawing or onychectomy, an elective procedure. For details from the AAFP, veterinary practitioners can go to [www.catvets.com/scratching](http://www.catvets.com/scratching) and cat caregivers can visit the AAFP consumer website, The Cat Community, at [www.catfriendly.com](http://www.catfriendly.com/scratching) scratching for information.
+
+American Association of Feline Practitioners Announce End of Elective Declawing Procedures
+ For Cat Friendly Practices®
+
+ 
+
+BRIDGEWATER, NJ (January 6, 2021) – The American Association of Feline Practitioners (AAFP), trusted leader in the veterinary community, is proud to announce a policy update ending elective declawing procedures (onychectomy) for felines in all designated Cat Friendly Practices® (CFP). This announcement aligns with the AAFP’s 2017 Position Statement that strongly opposes declawing of cats as an elective procedure. In making this exciting announcement, the AAFP continues supporting high standards of practice, continuing education, and evidence-based medicine.
+
+ 
+
+This update rolled out January 1, 2021 to all Cat Friendly Practice® locations across North, Central, and South America and will be standard in all new practices that wish to earn the designation moving forward. The AAFP and the International Society of Feline Medicine (ISFM) established the Cat Friendly Practice® program as a global initiative elevating care for cats. A CFP designation is a recognized symbol of excellence showing a practice’s commitment in treating feline patients gently and with respect. Cat Friendly Practices® set themselves apart by providing the highest standards of care and offering the best practices in feline medicine.
+
+ 
+
+Feline declawing is an elective and ethically controversial procedure that is not medically necessary in most instances. Many regions throughout the world, including portions of North America, have banned declawing procedures unless there is a necessary medical reason. Many cat caregivers may not realize scratching is a normal and essential feline behavior that relieves stress and allows cats to fully stretch their bodies. With proper education provided by CFP’s, cat caregivers will have a better understanding of the procedure and potential risks associated with it.   
+
+ 
+
+In an effort to provide resources to veterinary professionals and support every Cat Friendly Practice®, the AAFP developed a Claw Friendly Educational Toolkit, located at catvets.com/claw-friendly-toolkit.   There are many alternatives to declawing and the AAFP has created supportive resources to assist veterinary teams and cat caregivers in being informed and living with clawed cats. The comprehensive Toolkit contains:
+
+Review and summary of scientific literature
+Scratching resources such as claw counseling
+Implementation plans to end elective declawing at practices
+Experiences from practices that have stopped elective declawing
+Two complimentary webinars
+FAQs for veterinary professionals and cat caregivers
+Phone scripts
+Client resources
+ 
+
+Additionally, the AAFP’s Cat Friendly Homes website contains resources to assist cat caregivers. This includes educational brochures, flyers, and information about how scratching is a natural feline behavior, declawing alternatives, nail trimming, scratching posts, and more at catfriendly.com/scratching.
+
+ 
+
+Guided by evidence-based information, this decision reflects the AAFP’s commitment to cats and gratitude to be able to take this step towards improving feline welfare.
+
+ 
+
+The Claw Friendly Educational Toolkit is endorsed by the International Society of Feline Medicine (ISFM), Cat Healthy, and CATalyst Council - all dedicated to improving the health and welfare of cats.
+
+ 
+
+###
