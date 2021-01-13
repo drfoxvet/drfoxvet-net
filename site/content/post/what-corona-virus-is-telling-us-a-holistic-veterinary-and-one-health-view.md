@@ -259,6 +259,11 @@ Four lions and two employees at Spain's Barcelona Zoo tested positive for SARS-C
 
 In December 2020 NeeCee, a snow leopard at Louisville Zoo, tested positive for SARS-CoV-2, and test results are pending on the zoo's two other snow leopards. All three big cats showed signs of mild illness, including a dry cough, but they have not been lethargic and are eating well, says veterinarian Zoli Gyimesi.
  Full Story: WDRB-TV/WMYO-TV (Louisville, Ky.) (12/11) 
+
+ After tigers, lions, cats, dogs, and mink, gorillas are the latest animals to contract SARS-CoV-2 outside of lab studies.a press release from the San Diego Zoo, in California, suggests that the virus likely passed to the gorillas from a staff member with an asymptomatic SARS-CoV-2 infection. After two members of the gorilla troop at the zoo started coughing last week, testing of fecal samples confirmed the presence of SARS-CoV-2. 
+
+“Aside from some congestion and coughing, the gorillas are doing well,” Lisa Peterson, the executive director of the San Diego Zoo Safari Park, said. “The troop remains quarantined together and are eating and drinking. We are hopeful for a full recovery.” (From www.medicalnewstoday.com/ 01/12/2021 10:11 GMT — Gorillas in San Diego Zoo have COVID-19).
+
  
 Analysis of 410 species of birds, fish, amphibians, reptiles and mammals found that about 40% of those that are thought to be highly susceptible to SARS-CoV-2 based on the composition of their angiotensin converting enzyme-2 receptors are considered threatened or endangered. These include the Western lowland gorilla, Sumatran orangutan and Northern white-cheeked gibbon, are predicted to be at very high risk of infection by SARS-CoV-2 via their ACE2 receptor. Gray whales, bottlenose dolphins, white-tailed deer and Chinese hamsters are at high risk; cats, cows and sheep are at medium risk; dogs, pigs and horses are at low risk. University of California, Davis (8/21/2020). 
 
