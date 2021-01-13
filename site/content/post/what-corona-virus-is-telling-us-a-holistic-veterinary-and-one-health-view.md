@@ -6,6 +6,7 @@ tags:
   - Ethical Issues
   - Farmed Animals
   - Conservation
+  - Public Health
 ---
             
 Preventing Future Pandemics and Zoonotic Diseases: A One Health Perspective
