@@ -100,3 +100,6 @@ Beyond those ailments associated with breed/genetics and environmental factors t
 
 “What the insurance companies have done is to reverse the business so that the public at large insures the insurance companies”. Gerry Spence— As quoted in Humanscape : Environments for People (1987), by Rachel Kaplan and Stephen Kaplan, p. 97
 
+The posting in the Journal of the American Veterinary Medical Association (Jan 15, 2021, vol 258. P 104-105). ‘Regulatory standards on pet health insurance being developed.’ affirmed my concerns over this chaotically inconsistent industry which could help decrease euthanasia for economic reasons but has fuzzy language as per “preexisting conditions.” Apparently, there are some 20 companies across Canada and the United States involved in pet health insurance and some 17% of owned dogs and cats are insured in the U.S. Now they have established a national Association of Insurance Commissioners to create a pet insurance model law. This working groups meetings are public and interested persons can go to www.jav.ma/workinggroup for details.
+
+
