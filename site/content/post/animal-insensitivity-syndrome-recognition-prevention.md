@@ -5,6 +5,7 @@ tags:
   - Ethical Issues
   - Social Issues
   - Spiritual Issues
+  - Public Health
 ---
 Several years ago in my lectures I would use the term ‘animal-deprivation syndrome’, to describe a condition of insensitivity and indifference toward animals that was acquired in early childhood. Today I regard this condition as an impaired sensitivity toward animals that may or may not be caused by a child being deprived of any meaningful contact with animals, since other factors are involved in the genesis of this animal-insensitivity syndrome. It is a cognitive and affective developmental disorder that I see as part of a larger problem of insensitivity and indifference to the Earth.
 
@@ -71,3 +72,29 @@ Like our physical health, our mental health and Earth health are deeply intercon
 When we harm animals and the Earth, we harm ourselves, and the generations to come will all suffer the consequences of our actions and inaction. As the Iroquois Confederacy advised, the good of the life community mandates that we think seven generations ahead, and seven generations back. This translates into the bioethical consideration of consequences, and in practice means that those who do not learn from the mistakes of their ancestors shall live only to repeat them.
 
 \* This Rule, embraced by all world religions, is to treat others as we would have them treat us.
+
+ AN END NOTE ABOUT EMPATHY
+Empathy is the bridge to experience self-transcendence as exemplified by the I-Thou relationship described by philosopher Martin Buber. This is comparable in some respects to the Christian’s agape and the mystic’s ecstatic rapture in the feeling of unity and oneness. In their book In Search of Self: Interdisciplinary Perspectives on Personhood,  (Grand Rapids, MI; Erdmans, 2011, p. 9) J. Wenzel van Huyssteen and Erik P. Weibe state that “ it is through the transcendence of empathy that one gains the ability to separate self from other and to see the other as fully other in relation to the self. Through the transcendence of imagination, one receives release from the past through openness to a new future.”
+There is now considerable literature to further the exploration and understanding of empathy and its growing recognition as an essential element in child rearing and education; its evolutionary significance in us and other species; its contribution to healing, to the arts and its emerging potential to transform dystopian societies into sane and humane Earth communities. But as I emphasized in my book Bringing Life to Ethics: Global Bioethics for a Humane Society (State University of new York Press 2001) such transformation will be illusory if our collective empathy is limited by anthropocentrism and objective, instrumental rationalism and does not embrace all sentient beings and the environment which we of the Earth community share.
+For instance, see: 
+1. Brener, Milton E., Evolution and Empathy: The Genetic Factor in the Rise of Humanism. McFarland, 2008. 
+2. Prosocial Development - Purdue University ww.purdue.edu/hhs/hdfs/ISSBD/documents/eisenberg2015.pdf
+3. Empathy and Moral Development: Implications for Caring and Justice
+https://www.researchgate.net/.../274807393_Empathy_and_Moral_Development_Implic...
+4. Empathic Development empathicdevelopment.net/
+5. Goetz, J.L. et al  Compassion: An Evolutionary Analysis and Empirical Review  Psychol Bull. 2010 May; 136(3): 351–374. doi:  10.1037/a0018807
+6. Krznaric, R., Empathy: Why it Matters, and How to Get it. Penguin Random House NY 2014.
+7. Rifkin, J., The Empathic Civilization: The Race to Global Consciousness in a World in Crisis. TarcherPerigree, NY, 2009.
+
+
+NOTE: The Empathy-Deficit Disorder
+
+Simply killing animals for some kind of enjoyment I believe is a culturally sanctioned and deeply embedded manifestation of empathy-deficit disorder which has a long history in human slavery and other degrading forms of oppression, exploitation, objectification and inhumanity against man and beast.
+
+
+The empathy-deficit disorder is evident in the corporate world especially in the agrichemical pesticide sector that harm consumers and other species as well as the environment we share. Where is the feeling and responsibility for harmful consequences beyond profit-margins and investor satisfaction? Desensitization as well as rationalization can cement this empathy deficit into society and commerce and dysbiosis and dystopia result as we are witness to today.
+
+
+The empathy-deficit disorder is not only culturally embedded but there evidence of familial, generational and possibly genetic transmission most evident in sociopathic and psychopathic personality disorders .Such abnormal character development and expression might best be prevented through the incorporation of humane education in all grade schools and of related ethics, animal and human rights and associated rule of law They should know about annual turkey and pigeon shoots, bunny bopping, rattlesnake roundups and coyote-killing contests as exposed by Project Coyote, not to forget illegal dog fights and other animals commonly targeted in these contests which can include bobcats, coyotes, foxes, prairie dogs, rabbits, raccoons, squirrels, woodchucks, and in some western states even mountain lions and wolves. If the endemic mistreatment of animals and killing for fun is not opened for discussion in America’s classrooms, the ethical and civic education of our children is defective, deficient. Perhaps this is more for reasons protecting vested interests, of denial and shame and rationalized dismissal of moral significance than from protecting children from reality. The truth can set them free. Our ultimate well-being is in that freedom of spirit which enables and empowers feeling for, loving and living for others.
+
+
