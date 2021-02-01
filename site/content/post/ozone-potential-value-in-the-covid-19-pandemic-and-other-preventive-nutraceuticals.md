@@ -11,9 +11,10 @@ OZONE- POTENTIAL VALUE IN THE COVID-19 PANDEMIC: AND OTHER PREVENTIVE NUTRACEUTI
 
 By Dr. Michael W. Fox BVetMed, PhD, DSc, MRCVS
 
-That one holistic, integrative veterinary practitioner and friend Dr. Margo Roman of
-Massachusetts, one of the pioneers of microbiome restorative therapy in companion animals, has
-had an attack on her State license to practice for advocating Medical Ozone therapy as a protocol for disinfection of PPE and as a possible cure for coronavirus. Using medical ozone therapy 16 years ago, she successfully treated a cat with an earlier form of coronavirus. All the other infected cats in the same cattery died or were euthanized because they were not given access to her care. See Dr. Roman’s review "Ozone therapy: An efficient and cost-effective treatment for infections in animal patients"  Innov Vet Care J  2021 Volume 11 Issue 1 pp. 29-32 for documentation. 
+A fellow advocate of One Health, holistic, integrative veterinary practitioner and friend Dr. Margo Roman of Massachusetts, one of the pioneers of microbiome restorative therapy in companion animals, has had an attack on her State license to practice for advocating Medical Ozone therapy as a protocol for disinfection of PPE and as a possible cure for coronavirus.
+
+
+ Using medical ozone therapy 16 years ago, she successfully treated a cat with an earlier form of coronavirus. All the other infected cats in the same cattery died or were euthanized because they were not given access to her care. See Dr. Roman’s review "Ozone therapy: An efficient and cost-effective treatment for infections in animal patients"  Innov Vet Care J  2021 Volume 11 Issue 1 pp. 29-32 for documentation. 
 
 As a veterinarian with doctoral degrees in ethology and medical science from the University of
 London, England, and with over 45 years consulting with owners about companion animal health
