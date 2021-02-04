@@ -19,6 +19,6 @@ Complications can develop, such as anemia that calls for ferrous sulfate supplem
 
 For ethical reasons, and the fact that cats with kidney transplants are more prone to develop diabetes mellitus and infections, I do not advise cats being given kidney transplants to prolong their lives---and their suffering.
 
-Chronic renal failure can bring on a host of complications, from blood clots, (thromboembolism), dental, eye, heart and joint problems, to impairment of the immune system, pancreatitis, and seizures. Regular veterinary check-ups for cats and dogs with chronic renal failure are therefore called for.
+Chronic renal failure can bring on a host of complications, from blood clots, (thromboembolism), dental, eye, heart and joint problems, to impairment of the immune system, pancreatitis, and seizures. Regular veterinary check-ups for cats and dogs with chronic renal failure are therefore called for. The patients are often dehydrated and benefit from injections of nutrient and hydrating fluids under the skin which also serves as a cheap quasi-dialysis treatment.
 
 Treatment with Vitamin D3 (Calcitrol) is extremely important because the kidney cannot activate this essential nutrient that leads to low blood calcium levels and stimulation of the parathyroid gland that in turn can cause bone loss (osteomalacia), loose teeth, &#8216;rubber jaw, lameness, and increased susceptibility to fractures.
