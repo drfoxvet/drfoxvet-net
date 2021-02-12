@@ -128,6 +128,18 @@ Green people and the wolves may soon be gone
 
 So who will know once all were one?
 
+ADDENDUM
+
+LETTER TO THE EDITOR RE Wisconsin judge orders gray wolf hunt to start this month. Associated Press, Star Tribune, Feb 12th 2021.
+
+
+The Wisconsin judge’s ruling that the sport hunting and killing of Gray wolves must begin this February 2012, during the wolves’ breeding, denning and cub-rearing weeks, supported by state Republicans and following a law suit against the Wisconsin DNR to do so by Kansas-based Hunter Nation, is stunning. And depressing because it is yet another affirmation of a nation divided in terms of ethics and respect for others, be they human or non-human.
+
+ This ruling is an echo of the genocide of indigenous peoples in America’s not so distant past. Where, in the ruling of Judge Bennett Brantmeier is the compassion, science-based reasoning, understanding and recognition of the wolf as an indigenous, endangered species whose ecological services keep deer herds and forests healthy?
+ Their intrinsic, biological value, as well as their spiritual value for many people, surely surpass the rights and interests of those who enjoy killing them for sport? Hunting them for pleasure when most vulnerable is an abomination and the sanctioning of such killing is cultural atavism, a backward step from humanity into inhumanity that is a disgrace in a civilized world.
+
+
+
 
 
 
