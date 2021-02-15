@@ -213,9 +213,19 @@ Plastic wrap made from shellfish and plants is completely compostable
 
  By spraying alternating layers of the chitin and cellulose infused solution, researchers found they could make the layers fuse to one another and form one single, resilient film. Source: Satam, et. al. “Spray-Coated Multilayer Cellulose Nanocrystal—Chitin Nanofiber Films for Barrier Applications.” ACS Chemistry & Engineering. 2018.
 
-ADDENDUM  
+ADDENDA  
 Microplastics are everywhere, even in pristine national parks (Star Tribune, June 15th 2020)
 Microplastics in airborne dust ranging in size from 4 to 1888 microns have been found in wilderness areas in U.S. National Parks, raising concerns about impact on ecosystems, insects and other animals and on the lungs of humans. For details see Plastic dust is blowing into U.S. national parks—more than 1000 tons each year By Erik Stokstad Jun. 11, 2020 , 
 https://www.sciencemag.org/news/2020/06/plastic-dust-blowing-us-national-parks-more-1000-tons-each-year
+
+
+
+Plastic ingestion by marine fish is widespread and increasing.  By Matthew S. Savoca Alexandra G. McInturf  and Elliott L. Hazen First published: 09 February 2021in  Global Change Biology  https://doi.org/10.1111/gcb.15533
+
+
+Abstract
+Plastic pollution has pervaded almost every facet of the biosphere, yet we lack an understanding of consumption risk by marine species at the global scale. To address this, we compile data from research documenting plastic debris ingestion by marine fish, totaling 171,774 individuals of 555 species. Overall, 386 marine fish species have ingested plastic debris including 210 species of commercial importance. However, 148 species studied had no records of plastic consumption, suggesting that while this evolutionary trap is widespread, it is not yet universal. Across all studies that accounted for microplastics, the incidence rate of plastic ingested by fish was 26%. Over the last decade this incidence has doubled, increasing by 2.4 ± 0.4% per year. This is driven both by increasing detection of smaller sized particles as a result of improved methodologies, as well as an increase in fish consuming plastic. Further, we investigated the role of geographic, ecological, and behavioral factors in the ingestion of plastic across species. These analyses revealed that the abundance of plastic in surface waters was positively correlated to plastic ingestion. Demersal species are more likely to ingest plastic in shallow waters; in contrast, pelagic species were most likely to consume plastic below the mixed layer. Mobile predatory species had the highest likelihood to ingest plastic; similarly, we found a positive relationship between trophic level and plastic ingestion. We also find evidence that surface ingestion‐deep sea egestion of microplastics by mesopelagic myctophids is likely a key mechanism for the export of microplastics from the surface ocean to the seafloor, a sink for marine debris. These results elucidate the role of ecology and biogeography underlying plastic ingestion by marine fish and point toward species and regions in urgent need of study.
+
+
 
 
