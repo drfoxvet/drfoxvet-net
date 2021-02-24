@@ -36,29 +36,52 @@ Good nutrition from puppy- and kitten-hood on, and indeed for their pregnant and
 
 It should not be forgotten that many of the basic ingredients in these special prescription diets are the same as in far too many regular pet foods, the manufacture of which, using human food and beverage industry byproducts, some being frequently imported from third world countries, has become a multi-billion dollar recycling enterprise. The competitive nature of the multinational pet food industry has lead to a down-spiral of lowest cost ingredient formulations to maximize profit margins, tests being conducted on caged dogs and cats to evaluate digestibility. But every manufactured batch of products is never fully tested since this would be cost-prohibitive. Subsequent recalls are therefore frequent due to ingredient and supplement deficiencies, excesses, and bacterial and fungal contamination from poor quality ingredients. The massive pet food recall of 2007, where several brands of pet food were contaminated with melamine, imported as fake soy protein from China, resulted in the deaths of thousands of dogs and cats from kidney failure.
 
-Knowing the risks of feeding big-brand pet foods, many dog and cat owners are choosing instead some of the brands listed on my website which contain whole food ingredients from reliable sources, often organically certified, minimally processed, and frequently manufactured in the smaller company’s own facilities where contamination is better monitored and controlled. Alternatively, people are preparing their own pet food and treats, as per the recipes on my website, or purchase from a local home- cooked pet food provider. Veterinarians are also providing their clients with basic recipes and utilizing the services of the veterinarian-run company Balance IT®  (Customer Support, DVM Consulting, Inc. 606 Peña Drive, Suite 700 Davis, CA 95618 Tel: 1-888-346-6362). They offer special diet recipes for animals needing to go on prescribed diets for various health problems as an alternative to the costly and often unpalatable manufactured prescription diets.  The website www.felinenutritioneducationsociety.org is an excellent free resource fodr cat caregivers.
+Knowing the risks of feeding big-brand pet foods, many dog and cat owners are choosing instead some of the brands listed on my website which contain whole food ingredients from reliable sources, often organically certified, minimally processed, and frequently manufactured in the smaller company’s own facilities where contamination is better monitored and controlled. Alternatively, people are preparing their own pet food and treats, as per the recipes on my website, or purchase from a local home- cooked pet food provider. Veterinarians are also providing their clients with basic recipes and utilizing the services of the veterinarian-run company Balance IT®  (Customer Support, DVM Consulting, Inc. 606 Peña Drive, Suite 700 Davis, CA 95618 Tel: 1-888-346-6362). They offer special diet recipes for animals needing to go on prescribed diets for various health problems as an alternative to the costly and often unpalatable manufactured prescription diets.  The website www.felinenutritioneducationsociety.org is an excellent free resource for cat caregivers.
+
+
 
 Now to dispel the above myths and see through the advertising propaganda on TV and in too many veterinary clinics promoting those manufactured pet foods which may not be fit for dogs and cats.
 
-1. Food is food, be it for humans, dogs, cats, or other species. Food and beverage industry byproducts, including beet pulp, brewer’s grains, processed corn and soy meal, poultry remains (‘byproducts’), meat and bone meal, discarded restaurant grease, and rendered proteins and fats from small processing plants are incorporated into many manufactured dog and cat foods. Pet foods labeled as containing meat meal and meat and bone meal may include dead and diseased livestock, road-kills, and can included barbiturate-loaded, euthanized horses, and dogs and cats from animal shelters. 
+1. Food is food, be it for humans, dogs, cats, or other species. Food and beverage industry byproducts, including beet pulp, brewer’s grains, processed corn and soy meal, poultry remains (‘byproducts’), meat and bone meal, discarded restaurant grease, and rendered proteins and fats from small processing plants are incorporated into many manufactured dog and cat foods.
+
+ Pet foods labeled as containing meat meal and meat and bone meal may include dead and diseased livestock, road-kills, and can included barbiturate-loaded, euthanized horses, and dogs and cats from animal shelters. 
 
 Far too many manufactured pet foods are nutritionally deficient either because the poor quality ingredients have been variously processed to remove desired nutrient components for human consumption: Or because other nutrients are destroyed or ‘denatured’ by heat-processing and extraction methods that can leave various chemical contaminants and adulterants. Synthetic additives to correct for nutrient deficiencies, along with chemical preservatives, stabilizers and coloring agents, make for a chemical mash that at best is an analog of real food.
 
+
+
  The raw dog food movement is a reaction to this, the acronym ‘BARF’ diet meaning a biologically appropriate, raw food diet, not simply bones, which can harm dogs, and raw foods. Lightly cooking most ingredients for some dogs and cats is advisable, however, and the risk of Salmonella and other bacterial contamination of meats calls for careful handling and preparation.
+
+
 
 2. Scientifically formulated dog and cat foods are not necessarily biologically appropriate, the science of pet food nutrition being limited in its mandate by corporate interests to maximize profits from lowest cost ingredients, and to minimize risks. This is a far cry from veterinary nutrition, advances in which were stalled for many years by the pet food industry’s assurances to veterinarians that their products were ‘science-based’, and by their continuing influence both financially and educationally on veterinary students around the world.  
 
+
+
 3. I advocate giving suitable table scraps as treats (no cooked bones or high- fat scraps) to dogs and cats after they have had their regular food, or mixing no more than 10 percent with their regular food. If they become picky eaters it may be time to stop feeding table scraps, or give a better quality pet food. Many dogs and cats are constantly hungry and can become obese because they are never nutritionally satisfied by their regular ‘junk’ pet food. Dogs enjoy sharing what we have been eating, and I see this as part of the pack ritual when we share our lives with them. Such food-sharing is also enjoyed by cats since it is an integral aspect of parent care-giving to weaned kittens.
 
+
+
 4. Dogs and cats enjoy variety, and in nature most carnivores and omnivores enjoy a varied diet. I advocate feeding pets different animal proteins like lamb, turkey, fish, beef, on a 3 or 7 day rotation. This can help both identify and avoid food-hypersensitivities/allergies, and is one way to reduce the odds of nutrient deficiencies and imbalances feeding just one kind of manufactured pet food. Sticking to one or two good brand with several different kinds or varieties, as per the selection on my website, may be wise. Animals should always be transitioned gradually over several days onto a new diet to avoid possible adverse reactions or rejection, by adding a little more of the new food mixed in with less and less of the old. Giving probiotics during this transition can be beneficial.
+
+
 
 5. Supplements are called for especially if all ingredients are not organically certified, because the soils of conventional agriculture are nutrient deficient, and almost toxic with synthetic agrichemical fertilizers and pesticides which also contaminate crops. Produce from poultry and livestock fed these crops and their byproducts can also be nutritionally deficient and contaminated with agrichemicals. 
 
 These problems are compounded by the fact that most of the corn, soy and sugar beet derived ingredients in processed human foods and pet foods have been genetically engineered or modified (GM). (For a review and links documenting the health and environmental risks of GM crops and foods, visit www.drfoxonehealth.com). 
+
 NO MORE QUIBBLE ABOUT DOG KIBBLE DOWNSIDES 
+
+
 URBANA, Ill. Feb. 3, 2021 POSTING from Lauren Quinn: –“ For decades, kibble has been our go-to diet for dogs. But the dog food marketplace has exploded in recent years, with grain-free, fresh, and now human-grade offerings crowding the shelves. All commercial dog foods must meet standards for complete and balanced nutrition, so how do consumers know what to choose?
+
+
 A new University of Illinois comparison study shows diets made with human-grade ingredients are not only highly palatable, they’re extremely digestible. And that means less poop to scoop. Up to 66% less.
+
+
 “Based on past research we’ve conducted I’m not surprised with the results when feeding human-grade compared to an extruded dry diet,” says Kelly Swanson, the Kraft Heinz Company Endowed Professor in Human Nutrition in the Department of Animal Sciences and the Division of Nutritional Sciences at Illinois, and co-author on the Journal of Animal Science study. “However, I did not expect to see how well the human-grade fresh food performed, even compared to a fresh commercial processed brand.”
+
+
 Swanson and his team fed beagles four commercially available diets: a standard extruded diet (kibble); a fresh, refrigerated diet; and two fresh diets made using only USDA-certified human-grade ingredients. These fresh diets include minimally processed ingredients such as beef, chicken, rice, carrots, broccoli, and others in small chunks or a sort of casserole. The dogs consumed each diet for four weeks.
 
 The researchers found that dogs fed the extruded diet had to eat more to maintain their body weight, and produced 1.5 to 2.9 times as much poop as any of the fresh diets.
