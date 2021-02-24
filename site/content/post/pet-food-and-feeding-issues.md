@@ -55,6 +55,35 @@ Far too many manufactured pet foods are nutritionally deficient either because t
 5. Supplements are called for especially if all ingredients are not organically certified, because the soils of conventional agriculture are nutrient deficient, and almost toxic with synthetic agrichemical fertilizers and pesticides which also contaminate crops. Produce from poultry and livestock fed these crops and their byproducts can also be nutritionally deficient and contaminated with agrichemicals. 
 
 These problems are compounded by the fact that most of the corn, soy and sugar beet derived ingredients in processed human foods and pet foods have been genetically engineered or modified (GM). (For a review and links documenting the health and environmental risks of GM crops and foods, visit www.drfoxonehealth.com). 
+NO MORE QUIBBLE ABOUT DOG KIBBLE DOWNSIDES 
+URBANA, Ill. Feb. 3, 2021 POSTING from Lauren Quinn: –“ For decades, kibble has been our go-to diet for dogs. But the dog food marketplace has exploded in recent years, with grain-free, fresh, and now human-grade offerings crowding the shelves. All commercial dog foods must meet standards for complete and balanced nutrition, so how do consumers know what to choose?
+A new University of Illinois comparison study shows diets made with human-grade ingredients are not only highly palatable, they’re extremely digestible. And that means less poop to scoop. Up to 66% less.
+“Based on past research we’ve conducted I’m not surprised with the results when feeding human-grade compared to an extruded dry diet,” says Kelly Swanson, the Kraft Heinz Company Endowed Professor in Human Nutrition in the Department of Animal Sciences and the Division of Nutritional Sciences at Illinois, and co-author on the Journal of Animal Science study. “However, I did not expect to see how well the human-grade fresh food performed, even compared to a fresh commercial processed brand.”
+Swanson and his team fed beagles four commercially available diets: a standard extruded diet (kibble); a fresh, refrigerated diet; and two fresh diets made using only USDA-certified human-grade ingredients. These fresh diets include minimally processed ingredients such as beef, chicken, rice, carrots, broccoli, and others in small chunks or a sort of casserole. The dogs consumed each diet for four weeks.
+
+The researchers found that dogs fed the extruded diet had to eat more to maintain their body weight, and produced 1.5 to 2.9 times as much poop as any of the fresh diets.
+
+
+“This is consistent with a 2019 National Institute of Health study in humans that found people eating a fresh whole food diet consumed on average 500 less calories per day, and reported being more satisfied, than people eating a more processed diet,” Swanson says.
+The researchers also found that the fresh diets uniquely influenced the gut microbial community.
+
+
+“Because a healthy gut means a healthy mutt, fecal microbial and metabolite profiles are important readouts of diet assessment,” Swanson says. “As we have shown in previous studies, the fecal microbial communities of healthy dogs fed fresh diets were different than those fed kibble. These unique microbial profiles were likely due to differences in diet processing, ingredient source, and the concentration and type of dietary fibers, proteins, and fats that are known to influence what is digested by the dog and what reaches the colon for fermentation.”
+
+
+The article, "Nutrient digestibility and fecal characteristics, microbiota, and metabolites in dogs fed human-grade foods,” is published in Journal of Animal Science [DOI: 10.1093/jas/skab028x]. Authors include Sungho Do, Thunyaporn Phungviwatnikul, Maria de Godoy, and Kelly Swanson. Funding was provided by JustFoodForDogs LLC.
+
+
+Abstract: Human-grade (HG) pet foods are commercially available, but they have not been well studied. Our objective was to determine the apparent total tract digestibility (ATTD) of HG pet foods and evaluate their effects on fecal characteristics, microbiota, and metabolites, serum metabolites, and hematology of dogs. Twelve dogs (mean age = 5.5 ± 1.0; BW = 11.6 ± 1.6 kg) were used in a replicated 4 × 4 Latin square design (n = 12/treatment). The diets included 1) Chicken and Brown Rice Recipe (extruded; Blue Buffalo); 2) Roasted Meals Tender Chicken Recipe (fresh; Freshpet); 3) Beef and Russet Potato Recipe (HG beef; JustFoodForDogs); and 4) Chicken and White Rice Recipe (HG chicken; JustFoodForDogs). Each period consisted of 28 d, with a 6-d diet transition phase, 16 d of consuming 100% of the diet, a 5-d phase for fecal collection, and 1 d for blood collection. All data were analyzed using the Mixed Models procedure of SAS 9.4. Dogs fed the extruded diet required a higher (P  0.05), but diet modified the relative abundance of nearly 20 bacterial genera. Similar to previous reports, these data demonstrate that the fecal microbiota of dogs fed HG or fresh diets is markedly different than those consuming extruded diets, likely due to ingredient, nutrient, and processing differences. Serum metabolites and hematology were not greatly affected by diet. In conclusion, the HG pet foods tested resulted in significantly reduced fecal output, were highly digestible, maintained fecal characteristics, serum chemistry, and hematology, and modified the fecal microbiota of dogs.
+
+
+The most common health problems in dogs in the U.K. mirror those in the U.S.
+Dental disease is the most common health problem in dogs in the UK, followed by ear infections and obesity, and male dogs are at higher risk than female dogs for these and seven other common health problems, according to a study published in BMC Veterinary Research. "Owners should work closely with their vet to plan appropriate dental and weight care programs at each visit to their veterinary clinic," said veterinarian Dan O'Neill, the study's lead author.
+ Full Story: VetSurgeon (UK) (2/17) What a pity this study did not determine what these dogs were being fed since there is mounting evidence that popular dog kibble, often recommended and sold by veterinarians, is a major contributing factor since such health issues are often quickly resolved and initially prevented by feeding moist, whole-food diets
+
+
+
+
 
 COMPLEX CARBOHYDRATES IN PET FOODS
 The recent trend of pet food manufacturers to market “grain free” cat and dog food has been a contributing factor in some animals developing heart disease (dilated cardiomyopathy). But the various kinds of fiber in the complex carbohydrates of whole grains (and buckwheat) can help prevent obesity and other health problems in both dogs and people. Such grains have no place in cat foods, so often having corn and rice as major ingredients, but some fiber in cat foods can be beneficial.
