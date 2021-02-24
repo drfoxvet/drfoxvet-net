@@ -70,7 +70,12 @@ POSTSCRIPTS
  Can wolves guard Yellowstone's gates against CWD?
 
 Preliminary results of a study in Yellowstone National Park suggest that the park's wolf packs are helping prevent chronic wasting disease outbreaks in wild deer and other cervids by killing sick animals before they spread the prions that cause CWD, says study leader Ellen Brandell, a doctoral student in wildlife ecology at Pennsylvania State University. Natural predation probably won't make a difference where CWD is already endemic, but predators could prevent it from establishing itself elsewhere, Brandell says.
- Full Story: The New York Times (tiered subscription model) (11/13) 
+ Full Story: The New York Times (tiered subscription model) (11/13)
+
+10 deer at Minn. farm had CWD
+The National Veterinary Services Laboratories found chronic wasting disease in five does and four bucks from a Houston County, Minn., white-tailed deer farm that was depopulated when CWD was found in another deer in October. The farm had been double-fenced since 2017 and the owner was in compliance with regulations, which shows how difficult it is to detect and control CWD, says Minnesota Board of Animal Health Assistant Director Linda Glaser.
+ Full Story: KSTP-TV (Minneapolis) (2/22/2021) 
+ 
 References
 1. Khasnis A.A, Nettleman M.D. Global warming and infectious disease. Arch. Med. Res.2005; 36: 689–96
 2. Fox M.W. The One Health: Human Disease, Veterinary Responsibilities and Our Animal and Environmental Relationships. J Am Holist Vet Med Assoc. 2018;53:26-31.
