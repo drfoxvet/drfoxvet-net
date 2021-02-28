@@ -85,6 +85,18 @@ Guided by evidence-based information, this decision reflects the AAFP’s commit
 
 The Claw Friendly Educational Toolkit is endorsed by the International Society of Feline Medicine (ISFM), Cat Healthy, and CATalyst Council - all dedicated to improving the health and welfare of cats.
 
+DE-CLAWING AND OBESITY
+
+Obesity is a widespread cat health problem today: a crisis which causes much suffering and chronic deterioration. Exercise is part of the treatment (and prevention) all experts advise so I must add an additional observation to the many down-sides of de-clawing cats from seeing and hearing our rescued (from TNR) cat Fanny digs her claws into our carpeted floor and stairs for traction and jets off like a rocket chasing our dog and during her upstairs-downstairs “evening crazies.” Cats’ evening and sometimes early morning “crazies” are associated with the innate hunting cycle of being hyper-alert and physically active, seeking, stalking, rushing and pouncing on prey. 
+
+
+ Ethologically, a function of having claws is in addition to dexterity, agility and self-care ( grooming/scratching) is to be able to take off at great speed, the claws serving like a sprinter’s cleats by providing greater traction and momentum as the body is propelled forward.
+
+
+Without her claws Fanny would have less traction and likely be less active, eventually developing weaker muscle tone and becoming lethargic, depressed and more susceptible to obesity if her weight and food intake were not closely monitored. So I am suggesting that de-clawing is a significant contributing factor in the current feline obesity epidemic and not simply biologically inappropriate kibble diets and over-feeding because de-clawed cats cannot be as physically active and nowhere near the same intensity as those who have all their claws.
+
+
+
  
 
 ###
