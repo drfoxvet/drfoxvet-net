@@ -82,6 +82,8 @@ Veterinarians in the U.S. and U.K. have been recently discussing managing “mor
 
 For further reading see:
 
+Dr John Read | Wildlife Ecologist interview MAR 2020 · AUSSIE WILDLIFE SHOW on the threat of free ranging cats in Australia and cat control methods restoring ecological balance. Talks about the threat to humans -details toxoplasmosis. His book "Among the Pigeons, Why Cats Belong Inside" advocates for keeping pet cats indoors with a chapter on how TNR is ineffective. https://podtail.com/pt-BR/podcast/aussie-wildlife-show/dr-john-read-wildlife-ecologist/
+
 [Maybe Rats Aren't to Blame for the Black Death - National Geographic](https://news.nationalgeographic.com/2018/01/rats-plague-black-death-humans-lice-health-science/) (https://news.nationalgeographic.com/.../rats-plague-black-death-humans-lice-health-sc...).
 
 Anne Fawcett & Siobhan Mullan,2018, Managing moral distress in practice, Veterinary Record, In Practice, 40: 34-46
