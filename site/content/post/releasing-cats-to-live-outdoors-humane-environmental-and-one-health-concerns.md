@@ -79,7 +79,7 @@ See ‘Outdoor fecal deposition by free-roaming cats and attitudes of cat owners
 294 adult residents of Cayucos, Los Osos, and Morro Bay, Calif. The region's cat population was estimated at 7,284 owned and 2,046 feral cats, and 38% of surveyed households owned a mean of 1.9 cats/household. Forty-four percent of cats defecated outside >75% of the time. Annual fecal deposition (wet weight) by owned cats in the 3 communities was estimated to be 77.6 tonnes (76.4 tons). Cat owners were more likely to oppose cat licensing and impounding stray cats and support trap-neuter-return for stray cats and less likely to be concerned about water pollution, than were noncat owners.
 Conclusions and Clinical Relevance—Feral cats represented a sizeable proportion (22%) of the free roaming cats in this area and could be contributing 30.0 tonnes (29.5 tons) of feces to the environment per year. However, feral cats are not the principal source of fecal loading because owned cats defecating outdoors contribute an estimated 77.6 tonnes (76.4 tons) or 72% of the annual outdoor fecal deposition.
 
-
+Dr John Read | Wildlife Ecologist interview MAR 2020 · AUSSIE WILDLIFE SHOW on the threat of free ranging cats in Australia and cat control methods restoring ecological balance. Talks about the threat to humans -details toxoplasmosis. His book "Among the Pigeons, Why Cats Belong Inside" advocates for keeping pet cats indoors with a chapter on how TNR is ineffective. https://podtail.com/pt-BR/podcast/aussie-wildlife-show/dr-john-read-wildlife-ecologist/
 
 
 
