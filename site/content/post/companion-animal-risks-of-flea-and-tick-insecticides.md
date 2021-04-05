@@ -76,6 +76,30 @@ Dogs treated with spot-on insecticides or wearing insecticide-releasing collars 
 
 Dysbiotic intestinal, aquatic and terrestrial microbiomes are ecologically interconnected. The contribution of antiparasitic agents to such dysbiosis on several trophic levels needs to be seen from a One Health perspective and eco-systemic loss of biodiversity which all responsible parties, from manufacturers and suppliers to users and regulators need to address at home and abroad.
 
+From Animal Doctor, syndicated newspaper column by Dr. Fox, April 6th 2021:
+
+
+DEAR DR.FOX, I saw on an article I was reading where a woman had her dog act out of character and aggressive after using flea medication. I have a 13- week old puppy and we used Activyl on him and about 7 days later he has these aggressive outburst then he acts overly sweet and you can almost see the confusion in his eyes. This is not like him in any way I don’t know if it’s the medicine but that’s the only thing we have changed. Did you get anymore reports or any leeway on this? 
+A.T., Tulsa OK.
+ DEAR A.T., I am shocked you treated such a young dog with this kind of product. If a veterinarian prescribed this, he/she should go back to school. Most likely you made the purchase in a local store which should be prohibited in every community and State. 
+According to the manufacturers ( Merck Animal Health) of this insecticide Activyl Topical for Dogs and Cats. “Fleas don’t have to bite to take up Activyl, simply coming into contact with the skin is enough”. 
+ Various flea and tick insecticides have caused sudden, unprovoked aggression in dogs and until your communication I was not aware that this highly toxic, hazardous organochloride insecticide was approved for companion animal use. It is strictly regulated in Europe. Indoxacarb is an organochlorine insecticide and a methyl ester. Greenpeace, Germany, has put this chemical Indoxacarb on its Pesticide Blacklist. (PDF) The EU Pesticide Blacklist 2016 - ResearchGate
+www.researchgate.net › publication › 307601520_The_E...
+
+ NOTE: This product does not kill these insects before they have a chance to transmit any diseases they may be carrying once they penetrate the skin and start sucking the animals' blood.
+ According to  one European report (   https://www.ema.europa.eu/en/documents/overview/activyl-tick-plus-epar-medicine-overview_en.pdf) “The most common side effects seen with Activyl Tick Plus  (which may affect up to 1 in 10 animals) are transitory scratching, erythema (reddening of the skin) and hair loss at the application site. These effects usually resolve without treatment. The application of Activyl Tick Plus may produce a temporary oily appearance or hair clumping at the application site, or a dry white residue. This is normal and will generally resolve within a couple of days. Activyl Tick Plus must not be used in cats as adverse reactions and even death can occur. It
+must not be used in dogs which are known to be hypersensitive (allergic) to indoxacarb, permethrin or to any of the other ingredients. Fleas, ticks and sand flies might still be able to transmit any diseases which they may be carrying”.
+
+There are safer alternatives to repelling fleas, ticks and other biting insects which all responsible and caring dog and cat owners should adopt rather than continue using insecticides year-in and year-out on their animals which can cause seizures and death as with Bravecto. Short and long- term adverse health and environmental consequences can be avoided. For such preventive measures see the posting on my website www.drfoxonehealth.com 
+
+
+
+SERESTO FLEA COLLAR LAW SUIT
+From Johnathan Hettinger, Midwest Center for Investigative Reporting March 26, 2021
+“Two pet owners who claim their dogs either died or developed problems after using Seresto flea and tick collars filed a class-action lawsuit this week against Elanco Animal Health, alleging it misrepresented the safety of its product”.
+“The lawsuit, filed in the U.S. District Court of California in Los Angeles, comes just days after a congressional subcommittee asked Elanco to voluntarily recall the flea and tick collars in the wake of reporting by the Midwest Center for Investigative Reporting and USA TODAY on thousands of incident reports about pet and human harm linked to the collar. The lawsuit cites the news outlets’ reporting. Elanco declined to voluntarily recall the product”.
+
+
 ## END NOTES & REFERNCES
 
 For an earlier analysis of the risks of these products go to the Natural Resources Defense Council’s report
