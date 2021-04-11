@@ -102,6 +102,7 @@ A huge amount of carbon stored at the bottom of the ocean is released every year
 
  Expanding protected areas, including in heavily-trawled national waters, could greatly reduce the industry’s carbon footprint. At a biodiversity conference later this year, nations will discuss plans to protect at least 30% of the global ocean by 2030. “One notable priority for conservation is Antarctica, which currently has little protection,” says ecologist David Mouillot. ( Sala, E., Mayorga, J., Bradley, D. et al. Protecting the global ocean for biodiversity, food and climate. Nature (2021). https://doi.org/10.1038/s41586-021-03371-z).The COVID-19 pandemic and post-pandemic socio-economic recovery should not distract us from the urgency of addressing the above interconnected issues in order to secure some quality of life for whatever generations are to inherit this Earth.
 
+
  THE GREAT HEALING:ECO-ECONOMICS, EMPATHY AND REVERNCE FOR LIFE
 
 
@@ -110,7 +111,11 @@ Bill Neidjie, aboriginal elder and spokesman for the Bunitj clan of the Gagudju 
 
 Through such empathy, which can call for endurance, courage and self-sacrifice, founded on bioethics and sound science, humankind may begin the Great Healing: The One Health of people, other animals, plants and the environment, long symbolized in the wisdom teachings of the Medicine Wheel and Sacred Hoop of native American Indian tradition.
 One day perhaps in the Forever we will always be able to go and hear the songs of myriads of insects in the jungle night and the dawn choruses and choirs of waking birds. In such Glory restored and protected we may walk in humility and grace and be worthy of our self-anointed title of Man the wise: Homo sapiens indeed! Or will it be a virtual world devoid of virtue with desecrated and polluted wildlands, chemical wastelands of genetically engineered agribusiness crops feeding an electronically- wired sub-species, Homo technos, technocentric man?
+
+
 I prefer the biocentric, but the choice and fate of future generations is ours to make: To listen to the Earth and care, or not. No democracy can function long, or any civilization, if it is not first and foremost biocentric, feels for the trees like Bill Neidjie and practices the wisdom of St Francis of Assisi, patron saint of the environment, who said “It is in giving that we receive.” 
+
+There is more joy and fulfillment in giving rather than having: In liberating rather than possessing: In cherishing rather than coveting and in conserving rather than consuming. Sublimation and the sublime are linked by the self-transcending power of loving kindness, also by our openness to the life and beauty in Nature along with the suffering and transience of sentient life in myriad forms and realms of existential awareness, sense and sensibility. The “dark” side of nature with predation, disease earthquakes and other natural disasters we cannot control but they pale before what we can control-our greed, hatred, cruelty and delusion if we chose to evolve rather than cause suffering and perish. The virtues that pave the way to peace and justice for all beings hold the moral compass of conscience and compassionate action through reason and empathy that becomes dysfunctional with egotism, objectivism and psychopathy.
 
 
 We must break away from our virtually unbroken human history of violence against the natural order as well as against our own kind and other species since we all, ultimately, suffer the consequences because the common good and the good of the Commons are inseparable.
