@@ -139,6 +139,16 @@ Some of the rituals of initiation and the vision quest once widely practiced by 
 
 
 Basic education in self-care/health-care maintenance, from good nutrition and home-economics (once taught in all U.S. High schools), to Hatha yoga, baking your own bread and making your own dog food are seeing significant progress thanks to people who still have freedom of choice to embrace the basic principles of One Health in their personal and professional lives and places of work and worship. (For more details visit https://onehealthinitiative.com/ /).
+COMPASSION FATIGUE
+The COVID-19 pandemic has given the public greater understanding of the nature of compassion fatigue in those health-care workers in the front-lines of fighting this pandemic caring for many patients who do not recover in spite of everyone doing their best to save lives.
+Compassion fatigue has both physical and psychological consequences including exhaustion, frustration, anger, guilt, disrupted sleep and appetite, weakening of the immune system, illness including psychosomatic disorders, anxiety, depression, despair, alcoholism, drug addiction and suicidal ideation. It must be recognized early as a situational and relational psychophysical crisis and supportive intervention sought and provided by sympathetic and understanding staff, friends and relatives as well as professional stress-management therapists. 
+
+
+Compassion fatigue may include a diminution of empathy but it is the antithesis of the empathy deficit disorder which is an endemic psychopathology of varying degrees of desensitization, objectification, separation and disassociation exemplified by the rapist, trophy hunter and mass-shooter.
+
+
+Compassion fatigue needs to be more widely and sympathetically acknowledged since it has been an issue for decades for many caring souls working on other front-lines especially in animal shelters and in the veterinary profession as well as those working in wildlife protection and conservation. Coping with the burden of our own empathy for others, be they human or non-human, can be a challenge and calls for personal vigilance and self-care so we can better care for those whom we love, stive to save and heal.
+
 
 
 I hope that from the COVID-19 pandemic greater international collaboration will be established, especially prohibiting wildlife trafficking (coupled with sex and drug trafficking) and also live animal markets along with animal factory farms which are the main sources for such pandemics. I see an emerging generation of informed consumers and kitchen anarchists demanding organic whole foods so the world will be made green again. The healthier our environment, the healthier are our immune systems, cognitive functions and any offspring we may choose to have.
