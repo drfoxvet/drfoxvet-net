@@ -147,7 +147,7 @@ Compassion fatigue has both physical and psychological consequences including ex
 Compassion fatigue may include a diminution of empathy but it is the antithesis of the empathy deficit disorder which is an endemic psychopathology of varying degrees of desensitization, objectification, separation and disassociation exemplified by the rapist, trophy hunter and mass-shooter.
 
 
-Compassion fatigue needs to be more widely and sympathetically acknowledged since it has been an issue for decades for many caring souls working on other front-lines especially in animal shelters and in the veterinary profession as well as those working in wildlife protection and conservation. Coping with the burden of our own empathy for others, be they human or non-human, can be a challenge and calls for personal vigilance and self-care so we can better care for those whom we love, stive to save and heal.
+Compassion fatigue needs to be more widely and sympathetically acknowledged since it has been an issue for decades for many caring souls working on other front-lines especially in animal shelters and in the veterinary profession as well as those working in wildlife protection and conservation. Coping with the burden of our own empathy for others, be they human or non-human, can be a challenge and calls for personal vigilance and self-care so we can better care for those whom we love, stive to save and heal. Those caring in-home for a terminally child, parent, spouse or companion animal may suffer some of the symptoms of compassion fatigue. This can cloud end-of-life and euthanasia decisions but affordable and effective palliative, hospice care and support from visiting nurses and veterinary assistants can be of significant benefit for all concerned.
 
 
 
