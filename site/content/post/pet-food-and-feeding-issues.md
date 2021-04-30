@@ -177,6 +177,50 @@ According to one informing source ( https://www.hsph.harvard.edu/nutritionsource
 Lectins may also play a role in coronary artery disease in humans. ( See Steven R. Grundy, Abstract 412: Dietary Lectins Cause Coronary Artery Disease via an Autoimmune Endothelial Attack Mediated by Interleukin 16 Originally published12 Mar 2019https://doi.org/10.1161/atvb.38.suppl_1.412Arteriosclerosis, Thrombosis, and Vascular Biology. 2018;38:A412).. An autoimmune cause of coronary artery disease at the endothelial level via T cell activation and attraction in patients with gluten and lectin sensitivity or known autoimmune disease is proposed in this report.
 “Grain free” cat and dog foods and vegan dog foods include high protein pulses as do most manufactured kibble dry dog and cat foods that also have a high corn and cereal content, notably “Brewer’s grains”. This means that these pet foods have high levels of lectins and gliadins, putting animals at risk from developing inflammatory conditions and contributing to the increasing incidence of various bowel disorders and cardiomyopathy in companion animals, as well as arthritis and diabetes.
 
+CHEMICAL ADDTIVES IN PET FOODS AND TREATS CAN CAUSE SEIZURES. 
+
+  ( From the author’s Animal Doctor syndicated newspaper column April 27th 2021)
+
+DEAR DR FOX, My 8 lb Maltese is 12 yrs old and has had his first seizure this past Tuesday and Thursday- today- he has had another one. I read your article that melatonin will benefit a dog with seizures. Is this true about Melatonin and what daily dosage do you recommend?
+
+
+ I took him to the Vet Tuesday and they took a blood sample and did chest x-rays.  The Vet said everything looked good. If the seizures happen again, the Vet informed me she would put him on anti-seizure barbiturate medication. I’ll be looking for your reply. Thank You 
+R.R., Albuquerque NM 
+
+
+DEAR R.R., There are many reasons why dogs have seizures. But as an emergency, give 3 mg melatonin before bed time and a teaspoon of coconut oil in every meal.
+
+
+Good luck. More tests may be needed. Hopefully, no recent vaccination history or flea treatment which can cause seizures.
+R.R. replies: Thank you for your reply.  The melatonin stopped my dog’s seizures.  While doing some research online, I discovered that Rosemary extract and a dye called Red 40 can cause seizures in small dogs.  Two of his treats had these ingredients. Since removing these treats from his diet, his seizures have stopped.
+
+
+DEAR R.R., I commend you for your research. I did a quick internet search and found: Discussion re seizures in Maltese dogs on July 15, 2006. https://www.spoiledmaltese.com/threads/red-dye-and-seizures.65111/
+
+
+Posted Nov 8, 2009 Pocono Record: DEAR DR. FOX: As you have written before, red dye 40 may cause seizures in dogs. I have found that it does so in my 12-year-old Aussie mix, Petey. In addition, I have found that Petey will have a seizure when I give him a bit of cheddar cheese that includes the additive annatto. I now read every label carefully (as I have for several years) to be sure that neither of these ingredients is included in anything that Petey might ingest.
+F.C., East Lyme, Conn.
+
+
+DEAR F.C.: Annato has been linked with many cases of food-related allergies and is the only natural food coloring known to cause as many or more reactions than artificial food coloring. Because it is a natural colorant (from the seed-pulp of a tropical tree, the Achiote or lipstick tree), companies may label their products “all natural, no artificial colors,” and this can lend a false sense of security to consumers who suffer from dye allergies.
+
+
+Cat and dog food manufacturers should cease and desist putting Red 40, a petrochemical azo dye in their products, including treats. Nestle Purina uses red iron oxide instead---but why? Only for us since cats and dogs are red-green colorblind and we may think it is some kind of meat. Nuts! “natural flavoring” could mean monosodium glutamate (MSG which can also cause seizures.
+
+
+Rosemary extract is used as a preservative and its use should be reconsidered since it too can cause seizures as you have experienced along with several internet postings, notably:
+ROSEMARY EXTRACT: PET FOOD NEUROTOXIN, SEIZURES
+www.thedogpress.com › dogfood › Rosemary-Neuroto...
+Rosemary Extract & Seizures in Dogs - Labrador Retriever
+mmkennels.com › rosemary-extract-seizures-in-dogs
+In an earlier column I shared the story of a cat who developed seizures from being given a popular brand of cat treats and became so conditioned that she would have a seizure on hearing the bag of treats being opened! 
+
+
+My advice is to avoid manufactured and colorful kibble and treats and look for organically certified, frozen, freeze-dried or preservative free canned foods and try a variety of brands and different protein ingredients: variety is the spice of life and is one way of avoiding deficiencies or excesses which could be an issue when feeding the same brand and ingredients day-in and day-out.
+
+
+
+
  Pet Food Ingredient Allergies in Dogs and Cats
 
 From Ralf S. Mueller, Thierry Olivry,  and Pascal Prélaud Critically appraised topic on adverse food reactions of companion animals (2): common food allergen sources in dogs and cats. BMC Vet Res. 2016; 12: 9. Published online 2016 Jan 12. doi: 10.1186/s12917-016-0633-8:
