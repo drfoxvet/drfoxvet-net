@@ -5,6 +5,74 @@ tags:
   - Environment
 ---
 LAWNS BE GONE!
+
+GRASS LAWNS: ANIMAL, ENVIRONMENTAL AND PUBLIC HEALTH RIKS
+
+
+           By Michael W. Fox BVetMed, PhD, DSc, MRCVS 
+
+
+Some years ago I confronted an elderly neighbor who was spraying dandelions in his lawn with the selective herbicide Roundup. I told him politely that such chemicals can cause cancer and that dandelions are both nutritious and that there is evidence of their medicinal value in treating some types of cancer. But he continued spraying regardless and it was perhaps no coincidence that a year later he died from cancer. 
+
+
+Beauty is in the eye of the beholder and for many, a perfect lawn is indeed beautiful. But when I see perfect lawns on private and corporate property, golf courses and in public parks I see abominations devoutly to be transformed: At least untreated with herbicides and chemical fertilizers and ideally re-wilded with indigenous plant varieties.
+
+
+Aside from the constant seasonal noise and air pollution of gasoline-powered mowers, these green, chemically-treated biological deserts are hazardous on many fronts which some scientists, including ecologists and veterinary toxicologists, have investigated and clearly documented.
+
+
+Before being purchased by the German pharmaceutical company Bayer, Monsanto Corp. demanded that I retract my comments in my nationally syndicated Animal Doctor newspaper column about the many health and environmental risks of their herbicide Roundup, which I refused to do, and they sent a letter discrediting my science-based concerns to all newspapers that published my article. Now, in one of the largest civil settlements in U.S. history, Bayer has agreed to allocate close to $10 billion to resolve around 125,000 filed and unfiled cases claiming its glyphosate-based weed-killer Roundup causes cancer. The deal will still allow Bayer to sell Roundup without adding any warnings, the New York Times reported. It comes after three juries in early, high-profile trials awarded more than $2.4 billion to plaintiffs who developed non-Hodgkin's lymphoma after long-term Roundup use.
+
+
+This herbicide, still widely used in agriculture and around private property by homeowners and public places by municipalities is often combined with the herbicide 2,4-D, which is also used separately to kill “weeds” invading lawns. 2,4-D is an endocrine disruptor that can damage thyroid gland function and is a potential carcinogen. A 1991 National Cancer Institute study concluded that dogs exposed to just four lawn treatments a year significantly increased their risk of malignant lymphoma. (For details visit ewg.org/research/24D/pets-wildlife-24D.)
+
+
+In 2015, the International Agency for Research on Cancer declared 2,4-D a possible human carcinogen, based on evidence that it damages human cells and, in a number of studies, caused cancer in laboratory animals. More conclusive is the proof that 2,4-D falls into a class of compounds called endocrine-disrupting chemicals, compounds that mimic or inhibit the body's hormones. Laboratory studies suggest that 2,4-D can impede the normal action of estrogen, androgen and most conclusively, thyroid hormones. Dozens of epidemiological, animal and laboratory studies have shown a link between 2,4-D and thyroid disorders. (nrdc.org/stories/24-d-most-dangerous-pesticide-youve-never-heard).
+
+
+Dr. Deborah W. Napp and associates published a report, "Detection of herbicides in the urine of pet dogs following home lawn chemical applications," in Science of the Total Environment. Volumes 456–457, 1 July 2013, Pages 34-41 The researchers found, "Chemicals were detected in the urine of dogs in 14 of 25 households before lawn treatment, in 19 of 25 households after lawn treatment and in 4 of 8 untreated households. Chemicals were commonly detected in grass residues from treated lawns, and from untreated lawns suggesting chemical drift from nearby treated areas. Thus, dogs could be exposed to chemicals through contact with their own lawn (treated or contaminated through drift) or through contact with other grassy areas if they travel. The length of time to restrict a dog's access to treated lawns following treatment remains to be defined."
+
+
+In earlier studies, veterinarian Lawrence T. Glickman and associates reported that exposure to lawns or gardens treated with herbicides was associated with an increased risk of transitional cell carcinoma of the urinary bladder in Scottish Terriers. Until additional studies are performed to prove or disprove a cause-and-effect relationship, owners of Scottish Terriers should minimize their dogs' access to lawns or gardens treated with phenoxy herbicides. (J Am Vet Med Assoc 2004; 24:1290–1297)  Canine malignant lymphoma (CML) has been established as a model for non-Hodgkin’s lymphoma (NHL).Results suggest that use of some lawn care chemicals may increase the risk of CML according to an analysis by Biki B.Takashima-Uebelhoer and associates (  Environmental Research Vol 112, January 2012, Pages 171-176).
+
+
+In addition to the health and environmental risks of lawn herbicides we have the need for constant watering which promotes chemical run-off into surface and ground water. Also, frequent application of chemical fertilizers, (not just by agriculture) most noticeable from properties surrounding lakes, leads to eutrophication from fertilizer run-off, resulting in the blooming of aquatic algae. These can rob the life in the water of oxygen and endanger aquatic life. Blue-green algae called cyanobacteria sicken and kill many dogs and other animals every summer, even making humans ill when their water supply is contaminated. Dogs can develop poisoning when they drink from, or even simply swim in, contaminated water sources. If blue-green algae is ingested, it can cause severe neurologic and liver damage. Signs of blue-green algae toxicity include panting, respiratory failure, vomiting, diarrhea, seizures, coma and death.
+Homeowners, community leaders, municipal authorities, and state and federal agencies involved in regulating the use of these and other chemicals in agriculture need to stop this insanity. Organic farmers are leading the way, along with books for homeowners like Doug Tallamy’s Nature’s Best Hope, to get rid of their perfect lawns and landscape with indigenous plants for the benefit of insects, birds, other wildlife -- and our own health as well as our animal companions.
+
+
+ADDENDA
+
+
+On June 7, 2018, walking a local stream-side trail with my dog Kota I pulled out one of her empty poop bags to harvest the tender tops of some Sting nettles for soup (more nutritious than spinach and with more medical benefits) that grew in a few patches along the bank of Bassett Creek. I was shocked that most were wilted and dying. Then I saw a sign indicating they had been sprayed with Dow Agroscience’s herbicide Garlon 3A the previous day by licensed applicator Minnesota Native Landscapes and children and pets should be kept away. This herbicide is toxic to aquatic life, is a probable carcinogen and surely causes more harm to the environment and biodiversity than do the Sting nettles. Subsequently, on the morning of June 13/18 I met two operatives with Applied Ecological Services readying to spray Aquaneat, which contains 53.8% glyphosate, along the bank of Bassett Creek fifty yards upstream from the area already treated by the other company to “control invasive weeds and stop erosion along the bank.” 
+
+
+These eco-friendly sounding company names belie the risks of the chemicals they profitably put into the environment that June rains in particular will quickly leach into the creek and ultimately our drinking water. There is enough coming from commodity crops like GMO corn, soy, canola and cotton without the addition from urban and suburban agencies responsible for environmental health and integrity of ecosystems and private property owners applying herbicides where they wish. Glyphosate and other herbicides disrupt the “microbiome” of beneficial bacteria in the gut with multiple adverse health consequences including increased intestinal permeability. This may facilitate the absorption of insecticides, notably Bt toxins (see below) and neonicotinoids linked with the demise of honey bees and other pollinators.
+ 
+Deformed frogs were first discovered in Minnesota ponds by school children in 1995.  Investigators later found these developmental and also reproductive problems were due to herbicides and an insect growth regulator, methoprene. Municipal authorities use these chemicals in fresh water ponds and other standing surface water habitats to control mosquito-borne diseases such as West Nile virus, Eastern equine encephalitis virus and Zika virus by killing mosquito larvae in the water.  But they coincidentally kill other aquatic organisms that normally consume the larvae such as dragon fly nymphs and aquatic beetles.  Fewer healthy frogs means fewer tadpoles to consume algae, some of which, the blue-green algae (cyanobacteria) can produce lethal toxins that often sicken and even kill dogs like Kota if she drank the water. 
+
+
+Common biorational pesticides include the insect juvenile hormone mimic methoprene and pesticides derived from the bacteria Bacillus thuringiensis israelensis, Lysinibacillus sphaericus and Saccharopolyspora spinosa (spinosad). Health agencies, the public and environmental groups have especially debated the use of methoprene because some studies have shown toxic effects on non-target organisms.”
+
+
+ Minnesota Metropolitan Mosquito Control reports that “The insect growth regulator methoprene and the soil bacterium Bacillus thuringiensis var israelensis or Bti, are the primary larval control materials. These active ingredients are used in the trade-named materials Altosid® and MetaLarvTM (methoprene) and VectoBac® (Bti). Other materials included in the larval control program are B. sphaericus (VectoLex® CG) and Saccharopolyspora spinosa or “spinosad” (NatularTM G30).” Urban, suburban and rural communities across the state are subjected to routine aerial delivery of these pesticides to control mosquitos during the breeding season, now extended with climate change. Silent Spring is becoming Silent World.
+
+
+Bacillus thuringiensis (Bt) is also applied across Minnesota and most other states by Departments of Natural Resource and Forest Management to kill various species of caterpillars, killing non-target species in the process. This onslaught on the insect kingdom is compounded by over 35 million hectares of GMO corn and close to 4 million hectares of GMO cotton genetically engineered to produce various Bt toxins which, along with other pesticides, notably neonicotinoids that circulate through the entire plant now threaten bee and other crop pollinating insects.
+ 
+
+The domino-effect of these chemicals means insectivorous birds, bats, reptiles and other creatures starve to death and become extinct. In the absence of those species that helped control “pests” and insect-borne diseases we become ever more dependent on pesticides to which target species quickly evolve resistance. This was the prescient concern of organic farmers who opposed GMO crops that are engineered to produce Bt insect toxins and whose judicious use of Bt bacterial applications is approved under Organic Certification; and who also predicted the evolution of ‘superweeds’ resistant to glyphosate.
+    
+Frogs and other amphibians are becoming extinct all around the world yet they and other creatures play a vital role in controlling adult mosquitos. We have the science now to identify and correct many communicable (zoonotic) disease problems, but without the will of an informed public demanding responsible government and corporate behavior with regard to public and environmental health we will surely share the fate of the frogs. 
+
+SAFER “WEED” CONTROL:  vinegar: an alternative to glyphosate? - University of Maryland Extension https://www.extension.umd.edu/.../Vinegar-AnAlternativeToGlyphosate-UMD-Smith-...attested that glyphosate may account for up to 90% of pesticide applications ... As a non-selective herbicide, glyphosate will kill most plants it contacts. .... Nonetheless, using acetic acid on weeds with tap roots (dandelions, Canada ... Bioganic Safety Brands Weed & Grass Killer - 10% acetic acid, 2% eugenol (clove oil), 2%.
+In Minnesota a bill has been passed by State legislature to support allotting $2 million to subsidize 75% of the cost of people converting their lawns to wild, indigenous flowering plants to help save the bees and other pollinators. Such legislation should be adopted by all states
+ 
+
+ 
+
+
+
+
 From Dr. Fox’s newspaper column Animal Doctor with Andrews McMeel Syndication
 
 
