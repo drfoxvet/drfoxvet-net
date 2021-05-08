@@ -218,6 +218,21 @@ In an earlier column I shared the story of a cat who developed seizures from bei
 
 My advice is to avoid manufactured and colorful kibble and treats and look for organically certified, frozen, freeze-dried or preservative free canned foods and try a variety of brands and different protein ingredients: variety is the spice of life and is one way of avoiding deficiencies or excesses which could be an issue when feeding the same brand and ingredients day-in and day-out.
 
+Mercury levels in pet food cause for concern, fish-based foods main culprit
+
+
+New study by University of Nevada, Reno scientists also shows inaccurate ingredient labeling
+
+The study, published in February in Science of the Total Environment, was authored by Dunham-Cheatham and her colleagues. After mercury was found in pet food in a 2016 research project at the University of Nevada, Reno, this new team took a closer look.
+
+ “As scientists at the University of Nevada, Reno and experts in the fields of mercury and genetic analyses, we want to learn more about what is really in pet foods and help consumers make a more informed decision when purchasing food for their pets,” Dunham-Cheatham said.
+ “We as humans often are exposed to unknown contaminants in our food; animals are even more susceptible to contaminants in food because they are fed the same food daily,” Mae Gustin, professor in the Department of Natural Resources & Environmental Sciences, who primarily conducts research on mercury in the environment, said. “It is important for people to know that the foods they are feeding their animals are safe. This information is important for manufacturers of pet food as well as for pet owners.” Nevada Today | University of Nevada, Reno (unr.edu)
+
+
+Another study finding heavy metals especially in dog kibble: “ Heavy Metal Concentrations 2009 and 2019, reports “ In 2009, there were significant amounts of metals found in the pet food, with 215 ppm aluminum and over 1 ppm of several potentially toxic metals, including chromium (2.5 ppm), nickel (3.2 ppm), lead (6 ppm), and tin (9.4 ppm). There was 0.5 to 1 ppm of antimony and cobalt. Some foods had correlations of ppm levels of nickel and tin showing large amounts of potential wear metal contamination from the manufacturing equipment. There was even uranium detected in several samples up to 1 ppm….The samples from 2019 still showed heavy metal contamination, including twice the amount of uranium (1.7 ppm), and three times the amount of arsenic (0.7 ppm). Lead levels were significantly lower overall in the 2019 samples with a maximum of 0.5 ppm… In the 2019 study, the levels of uranium, beryllium, and thorium were again examined, and it was found that the 2019 samples had a greater number of samples that contained significant uranium levels than in 2009. The samples set for 2019 contained fourteen samples over 250 ppb compared to only six samples in 2009. Most of the 2019 samples were dry dog foods,”: https://www.spectroscopyonline.com/view/heavy-metals-in-pet-food-changes-over-the-past-decade
+
+
+
 
 
 
