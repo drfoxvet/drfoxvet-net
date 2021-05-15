@@ -316,6 +316,23 @@ This book is well documented and should help stimulate a long-overdue revolution
 
  Using USDA-approved whole foods, fit for human consumption, this is one of a growing number of companies that informed consumers are supporting and who know that paying more for quality foods means paying less for health problems because good nutrition is the cornerstone of preventive medicine and sustainable health-care. I spoke with co-author Dr. Chavez, a graduate of the Royal Veterinary College London, (where I also graduated some 44 years earlier) and was encouraged to learn that they are developing some biologically appropriate foods for cats who have suffered in so many ways from the products from the Big Kibble pet food industry. Endotoxins from bacteria in the animal parts recycled into pet foods along with mycotoxins from moldy grains may cause intestinal inflammation, leaky gut syndrome, food allergies/intolerances and microbiome dysbiosis with carcinogenic and organ-damaging aflatoxins. This book does not index bacterial endotoxins but covers enough about aflatoxins to make their point. I would add another, which is not a conspiracy theory but the reality of the linkage between the pet food industry and the pharmaceutical industry. This is exemplified by the widespread, current TV market advertising and ever more veterinarians prescribing Apoquel ( for details visit www.drfoxonehealth.com) for these food allergy and Big Kibble related conditions.
 
+POOR NUTRITION AND LACK OF EXERCISE DURING PREGNANCY HARMS OFFSPRING
+
+
+I have expressed concern about the obesity epidemic in companion animals over several years as well as raising the issue of so-called epigenetic consequences of what parent- animals are fed and how active they are on the metabolic and overall health of their offspring. This is especially relevant for commercially puppy and kitten-mill breeding operations as well as hobby-breeders whose animals are confined in cages and fed obesity/metabolic syndrome promoting, high cereal-content kibble. 
+ 
+My concerns have been recently confirmed in a research study entitled “Exercise during pregnancy mitigates negative effects of parental obesity on metabolic function in adult mouse offspring” Rhianna C. Laker et al March  2021 , Applied Physiology Vol 130
+Volume 130Issue 3March 2021Pages 605-616 ( https://doi.org/10.1152/japplphysiol.00641.2020). The authors state “Parental health influences embryonic development and susceptibility to disease in the offspring. We investigated whether maternal voluntary running during gestation could protect the offspring from the adverse effects of maternal or paternal high-fat diet (HF) in mice.” They found that.” Maternal or paternal obesity causes metabolic impairment in adult offspring in mice. Maternal exercise during gestation can completely mitigate metabolic impairment. Maternal obesity, but not paternal obesity, results in hypermethylation of the Pgc-1α promoter at CpG-260, which can be abolished by maternal exercise.”
+
+
+In another study by researchers at my alma mater, the Royal Veterinary College, London, offspring from mothers fed a ‘junk food’ diet in pregnancy and lactation exhibited exacerbated adiposity that was more pronounced in females, the authors state:
+“We have shown previously that a maternal junk food diet during pregnancy and lactation plays a role in predisposing offspring to obesity. Here we show that rat offspring born to mothers fed the same junk food diet rich in fat, sugar and salt develop exacerbated adiposity accompanied by raised circulating glucose, insulin, triglyceride and/or cholesterol by the end of adolescence (10 weeks postpartum) compared with offspring also given free access to junk food from weaning but whose mothers were exclusively fed a balanced chow diet in pregnancy and lactation…. This study shows that the increased adiposity was more enhanced in female than male offspring”. 
+(S A Bayol and associates, Offspring from mothers fed a ‘junk food’ diet in pregnancy and lactation exhibit exacerbated adiposity that is more pronounced in females. J Physiol. 2008 Jul 1; 586(Pt 13): 3219–3230). 
+
+The truism that we are what we eat carries with it the legacies of culture, custom and food choices that influence the health and well-being of one generation after another.
+
+
+
 
 
 
