@@ -63,7 +63,22 @@ At best, TNR/TRVR cat colonies may indirectly help reduce stray and feral breedi
 
 Those TNR programs that provide proper care in adoption-promoting cat sanctuaries, such as indoor-outdoor, complex-environment, group-housing facilities and in closed / “island” colonies on some farms, horse barns, well fenced warehouses and even prisons, may be acceptable from a veterinary bioethics perspective: But with the proviso that all cats are fed on a daily basis and are rejected as colony members if they test positive for feline immunodeficiency virus and feline leukemia, unless the colony is specifically for such afflicted felines.
 
+SATISFYING CATS’ DRIVE TO HUNT
+
+
+Cats that were fed a meat-rich diet brought home 36% less wild prey after three months than cats in a control group, and cats given extra playtime brought home 25% less wild prey, researchers reported in Current Biology. Meat and play satisfy cats' natural instinct to hunt, says veterinary behaviorist Sharon Crowell-Davis, who was not involved in the study. Full Story: Science (tiered subscription model) (2/11),  CNN (2/11/2021) 
+
+
+This is an important study because many cat owners, animal behaviorists and veterinarians contend that cats should be allowed outdoors to hunt for their behavioral/psychological well-being. A meaty diet (not just dry high-cereal kibble) and interactive games such as chasing a laser light or bunch of feathers tied to a string attached to a cane and swung and pulled along the ground, especially in the early evening which is part of the cat’s natural hunting cycle, help sate this hunting instinct.
+
+
+ Part of social play between cats involves predator behaviors such as ambushing and chasing and is the reason why I advise keeping two cats to stimulate each other which enhances their physical and emotional well-being.
+
+Formerly feral cats whom my wife and I have socialized in our home and who had survived outdoors by hunting and killing song birds and small mammals never sought to go back outdoors to hunt when we fed them a meaty diet and played with them and they with each other in our home. 
+
+
 CAT DISEASE TRANSMISSIBLE TO HUMANS
+
 Revised guidelines from the American Association of Feline Practitioners list 36 diseases that can pass from cats to humans, although overall incidence of feline-to-human zoonosis is low, says co-author and veterinarian Michael Lappin. Regular deworming, vaccination against rabies, treatment to prevent flea and tick infestations, as well as basic sanitation mitigate risk of disease and can protect humans against many of the zoonotic diseases cats can carry.Not allowing owned cats to roam free is an essentail component of One Health policy and practice.
  (Journal of Feline Medicine and Surgery, 1–14 2019 AAFP Feline Zoonoses Guidelines)
 
@@ -73,6 +88,7 @@ In a report entitled ‘Further discussion on declining wild bird populations an
 They advocate that those choosing to care for feral and free-roaming cats set up large enclosures-mega-“catios” (with provision of shelter, food, water and veterinary care) to protect both wildlife, public health and the cats themselves.
 
 ALL PUBLIC HEALTH OFFICIALS SHOULD NOTE:
+
 
 Cat feces can contain Toxoplasmosis and other pathogens transmissible to humans and other species, wild and domesticated, be they around farms, in rural, suburban, urban or slum communities. In the latter there may be a trade-off where a lack of sanitation and high rodent numbers are a threat to public health being possibly offset by cats’ predation on infective wildlife.
 
