@@ -147,5 +147,31 @@ Some may wonder where the bees and butterflies have gone. Others will not care o
 
 But beyond a sense of pending doom, I see a glimmer of hope in the scintillating semaphore of vibrant colors from the wings of the birds and butterflies among our weeds and falling linden trees that speak the universal language of the heart. This war on "weeds" (like other wars triggered by generally unfounded fears, an adversarial and arrogant state of mind and distorted perception) must end, along with our collective ignorance and indifference to all that lives and gives.
 
+POISONOUS ALGAE IN LAKES AND PONDS HEALTH ALERT
+
+
+Some strains of algae bloom in the billions in lakes and ponds as our warm seasons extend with climate change and unrelenting phosphate and nitrate run- off from agriculture, lawns and gardens feeds them. The Centers for Disease Control and Prevention has been monitoring this issue in several states over the past 3 years and reports at least 389 people and 413 animals, including dogs, cats, cattle and horses have become sickened and 369 animals died, mainly waterfowl.  (for details visit.jav.ma/habs).
+
+
+This is very serious and animals who have been in standing water covered in blue-green algae must be hosed down immediately and never allowed to drink from such waters. It is but one of the issues that not addressing climate change is going to see worsen, along with agriculture and private land owners reducing the use of chemical fertilizers.
+
+
+ I have an added concern that people allow their dogs into lakes and ponds, duck hunters in particular, with their dogs wearing anti-flea and tick collars or have spot-on applications on their backs because these chemicals are highly toxic to the life in fresh waters. This concern is being raised in veterinary circles in the U.K. now that these anti-flea and tick insecticides fipronil and imidacloprid given to dogs have been found contaminating and reducing the quality of life in every English river tested. No dog being treated with these insecticides should be allowed into any fresh water environment and probably should not be bathed indoors (where the insecticide-contaminated drain water finishes up in our rivers)’ and not outdoors because the insecticides are going to enter the environment. So best to never use year-round in most states and find safer alternatives that are readily available as posted on my website www.drfoxonehealth.com in the article ‘Preventing Fleas, Ticks and Mosquitoes.’.
+Better protection of the health of aquatic ecosystems is a One Health priority in every country.
+
+
+CYANOBACTERIA KILLING BALD EAGLES AND POTENTIAL RISK TO HUMAN HEALTH
+
+
+A new species of toxic blue-green algae has been identified that causes neurologic disease ( vacuolar myelopathy) and has been killing bald eagles, bevers, turtles and other animals for several years in the southeastern U.S. (  Hunting the eagle killer: A cyanobacterial neurotoxin causes vacuolar myelinopathy .Steffen Breinlingerl et al, Science  26 Mar 2021:Vol. 371, Issue 6536). The algae grow on the leaves of invasive Hydrilla plants in human-made lakes when bromide is present.
+ 
+
+According to a review on the major sources of bromide in aquatic ecosystems, current anthropogenic sources of bromide include energy extraction and utilization, coal-fired power plants, water treatment, flame retardants, pre-planting and post-harvest biocides, agricultural herbicides, municipal waste incinerators, landfill leachate, road deicers, and pharmaceuticals.
+
+
+( http://cappslab.ecology.uga.edu/additional-info/bromide-in-surface-water). Fish become diseased by the algae as well as coots and other animals consuming vegetation contaminated with the neurotoxin, and they, in turn, poison eagles and other animals who consume them. As yet there is no evidence of people being poisoned by eating contaminated fish but caution is called for. Better prevention of bromide contamination is also called for.
+
+
+
 Note: The author is a veterinarian who promotes One Health in recognition of the connectedness of human, environmental, animal and plant health from which, as a culture, we are pathogenically disconnected, the global COVID-19 pandemic being one signal consequence.
 
