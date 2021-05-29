@@ -301,6 +301,23 @@ PREVENTING TOXOPLASMOSIS FROM INFCETED MEAT AND INFECTIVE CATS
 Cat owners and meat eaters and livestock keepers need to take this statement to heart: “Approximately one-third of the world’s human population is seropositive for the apicomplexan protozoan parasite Toxoplasma gondii. Members of the cat family (Felidae) are the only known definitive hosts of T. gondii, yet the parasite can infect all warm-blooded animals as secondary or intermediate hosts [1]. Toxoplasmosis can have a profound impact on human health, not only in terms of congenital disease in infants, severe pathologies in immunocompromised individuals (eg, organ transplant recipients and people with AIDS) [2], and acute, symptomatic infections in adults during outbreaks [3–5], but also through its association with a large burden of behavioral and neurological disorders, including schizophrenia, in immunocompetent individuals [6–9]. Toxoplasma gondii is also of major economic importance for the livestock industry, being responsible for approximately 23% of ovine abortions in Europe and the United States [10].” From the report Toward Improving Interventions Against Toxoplasmosis by Identifying Routes of Transmission Using Sporozoite-specific Serological Tools by  Gregory Milne, Joanne P Webster and Martin Walker Clinical Infectious Diseases, Volume 71, Issue 10, 15 November 2020, Pages e686–e693, https://doi.org/10.1093/cid/ciaa428.
 
 
+DISEASE IN WILD RABBITS TRANSMISSIBLE TO CATS AND HUMANS
+
+
+Tularemia was found in rabbit carcasses on private property in Elkhart County, Ind., according to the state Department of Natural Resources. Full Story: The Goshen News (Ind.) (5/4/2021). A male New England cottontail rabbit captured on Patience Island, R.I., for a species restoration program was found to have tularemia after it suddenly died. Full Story: The Newport Daily News (R.I.) (3/16/2021).
+
+
+ Tularemia can sicken people and pets, and the bacterium that causes it is transmitted through ticks, deer flies, skin contact with an infected animal, or exposure to contaminated soil, water, dust or aerosols. Because of its high transmissibility this organism, which causes bacterial septicemia, pneumonia and other health problems in humans is listed as a category A bioterrorism weapon.
+
+
+Rabbit trappers and hunters should take note and also keep their dogs away from areas where this disease has been reported. Similarly, since cats will hunt rabbits, cat owners are advised to not let their cats roam outdoors and kill wildlife.
+
+
+In a recent report by Dr. Marilynn A. Larson and associates ( Francisella tularensis Bacteria Associated with Feline Tularemia in the United States. Emerg Infect Dis. 2014 Dec; 20(12): 2068–2071.) “Tularemia in the United States was examined by reviewing 106 Francisella tularensis isolates, mostly from Nebraska, collected during 1998–2012: 48% of Nebraska cases were cat-associated; 7/8 human cases were caused by subtype A.I. A vaccine is needed to reduce feline-associated tularemia, and cat owners should protect against bites/scratches and limit their pet’s outdoor access”
+
+
+
+
 ADDENDA
 
 INTERNATIONAL LAW AND AT-LARGE CATS
