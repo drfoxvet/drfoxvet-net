@@ -100,13 +100,35 @@ DEAR B.K., I have raised the issue of private and corporate lawns, public parks 
 According to Bee City USA (https://beecityusa.org/welcome-pollinators-to-your-lawn-with-no-mow-may/) “ No Mow May is a conservation initiative first popularized by Plantlife, an organization based in the United Kingdom, but which is gaining traction across North America. The goal of No Mow May is to allow grass to grow unmown for the month of May, creating habitat and forage for early season pollinators. This is particularly important in urban areas where floral resources are often limited. 
 
 
-Beyond Pesticides reported on March 30, 2020 that Beyond Pesticides sued TruGreen, the national chemical landscaping company, for misrepresenting the safety of the toxic chemicals that it uses to treat lawns. The case is Beyond Pesticides v. TruGreen (DC Superior Court, Case No. 2020CA001973B, March, 20, 2020). At the same time, the organization is urging all states to prohibit toxic chemical spraying in neighborhoods as non-essential and hazardous. Widespread exposure to lawn pesticides, which are immune system and respiratory toxicants, can elevate serious risk factors associated with COVID-19 (coronavirus). TruGreen uses the weed killer glyphosate (Roundup), which is identified by IARC of the World Health Organization as probably carcinogenic. It uses a chlorophenoxy (Tri-Power) another weed killer whose label warns of “irreversible eye damage” and “allergic reactions.” Another hazardous pesticide identified in the lawsuit is triclorfon (Dylox), a neurotoxic organophosate insecticide.”
+Beyond Pesticides reported on March 30, 2020 that Beyond Pesticides sued TruGreen, the national chemical landscaping company, for misrepresenting the safety of the toxic chemicals that it uses to treat lawns. The case is Beyond Pesticides v. TruGreen (DC Superior Court, Case No. 2020CA001973B, March, 20, 2020). At the same time, the organization is urging all states to prohibit toxic chemical spraying in neighborhoods as non-essential and hazardous. Widespread exposure to lawn pesticides, which are immune system and respiratory toxicants, can elevate serious risk factors associated with COVID-19 (coronavirus). TruGreen uses the weed killer glyphosate (Roundup), which is identified by IARC of the World Health Organization as probably carcinogenic. It uses a chlorophenoxy (Tri-Power) another weed killer whose label warns of “irreversible eye damage” and “allergic reactions.” Another hazardous pesticide identified in the lawsuit is triclorfon (Dylox), a neurotoxic organophosate insecticide.” Time to stop this insanity.
+
+MORE GARDENING AND RELATED HEALTH AND ENVIRONMENTAL CONCERNS
 
 
-Time to stop this insanity.
+DR. FOX, The real insanity is nitwits like you folks with your bull crap environmental wokeness. Don’t cut the grass for a month?  A breeding environment for mosquitoes and ticks. I’ve been a gardener for decades. I use pesticides very judiciously. I also cut my grass and have a plethora of fauna to include rabbits foxes groundhogs squirrels etc etc. I also fish and hunt and have contributed more money toward preservation with license fees and donations they any 10 “environmentalists”. Give it break.
+
+John Tesauro (address withheld)
 
 
-Herbicides Cost Lives and More  July 19, 2020
+DEAR J.T., I understand the new term "wokeness" and its derogatory implications as distinct from being informed and aware. I wish to inform you about some aspects of lawn mowing which kills beneficial animals such as toads, frogs and snakes, and of pesticides that kill insectivorous animals who consume pesticide-poisoned prey, or starve to death when there are no insects to feed upon. 
+
+
+The "No Mow" movement is to bring back pollinators and to encourage people to re-wild their lawns. There are plants that repel ticks and other insects which gardeners should put in place of their lawns and re-wilding their property. These include Lavender, Garlic, Rosemary and Mint. For details visit  https://buglord.com/plants-that-repel-ticks/  According to Scott Johnson with Minnesota company SavATree, "We do not use Neonicotinoids (the chemicals they have found to be the main problem killing colonies of bee's) on any tick and/or mosquito treatments.  Our organic product has cedar oil as its active ingredient. It has shown great results in killing a lot of parasitic insects and has not shown any proof of harming Bee's, Butterflies or earthworms. It mostly effects insects with an exoskeleton."
+
+
+Keeping deer away from one’s property will help prevent tick infestation as does controlled burning of vegetation in the Fall especially in public places, which many State park authorities now practice rather than spraying insecticides. 
+
+
+Various insects including ticks have a variety of natural predators including ants, spiders, frogs, toads and birds, also opossums, shrews and other rodents, squirrels and chipmunks, domestic chickens and guinea fowl and wild turkeys. Frogs, toads, various bird species and bats consume mosquitoes as well as other insects. The widespread use of insecticides and, rodenticides has decimated these various insectivorous and omnivorous creatures, aquatic and terrestrial, thus contributing to the proliferation of ticks, mosquitoes and other insects that can transmit diseases to humans and other animals. (Almost gone are the Oxpecker and similar birds that would ride the backs of free-ranging cattle and eat ticks and biting flies because of the use of pour-on insecticides and dips by livestock keepers world-wide).
+
+
+According to the University of Maine ( https://extension.umaine.edu/ticks/management/biological-control)
+"The use of pathogenic fungi is perhaps the most promising biological control for ticks. These fungi penetrate the tick’s cuticle, or outer covering, move into the body, and ultimately kill both nymphal and adult stages of the tick. Commercial products containing these fungi are available for both granular and spray applications. The fungus Metarhizium anisopliae is registered in Maine for tick control."
+I think we find common ground in caring for wildlife that you mention coming to your property--rabbits, foxes, groundhogs etc but I do not need to hunt of fish because I am a vegetarian and with a human population of over 7 billion, the less animals we consume the better it is for the planet's biodiversity and ecological viability.
+
+
+
+Herbicides Cost Lives and More From Animal Doctor Column July 19, 2020
 
 
 
@@ -133,7 +155,8 @@ Any compound that changes the acidity/alkalinity of a dog's urine is altering co
 
 The three solutions that I offer are: 1. Adding a little milk or low- or zero-salt chicken bouillon (you can make your own) to your dogs' drinking water so they drink more and have less concentrated urine. 2. Soak the grass sod where your dogs have urinated with a liberal dousing of water at the end of the day to dilute their urine. 3. Put down sand and a layer of pea-gravel in one area where the dogs can evacuate in your yard, and let the rest return to the wild by seeding various indigenous perennial grasses, flowers and shrubs.
 
-FOR DOGS' SAKE, GET RID OF THE LAWNS! Aug 1st 2016
+
+FOR DOGS' SAKE, GET RID OF THE LAWNS! From Animal Doctor Column Aug 1st 2016
 
 Agriculture should not take all the blame for chemical fertilizers and pesticides harming water quality. What MUST be addressed in suburbia is the lawns, soaked in chemicals by homeowners and lawn "treatment" companies that "fertilize" and kill "weeds" with various chemicals that the rains, lawn sprinklers and irrigation systems flush into ground and surface waters, which we eventually drink or that evaporate into the clouds and come back down in the rain.
 From my perspective as a veterinarian and from my early memories that make me mourn the loss of night bugs and wildflowers along the highways and byways, I can only shake my head in disbelief. The golden springs of flowering dandelions, so nutritious, packed with vitamins, minerals and enzymes and with multiple phytochemicals with properties that can cure certain cancers and improve liver and kidney function, if not the workings of our brains, is a call to arms rather than to reverence and celebration. They are, along with other "invasive" herbs and wildflowers, rooted out or sprayed with herbicides that cause or aggravate the very maladies that the dandelions' leaves and roots, and essences of other wild plants, can cure!
