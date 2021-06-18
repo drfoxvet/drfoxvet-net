@@ -1,5 +1,5 @@
 ---
-title: ' Current and Future Pandemics and Zoonotic Diseases: A One Health Perspective'
+title: ' Pandemics: Past, Present and Future Prevention'
 date: 2020-12-15T00:21:12.682Z
 tags:
   - Environment
