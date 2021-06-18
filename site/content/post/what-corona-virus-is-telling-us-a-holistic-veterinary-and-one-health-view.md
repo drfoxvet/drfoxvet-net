@@ -9,8 +9,10 @@ tags:
   - Public Health
 ---
             
-Current and Future Pandemics and Zoonotic Diseases: A One Health Perspective
-         By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
+
+          Pandemics: Past, Present and Future Prevention
+
+           By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
                                                                             
 SYNOPSIS
 
