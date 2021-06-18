@@ -54,3 +54,16 @@ CONCLUSIONS AND CLINICAL RELEVANCE:
 Starch and fiber in diets potentially stimulate formation of struvite crystals. Hence, reducing dietary carbohydrate is desirable to prevent struvite urolith formation. In addition, a net loss of body calcium, phosphorus, and magnesium during feeding of the fiber diet suggests that dietary inclusion of insoluble fiber could increase macromineral requirements of cats.
 
 Also, these acidifying diets, which are so often prescribed, may end up promoting calcium oxalate stones and hypokalemia.
+
+Many prescription diets, as detailed in the book that I co-authored with two other veterinarians, Not Fit for a Dog: The Truth About Manufactured Cat and Dog Food, are not only costly and contain dubious ingredients but are often highly unpalatable. A good source for more palatable, veterinary-formulated special diets is the company called Balace IT. Website www.Secure.balanceit.com
+Cats and dogs seem more prone to develop urinary crystals/calculi/stones when fed dry kibble, while moist canned, rehydrated freeze-dried and thawed frozen food formulations mean less concentrated urine, bladder inflammation and bacterial infection and likelihood of struvite ( magnesium ammonium phosphate) or  calcium oxalate crystals forming in the urine. Males suffer more when their urethras become blocked and emergency surgery is needed.
+Some manufactured pet foods are acidified to help prevent struvite crystal formation which may then lead to oxalate crystal formation, the prevention of which some veterinary nutritionists contend calls for a diet of low protein, low oxalate and sodium but high cereal content to make the urine more alkaline.  Potassium citrate ( 40-70 mg/kg) in the food twice daily can help normalize the urine acidity/alkalinity. 
+
+
+ But in my opinion the best preventive is to ensure a high moisture content in a balanced, biologically appropriate diet and making sure the animal is always well hydrated. cats especially may not maintain optimal hydration so adding a little chicken bullion to their drinking water can help encourage adequate water intake: same for dogs prone to oxalate crystals.
+
+
+This seems to have a genetic basis, being seen frequently in breeds like the Lhasa apso, Yorkshire terrier, Miniature and Standard Schnauzers, Bichon frize, Shi tzu and Miniature poodle. A metabolic anomaly causing elevated calcium in the blood may play a role in oxalate crystal formation.
+
+
+
