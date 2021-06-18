@@ -392,6 +392,20 @@ The few cases of SARS-CoV-2 infection in pet dogs and cats were likely transmitt
 
 Humans are the most susceptible to SARS-CoV-2 of 10 species studied, followed by ferrets, cats, civets and dogs; while ducks, rats, mice, pigs and chickens are resistant, according to researchers at Spain's Center for Genomic Regulation. "Knowing which animals are susceptible to SARS-CoV-2 helps us prevent building up animal reservoirs from which the coronavirus can re-emerge at a later date," said CRG Director Luis Serrano, senior author of the study, published in PLOS Computational Biology. Full Story: PhysOrg/Center for Genomic Regulation (12/10/2020) 
 
+French researchers have reported high susceptibility after injection in some strains/varieties of mice to mutated the lines of this coronavirus first reported in Brazil and South Africa while the one from the U.K. did not cause as much damage to the lungs than these other two variants.( doi: https://doi.org/10.1101/2021.03.18.43601
+https://www.biorxiv.org/content/10.1101/2021.03.18.436013v1).
+
+
+These scientists have not yet determined if SARS-COV-2 can be transmitted from mouse to mouse or from mouse to humans. But there are grounds for concern and heightened vigilance for those people working with mice in laboratories and living close to them as is the case in poor communities and countries. The fact that this coronavirus has spread rapidly from mink to mink on fur farms and infected mink have infected workers and infected workers have infected mink is an alarm bell. Some cats on these mink farms were also infected with the virus and now we have the possibility of coronavirus variants going from mice to cats and back.  It may be only a matter of time when reservoirs of SARS-COV-2 in local animal populations spill over into the human population.
+
+
+The Oregon Senate is considering a bill (Senate Bill 832. April 2021) to phase out mink farming over the next year because of the threat to public and animal health due to the mink’s high susceptibility to this virus. Oregon is one of nearly two dozen U.S. states with mink farms. While mink farmers may adopt greater biosecurity and use the vaccine being developed for sale to this industry, the devastation of the mink industry in several European and other countries by this virus is a warning: Like the wildlife farms and live “wet” markets in China and some other Asian countries we should not put animals and ourselves in situations where opportunistic pathogens like SARS-COV-2 can take hold and spread.
+
+
+ In my opinion and that of other animal protectionists and ethologists, mink farms should be closed down on the grounds of animal cruelty, since keeping these active predators in small cages their entire lives is inhumane confinement and unjustifiable considering the purpose. The sale and wearing of fur from wild caught and captive-raised “furbearers” should be anathema in any civilized, humane society.
+
+
+
 
 ******************************************
 
