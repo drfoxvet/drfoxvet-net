@@ -1,5 +1,5 @@
 ---
-title: 'Preventing Future Pandemics and Zoonotic Diseases: A One Health Perspective'
+title: ' Current and Future Pandemics and Zoonotic Diseases: A One Health Perspective'
 date: 2020-12-15T00:21:12.682Z
 tags:
   - Environment
@@ -9,7 +9,7 @@ tags:
   - Public Health
 ---
             
-Preventing Future Pandemics and Zoonotic Diseases: A One Health Perspective
+Current and Future Pandemics and Zoonotic Diseases: A One Health Perspective
          By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
                                                                             
 SYNOPSIS
@@ -154,6 +154,7 @@ In late September 2020 when the U.S. death toll reached 200,00 with much debate 
  The agency initially added warnings that the virus can spread through the air and encouraged good ventilation indoors. Then the CDC reverted to the previous guidance, saying that a draft version had been “posted in error”. The U-turn fueled concern about the once world-leading public-health agency, which has fumbled its response to the COVID-19 pandemic on its own turf. Scientists and preventive health experts worried that political interference and in-fighting are causing repeated failures that will erode essential public trust — ultimately costing more lives in the hard-hit country. Over-reliance on disinfecting/sanitizing various surfaces and not addressing ventilation in schools, apartments and other buildings and transportation vehicles where people congregate was a gross miscalculation and waste of time and resources. 
 
 The politicization of the pandemic in the U.S., with 3,000 deaths being reported daily in December, was highlighted by the Tallahassee Democrat newspaper reporting on Dec 9th 2020 that “ Armed police raided the home of data scientist Rebekah Jones yesterday and seized her computer equipment. Jones was lauded by scientists when she created her own COVID-19 dashboard for the US state of Florida earlier this year. She had been in charge of the state’s official dashboard until she was fired by the Florida Department of Health. Jones says she was removed from her post because she refused to manipulate data to support a plan to loosen public-health restrictions. Law-enforcement officials said that Jones’s home was raided on the basis of a complaint by the Department of Health that its emergency messaging system had been hacked”. “They pointed a gun in my face. They pointed guns at my kids,” wrote Jones on Twitter. “This is what happens to scientists who do their job honestly. This is what happens to people who speak truth to power.”
+By June 2021 the U.S. death toll reached 600,000, and globally close to 4 million deaths with millions who survived infection becoming "long haulers", suffering chronic health issues.
 
 
 Earlier Pandemics and Epidemics
