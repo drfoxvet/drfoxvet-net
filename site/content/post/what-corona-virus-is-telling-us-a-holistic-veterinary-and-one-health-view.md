@@ -348,7 +348,7 @@ Electropollution: Existential Threat to Public Health,Companion Animals and Life
 
 POSTSCRIPT
 
-Companion Animal Concerns
+Companion and Captive ( Zoo) Animal Concerns
 
 According to a release to veterinarians from the AVMA which I received on Feb 20th 2020, “ at this time, experts have not expressed concern about transmission to or from animals. Multiple international health organizations have indicated that pets and other domestic animals are not considered at risk for contracting COVID-19 or transmitting the virus that causes the disease”. 
 
@@ -380,7 +380,9 @@ In early May 2020 a cat in Spain that died from a common feline respiratory cond
 15 of 102 cats in Wuhan China tested positive for the coronavirus, 3 cats getting the infection from their owners and the other positive-testing cats were 6 stray cats and 6 from pet hospitals, .according to Zhang, Q et al ( SARS-CoV-2 neutralizing serum antibodies in cats; a serological investigation. BioRev 2020) i: https://doi.org/10.1101/2020.04.01.021196).
 
 In a report in the New England Journal of Medicine May 13, 2020 concerning Transmission of SARS-CoV-2 in Domestic Cats (DOI: 10.1056/NEJMc2013400) authors Peter J. Halfmann, Ph.D. et al state:
-“With reports of transmission of SARS-CoV-2 from humans to domestic cats and to tigers and lions at the Bronx Zoo, coupled with our data showing the ease of transmission between domestic cats, there is a public health need to recognize and further investigate the potential chain of human–cat–human transmission. This is of particular importance given the potential for SARS-CoV-2 transmission between family members in households with cats while living under “shelter-in-place” orders. In 2016, an H7N2 influenza outbreak in New York City cat shelters5 highlighted the public health implications of cat-to-human transmission to workers in animal shelters. Moreover, cats may be a silent intermediate host of SARS-CoV-2, because infected cats may not show any appreciable symptoms that might be recognized by their owners. The Centers for Disease Control and Prevention has issued guidelines for pet owners regarding SARS-CoV-2 (www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html. opens in new tab). Given the need to stop the coronavirus disease 2019 pandemic through various mechanisms, including breaking transmission chains, a better understanding of the role cats may play in the transmission of SARS-CoV-2 to humans is needed.”
+“With reports of transmission of SARS-CoV-2 from humans to domestic cats and to tigers and lions at the Bronx Zoo, coupled with our data showing the ease of transmission between domestic cats, there is a public health need to recognize and further investigate the potential chain of human–cat–human transmission. This is of particular importance given the potential for SARS-CoV-2 transmission between family members in households with cats while living under “shelter-in-place” orders. In 2016, an H7N2 influenza outbreak in New York City cat shelters highlighted the public health implications of cat-to-human transmission to workers in animal shelters. Moreover, cats may be a silent intermediate host of SARS-CoV-2, because infected cats may not show any appreciable symptoms that might be recognized by their owners.
+
+ The Centers for Disease Control and Prevention has issued guidelines for pet owners regarding SARS-CoV-2 (www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/animals.html. opens in new tab). Given the need to stop the coronavirus disease 2019 pandemic through various mechanisms, including breaking transmission chains, a better understanding of the role cats may play in the transmission of SARS-CoV-2 to humans is needed.”
 
 It was not until April 29th that the Centers for Disease Control and Prevention call for social distancing to be applied to pets, dogs being kept on the leash when outdoors and not be petted by people outside the family and cats be kept indoors. For details about how one can help cats who used to going outdoors adapt quickly and enjoy life indoors, go to the American Bird Conservancy’s website for details. ( https://abcbirds.org/program/cats-indoors/ ).
 
@@ -406,6 +408,7 @@ The Oregon Senate is considering a bill (Senate Bill 832. April 2021) to phase o
 
 
  In my opinion and that of other animal protectionists and ethologists, mink farms should be closed down on the grounds of animal cruelty, since keeping these active predators in small cages their entire lives is inhumane confinement and unjustifiable considering the purpose. The sale and wearing of fur from wild caught and captive-raised “furbearers” should be anathema in any civilized, humane society.
+
 
 
 
