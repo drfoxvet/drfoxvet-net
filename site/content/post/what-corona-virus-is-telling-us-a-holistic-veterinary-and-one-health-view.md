@@ -435,6 +435,9 @@ Others are flagging up how the proliferation of genetic engineering technologies
 
 In fact, coronaviruses, Prof Ebright points out, are known to have been studied in much lower biosafety level (BSL-2) labs. This includes the bat coronaviruses studied at labs in and around Wuhan. “As a result,” Ebright says, “bat coronaviruses at Wuhan [Center for Disease Control] and Wuhan Institute of Virology routinely were collected and studied at BSL-2, which provides only minimal protections against infection of lab workers.”
 
+
+
+
 SEE ALSO DR. MERCOLA'S REVIEW:
 https://articles.mercola.com/sites/articles/archive/2020/04/26/is-coronavirus-a-biological-weapon.aspx?cid_source=dnl&cid_medium=email&cid_content=art1HL&cid=20200426Z1&et_cid=DM521257&et_rid=859107171
 
@@ -451,6 +454,31 @@ The virus’ binding strength for human cells “far exceeds” similar properti
 Paper on lab origin of SARS-CoV-2 appears in peer-reviewed publication
  
 In an important development, a paper by Rossana Segreto of University of Innsbruck, Austria and Yuri Deigin of Youthereum Genetics Inc. in Canada, which argues for the possible lab origin and genetically engineered status of SARS-CoV-2, has appeared in a peer-reviewed publication. The authors state that SARS‐COV‐2's chimeric structure and furin cleavage site might be the result of genetic manipulation. They also state that certain features of the virus that are crucial to its ability to infect humans could result from site‐directed mutagenesis, a genetic engineering procedure "that does not leave a trace". The paper contains a thorough deconstruction of the much-cited article by Andersen et al, which stated that SARS-CoV-2 most likely has a natural origin. TheEvidenceNoNaturalEvol.pdf (minervanett.no)
+
+
+See Nicholas Wade, May 5, 2021 Bulletin of the Atomic Scientists https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/
+
+A Chinese Communist Party military scientist who got funding from the National Institutes of Health filed a patent for a COVID-19 vaccine in February 2020 — raising fears the shot was being studied even before the pandemic became public, according to a new report.
+Zhou Yusen, a decorated military scientist for the People’s Liberation Army (PLA) who worked alongside the Wuhan Institute of Virology as well as US scientists, filed a patent on Feb. 24 2020,
+https://nypost.com/2021/06/04/chinese-scientist-filed-covid-vaccine-patent-after-contagion-emerged-report/
+********************************************
+https://www.newsweek.com/exclusive-how-amateur-sleuths-broke-wuhan-lab-story-embarrassed-media-1596958
+
+Exclusive: How Amateur Sleuths Broke the Wuhan Lab Story and Embarrassed the Media
+By Rowan Jacobsen On 6/2/21
+
+A Chinese PhD Thesis Sheds Important New Light On The Origin of the COVID-19 Coronavirus
+by Jonathan Latham, PhD and Allison Wilson, PhD
+https://www.independentsciencenews.org/commentaries/a-chinese-phd-thesis-sheds-important-new-light-on-the-origin-of-the-covid-19-coronavirus/
+Synopsis: In 2012 six miners became ill while shovelling bat guano at a mine in Yunnan Province, China. These miners developed symptoms very similar to COVID-19 and three of them died. Their symptoms and treatments were described in a Chinese Master's thesis that we previously arranged to have translated. From this translation we developed a theory of the origin of SARS-CoV-2 called the Mojiang Miners Passage theory. It proposes that the SARS-CoV-2 virus evolved in one of these miners. Samples from them were then sent for testing and research to the Wuhan Institute of Virology (WIV) in 2012 which is how the virus reached Wuhan. 
+
+A key point of contention since then has been that, whereas the Master’s thesis states that tests done at the WIV gave positive results, scientists from the WIV have implied (but never stated) that the miners had no coronavirus. Hoping to resolve this mystery, we have now translated large sections of a second Chinese thesis. It is a PhD written in 2016 by a student of virologist George Gao (now head of China’s CDC). The student, called Canping Huang, sampled for viruses in the Mojiang mine in 2014. This PhD contradicts the account of the Wuhan Institute of Virology in several ways. Most importantly, it too claims that coronavirus tests on the miners’ samples sent to the WIV were positive. This substantially strengthens the case for a lab origin of the pandemic. It also implies that scientists from the WIV are not telling the truth about the miner’s samples.
+Jonathan Latham, PhD
+Executive Director
+The Bioscience Resource Project, 
+Ithaca, NY 14850 USA
+
+
 
  
 
