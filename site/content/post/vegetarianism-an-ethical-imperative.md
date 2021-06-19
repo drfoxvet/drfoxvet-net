@@ -28,6 +28,19 @@ A report (2) on our global impact on the environment, climate, wildlife and biod
 
 For a sedentary, affluent sector to have to forcibly exercise and then take various drugs to treat the consequences of a meat-based diet is absurd and hypocritical, for indeed, as Mahatma Gandhi said, ‘The cattle of the rich steal from the poor.’ Poor and rich alike could be better nourished and enjoy healthier and longer lives by becoming vegans, lacto-ovo- vegetarians or conscientious omnivores, more mindful of what they eat, and knowing how to cook nutritious meals themselves and families, a subject yet to be taught in most schools and colleges, and adopted by hospitals and other food-providing institutions and agencies.
 
+A plant-based diet may lower severity of COVID-19 infection by 73 per cent
+
+
+Hyunu Kim et al.  Plant-based diets, pescatarian diets and COVID-19 severity: a population-based case–control study in six countries. BMJ Nutrition, Prevention and Health, May 15th, 2021. Plant-based diets, pescatarian diets and COVID-19 severity: a population-based case–control study in six countries | BMJ Nutrition, Prevention & Health 
+
+This research finds that in six European countries and the U.S., plant-based diets or pescatarian diets were associated with lower odds of moderate-to-severe COVID-19. These dietary patterns may be considered for protection against severe COVID-19.
+While I applaud this study and its conclusions, I would caution that the research was limited to relatively affluent, if not more educated countries with better food-choices and availability than in many other countries such as India and those of Africa and poor Central and South American communities along with those mainly non-white citizens of the U.S.
+
+
+ It is in these regions and communities with high carbohydrate and low protein diets and close to 700 million malnourished with insufficient dietary calories and essential nutrients that the coronavirus seems to spread and mutate rapidly, gaining infective function and resulting in high mortality and morbidity rates. World hunger is on the rise, affecting 8.9 percent of people globally. From 2018 to 2019, the number of undernourished people grew by 10 million.  ( For details see https://www.actionagainsthunger.org/world-hunger-facts-statistics). Using agricultural land to feed people first and not feed for livestock and poultry could help alleviate world hunger but not without coordinated family planning/birth control along with food aid.
+
+
+
 
   1.Diamond, J., ‘Collapse: How Societies Chose to Fail or Succeed.’ New York, Penguin Books, 2005. 
 
