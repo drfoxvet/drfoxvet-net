@@ -2,7 +2,7 @@
 title: 'A Reflection on Animals, Nature and the Human Condition'
 date: 2021-07-19T15:54:59.748Z
 tags:
-  - Environment
+  - Ethical Issues
 ---
 
    A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION
