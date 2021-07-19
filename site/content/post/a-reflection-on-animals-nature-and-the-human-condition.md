@@ -6,7 +6,8 @@ tags:
 ---
 
    A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION
-                      By Dr. Michael W. Fox
+                     
+ By Dr. Michael W. Fox
 
   “The only thing worse than being blind is having sight but no vision.” –Helen Keller.
 
