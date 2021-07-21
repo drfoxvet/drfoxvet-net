@@ -1,11 +1,15 @@
 ---
-title: 'A Reflection on Animals, Nature and the Human Condition'
+title: >-
+  A Reflection on Animals, Nature and the Human Condition: The Spirituality of
+  One Health
 date: 2021-07-19T15:54:59.748Z
 tags:
   - Conservation
 ---
 
-   A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION
+A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: 
+
+THE SPIRITUALITY OF ONE HEALTH
                      
  By Dr. Michael W. Fox
 
@@ -36,3 +40,14 @@ Albert Einstein observed, “No problem can be solved from the same level of con
 
 
 The best qualities of human nature, of character, empathy, compassion, respect for life, innate potentials and individual genius can be best awakened and nurtured by appropriate relationships with other species wild and domesticated that engender respect and understanding along with experiences in Nature that inspire awe and wonder. When we realize that we are related to each other and to all sentient beings we discover the true meaning of freedom for all and begin to live spontaneously in accord with the Golden Rule. We all need to consider Sioux Medicine man Chief Black Elk’s statement “Nothing will be well unless we learn to live in harmony with the Power of the World as it lives and moves and does its work.” The redemption of our species and recovery of our humanity lies in restoring right relationships with Nature and other species, plant and animal, rather than treating Nature as our own exclusive resource and other sentient beings variously as commodities, objects, pests and disposable pets.
+
+Postscript: 
+
+If there were no stones, we would have no minerals for our bones and never walk, or for our brains and never talk. If there were no trees and other green life on land and in the seas we would not exist without the oxygen they give. We would not be red in blood and living free. Without the microorganisms in healthy soils we would have no nutritious plant foods nor our own related microbiome in our guts essential for our health, immune and digestive systems. Ecology, molecular biology and other natural sciences affirm these life-giving and sustaining relationships between the universal and the particular, humanity and Earth, self and other.
+
+
+We have ignored, exploited and violated many of these relationships for millennia and now face the nemesis of Nature’s retribution. The worse is yet to come if we do not, as the Hopi Prophecy warns, collectively and singularly repair these relationships and respect all our relations, plant and animal, water, soil and stone. Renunciation of our self-worship of gods created in our own image would be a good beginning toward living in harmony with all life, the spiritual root of One Health and the antidote to our pathogenic anthropocentrism.
+
+
+
+
