@@ -46,8 +46,10 @@ Postscript:
 
 If there were no stones, we would have no minerals for our bones and never walk, or for our brains and never talk. If there were no trees and other green life on land and in the seas we would not exist without the oxygen they give. We would not be red in blood and living free. Without the microorganisms in healthy soils we would have no nutritious plant foods nor our own related microbiome in our guts essential for our health, immune and digestive systems. Ecology, molecular biology and other natural sciences affirm these life-giving and sustaining relationships between the universal and the particular, humanity and Earth, self and other.
 
+We have ignored, exploited and violated many of these relationships for millennia and now face the nemesis of Nature’s retribution. The worse is yet to come if we do not, as the Hopi Prophecy warns, collectively and singularly repair these relationships and respect all our relations, plant and animal, water, soil and stone. In this anthropocene age we are experiencing the existential crisis, environmentally, socio-economically and in terms of public health and food security that the Hopi Indians prophetically warned about as a consequence of koyaanisquatsi, life out of balance. Renunciation of our self-worship of gods created in our own image would be a good beginning toward living in harmony with all life, the spiritual root of One Health and the antidote to our pathogenic anthropocentrism. Indeed Global Sustainability via a One Health approach as a moral compass is critical to our planet’s Survival and thereby ourselves. 
 
-We have ignored, exploited and violated many of these relationships for millennia and now face the nemesis of Nature’s retribution. The worse is yet to come if we do not, as the Hopi Prophecy warns, collectively and singularly repair these relationships and respect all our relations, plant and animal, water, soil and stone. Renunciation of our self-worship of gods created in our own image would be a good beginning toward living in harmony with all life, the spiritual root of One Health and the antidote to our pathogenic anthropocentrism.
+
+
 
 
 
