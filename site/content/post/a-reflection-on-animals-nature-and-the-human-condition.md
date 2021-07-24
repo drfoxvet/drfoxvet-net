@@ -23,6 +23,11 @@ Once the springs from mountain valleys were pure but now the water is contaminat
 
 We have changed our minds and ways, losing that spiritual connectedness to all that was once held sacred as witness the rising singular and collective violence, greed, prejudice (from racism to speciesism), hatred, delusion and psychosis in modern times. Many of the accepted norms of today, especially in our treatment of animals and Nature, would have been unthinkable to any civilized society. I do not link our early gatherer-hunter ancestors with the mythical “noble savage” but acknowledge their adaptability, social cooperation, empathy, indigenous ecological knowledge and transgenerational wisdom were essential elements of survival. Yet this is not to deny that some peoples, genetically and culturally/epigenetically, were less compassionate or cruel than others.
 
+Dystopia, dysbiosis and dysphoria go hand in hand and we are challenged to face political corruption, coercion, loss of vision ( beyond “conquering ” outer Space) and the documented decline in cognitive ability, critical thinking and related IQ
+(Technology Is On The Rise, While IQ Is On The Decline – Forbes https://www.forbes.com › sites › 2020/04/29 › ).---and ultimately, our collective lack of reason and self-restraint.
+
+
+
 
 The recovery of our humanity and sanity to make informed decisions for the greater good and the good of the Commons will help heal us, the planet and all our relations. This One Health initiative must be the primary agenda of civil society which I pray every nation state and community will embrace and include under the rule of law..( For details visit https://www.onehealthinitiative.com), Nature is not something that is separate from us: We are part of Nature. When we poison the environment is it no surprise to find poisons in mothers’ wombs and milk.? Taking a “moral inventory” in an amoral technocracy that has no bioethical foundation or vision of One Health is as meaningless as it is in any immoral autocracy. The hubris of science that promotes eugenics, exploiting and “improving” on Nature and taking the law into its own hands must be tempered by the precautionary principle, respect for the laws of Nature and the wisdom of humility.
 
