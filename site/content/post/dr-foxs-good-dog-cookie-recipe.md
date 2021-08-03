@@ -20,4 +20,4 @@ Mix all ingredients, slowly adding rice milk or pure water and knead well to mak
 
 Most of these ingredients you can find in any health store or good supermarket, and ideally, all should be organically certified. Buckwheat, a flowering plant, produces  one of the most nutritious grains or groats, naturally lacking in gluten.
 
-You can also add unsweetened shredded coconut, minced dog grass or wheat grass, and try some ginger for car sick dogs, and turmeric for arthritic ones. All will help dogs with digestive problems.
+You can also add minced dog grass or wheat grass, and try some ginger for car sick dogs, and turmeric for arthritic ones. All will help dogs with digestive problems.
