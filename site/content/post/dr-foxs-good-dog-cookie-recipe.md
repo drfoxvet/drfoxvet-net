@@ -12,9 +12,11 @@ tags:
 ½ cup good quality canned dog food or fresh ground meat;\
 or 2 eggs, or ½ cup peanut butter, or shredded white cheese, or sardines in oil\
 1 tablespoon powdered calcium or multi-mineral supplement, or 4 Tums.\
-1 tablespoon Brewer’s yeast\
-1 tablespoon powdered kelp or other seaweed\
-¼ teaspoon salt\
+1 tablespoon Brewer’s nutritional yeast/Bragg's Nutritional yeast Flakes
+
+1 tablespoon powdered kelp or other seaweed
+
+¼ teaspoon salt
 
 Mix all ingredients, slowly adding rice milk or pure water and knead well to make a  stiff dough. (Don’t drown the Miller!). Roll out to ¼ inch cookie-thickness on flour-dusted baking tin and incise into bite-sized, one-inch squares. Cook at 375 degrees for 25-35 min. until crisp.  Store in an air-tight container.
 
