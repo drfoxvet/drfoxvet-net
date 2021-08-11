@@ -2,7 +2,7 @@
 title: 'Cats: Why They Should be Enclosed and not Roam Free'
 date: 2021-08-11T16:05:00.234Z
 tags:
-  - Environment
+  - Public health
 ---
 CATS: WHY THEY SHOULD BE ENCLOSED AND NOT ROAM FREE
 
