@@ -44,8 +44,6 @@ The reality of Nature, where one species kills and consumes, parasitizes or othe
 
  The consumption of exotic wild animals, wildlife farming and trade, livestock management practices, keeping exotic animals as pets and human encroachment on wildlife habitats all put humans at risk for zoonotic diseases, researchers reported in Biological Reviews. (Silviu O. Petrovan, et al   Post COVID-19: a solution scan of options for preventing future zoonotic epidemics. Biological Reviews, 07 July 2021 https://doi.org/10.1111/brv.12774).
 
-
-
 In the anarchic complexity of Nature there is no ruler or authoritarianism but competition and cooperation within and between species that maintains and sustains a whole greater than its parts, an ecosystem. Ecosystems are complex, dynamic, unstable equilibria interconnecting to form a global biosphere. Such organization, in human political terms, is democratic. One life gives life to another taking life and death renews as exemplified by an often cyclical pattern of prey and predator numbers. Ecosystems become dysfunctional and can collapse or succumb to invasive species when there are too many prey species (herbivores) or too few or too many predators (carnivores). The human species has not yet learned to live in accord with Natural law, being too many to live as predators and displacing wildlife and reducing self-regulating natural biodiversity by raising billions of livestock and poultry for consumption. Such an economy and culture is neither sustainable nor ecologically just and amounts to ecocide.
 
  From :	EcoWatch <contact@ecowatch.com>
@@ -65,6 +63,8 @@ The best qualities of human nature, of character, empathy, compassion, respect f
 Postscript: 
 
 If there were no stones, we would have no minerals for our bones and never walk, or for our brains and never talk. If there were no trees and other green life on land and in the seas we would not exist without the oxygen they give. We would not be red in blood and living free. Without the microorganisms in healthy soils we would have no nutritious plant foods nor our own related microbiome in our guts essential for our health, immune and digestive systems. Ecology, molecular biology and other natural sciences affirm these life-giving and sustaining relationships between the universal and the particular, humanity and Earth, self and other.
+
+In the realm of sentience, the reality of Nature and nature of reality spans the polarities of sublime beauty and joy and horrendous suffering and fear. Between these antipodes we have our being and choice between compassion and loving kindness, predation and self-sacrifice, cruelty and indifference. The choices are ours regardless of whatever god we may believe in who created this world. We have the freedom to chose between good and evil and obedience to the rule of law to protect the greater good of all sentient beings great and small.
 
 The unity of the art (and music) of Nature and the nature of art (and music) is celebrated by the human spirit and broken by the human ego. So it is with the science of Nature and the nature of science where science causes more harm than good when this essential unity is ignored and violated. The same is true for the art and science of human medical and veterinary praxis. The concept of One Health (and One Economy) recognizes this fundamental unity where human well-being is inseparable from the well-being of Nature, the natural environment, and other sentient beings.
 
