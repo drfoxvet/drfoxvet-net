@@ -197,6 +197,15 @@ This report clearly recognizes human risks of this technology calling for protec
 23. Karam, P.A., Gamma and neutrino radiation dose from gamma ray bursts and nearby supernovae. Health Phys. 2002 Apr;82(4):491-9 
 24. Teilhard de Chardin, .P. The Divine Milieu: An Essay on the Interior Life. New York: Harper & Row, 1965 p. 59-60.
 
+UPDATES
+
+
+Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27. doi: 10.1515/reveh-2021-0026. Epub ahead of print. PMID: 34047144.
+
+
+"Ambient levels of electromagnetic fields (EMF) have risen sharply in the last 80 years, creating a novel energetic exposure that previously did not exist. Most recent decades have seen exponential increases in nearly all environments, including rural/remote areas and lower atmospheric regions. Because of unique physiologies, some species of flora and fauna are sensitive to exogenous EMF in ways that may surpass human reactivity. There is limited, but comprehensive, baseline data in the U.S. from the 1980s against which to compare significant new surveys from different countries. This now provides broader and more precise data on potential transient and chronic exposures to wildlife and habitats. Biological effects have been seen broadly across all taxa and frequencies at vanishingly low intensities comparable to today's ambient exposures. Broad wildlife effects have been seen on orientation and migration, food finding, reproduction, mating, nest and den building, territorial maintenance and defense, and longevity and survivorship. Cyto- and geno-toxic effects have been observed. The above issues are explored in three consecutive parts: Part 1 questions today's ambient EMF capabilities to adversely affect wildlife, with more urgency regarding 5G technologies. Part 2 explores natural and man-made fields, animal magnetoreception mechanisms, and pertinent studies to all wildlife kingdoms. Part 3 examines current exposure standards, applicable laws, and future directions. It is time to recognize ambient EMF as a novel form of pollution and develop rules at regulatory agencies that designate air as 'habitat' so EMF can be regulated like other pollutants. Wildlife loss is often unseen and undocumented until tipping points are reached. Long-term chronic low-level EMF exposure standards, which do not now exist, should be set accordingly for wildlife, and environmental laws should be strictly enforced."
+
+
 # ADDENDUM
 
 ## EMFS AFFECTING WILDLIFE
