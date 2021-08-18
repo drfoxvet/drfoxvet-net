@@ -199,6 +199,12 @@ This report clearly recognizes human risks of this technology calling for protec
 
 UPDATES
 
+Historic Win’: CHD Wins Case Against FCC on Safety Guidelines for 5G and Wireless
+From https://childrenshealthdefense.org/defender/chd-wins-case-fcc-safety-guidelines-5g-wireless/?utm_source=salsa&eType=EmailBlastContent&eId=794a9103-1b18-45ca-8441-001a334a6936
+
+The U.S. Court of Appeals for the D.C. Circuit court ruled the Federal Communications Commission must provide a reasoned explanation for its determination that its current guidelines adequately protect against harmful effects of exposure to radiofrequency radiation.
+The U.S. Court of Appeals for the DC Circuit published its decision Aug.13th 2021. The court ruled that the FCC failed to consider the non-cancer evidence regarding adverse health effects of wireless technology when it decided that its1996 radiofrequency emission guidelines protect the public’s health.
+
 
 Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27. doi: 10.1515/reveh-2021-0026. Epub ahead of print. PMID: 34047144.
 
