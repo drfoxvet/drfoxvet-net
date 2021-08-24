@@ -7,15 +7,22 @@ tags:
   - Environment
 ---
 
-A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: 
+A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: THE SPIRITUALITY OF ONE HEALTH
 
-THE SPIRITUALITY OF ONE HEALTH
-                     
  By Dr. Michael W. Fox
 
   “The only thing worse than being blind is having sight but no vision.” –Helen Keller.
 
-Once all rivers ran clear, free and clean and the pure, sweet air sang through forests and grasslands: Food for the human spirit, body and soul as was all else the good Earth provided, engendering in our ancestors an abiding sense of thanksgiving, kinship, and reverence for all beings, animal and plant. That was long before the enslavement of man and beast; of genocide, ecocide, the fur trade, the timber, oil and cattle barons, moguls of mining and industry and the relentless drive of conquest, colonialism and empire building under political, economic, religious and military hegemony.
+  SYNOPSIS:
+We are part of Nature, our ultimate provider. If we respect the environment, the land, the waters and all our relations, plant and animal, Nature will not become our ultimate nemesis.
+
+
+
+
+                                                                          
+                                                                              
+
+Once all rivers ran clear, free and clean and the pure, sweet air sang through forests and grasslands: Food for the human spirit, body and soul as was all else the good Earth provided, engendering in our ancestors an abiding sense of thanksgiving, kinship, and reverence for all beings, animal and plant. That was long before the enslavement of man and beast; of genocide, ecocide, the fur trade, the timber, oil and cattle barons, moguls of mining and industry and the relentless drive of conquest, colonialism and empire building under political, economic, religious and military hegemony.
 
 
 Once the springs from mountain valleys were pure but now the water is contaminated from the chemicals in the rain, air and snow the forested slopes and peaks collect and are no longer neutralized by the microorganisms and mineral filters in the valley floor because most have been destroyed and disrupted by human agricultural, mining and other activities ignorant of how Nature can help us.
