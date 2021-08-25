@@ -116,6 +116,30 @@ Swinderen, Philip Low and Christof Koch. The Declaration was publicly proclaimed
 
 Memorial Conference on Consciousness in Human and non-Human Animals, at Churchill College, University of Cambridge, by Low, Edelman and
 
-Koch. The Declaration was signed by the conference participants that very evening, in the presence of Stephen Hawking, in the Balfour Room at
+Koch. The Declaration was signed by the conference participants that very evening, in the presence of Stephen Hawking, in the Balfour Room at the Hotel du Vin in Cambridge, UK. The signing ceremony was memorialized by CBS 60 Minutes.
 
-the Hotel du Vin in Cambridge, UK. The signing ceremony was memorialized by CBS 60 Minutes.
+ADDENDUM
+
+RECOGNITION OF ANIMAL SENTIENCE BEING PUT INTO LAW QUESTIONED
+
+It would be good to see animal sentience being recognized under the law in the U.S. In the U.K. this initiative is being questioned in the parliamentary division of the House of Lords which was reported by the British Veterinary Association, of which I am a member in their journal, the Veterinary Record. I sent the following response...
+
+The Veterinary Record (10/17 July 2021 p. 7) quotes by some peers in the House of Lords concerning government plans to recognize animal sentience reveals degrees of sentience and sapience within that august body.
+
+ Sentience is defined in the English  Cambridge dictionary as the quality of being able to experience feelings the quality of being able to experience feelings.
+
+
+According to Damasio, ( 1) sentience is a minimalistic way of defining consciousness, which otherwise commonly and collectively describes sentience plus further features of the mind and consciousness, such as creativity, intelligence, sapience, self-awareness, and intentionality   (the ability to have thoughts about something). These further features of consciousness may not be necessary for sentience, which rests on the capacity to feel sensations and emotions.
+
+
+Accepting that sentience can vary individually within and between species it is surely incumbent upon any civilized, humane society to acknowledge the existential reality of animal sentience, a quality of all sensate life forms once denied to our own species captured and sold into slavery. 
+
+
+While some of the peers voiced opposition from various perspectives, fearing anthropomorphism, increased bureaucracy and personnel costs and even the moral foundation of society, simply acknowledging animal sentience will help move society toward seeking humane alternatives, such as artificial fishing lures rather than live worms and minnows on hooks: And, as Lord Benyon  stated, “we owe a duty of care to the animal kingdom”.  Expert committees debating and defining degrees of sentience in different species are a poor substitute for promoting compassionate regard for all sentient life.
+
+Michael W. Fox 
+Golden Valley Minnesota USA
+REFERNCE
+1.Damasio, Antonio  "Fundamental feelings". Nature. 2001;413 (6858): 781. 
+
+
