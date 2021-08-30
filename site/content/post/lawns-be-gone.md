@@ -65,6 +65,9 @@ The domino-effect of these chemicals means insectivorous birds, bats, reptiles a
 Frogs and other amphibians are becoming extinct all around the world yet they and other creatures play a vital role in controlling adult mosquitos. We have the science now to identify and correct many communicable (zoonotic) disease problems, but without the will of an informed public demanding responsible government and corporate behavior with regard to public and environmental health we will surely share the fate of the frogs. 
 
 SAFER “WEED” CONTROL:  vinegar: an alternative to glyphosate? - University of Maryland Extension https://www.extension.umd.edu/.../Vinegar-AnAlternativeToGlyphosate-UMD-Smith-...attested that glyphosate may account for up to 90% of pesticide applications ... As a non-selective herbicide, glyphosate will kill most plants it contacts. .... Nonetheless, using acetic acid on weeds with tap roots (dandelions, Canada ... Bioganic Safety Brands Weed & Grass Killer - 10% acetic acid, 2% eugenol (clove oil), 2%.
+For more details go to  How to avoid greenwashing and harmful pesticides in lawn care (ehn.org)
+
+
 In Minnesota a bill has been passed by State legislature to support allotting $2 million to subsidize 75% of the cost of people converting their lawns to wild, indigenous flowering plants to help save the bees and other pollinators. Such legislation should be adopted by all states
  
 
