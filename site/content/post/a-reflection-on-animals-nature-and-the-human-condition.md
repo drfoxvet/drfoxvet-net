@@ -4,7 +4,7 @@ title: >-
   Earth Manifesto
 date: 2021-07-19T15:54:59.748Z
 tags:
-  - Public Health
+  - Environment
 ---
 
 A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: A ONE HEALTH FOR ONE EARTH MANIFESTO
