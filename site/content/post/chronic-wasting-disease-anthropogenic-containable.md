@@ -98,5 +98,23 @@ References
 19.Farnsworth M..L.,Wolfe,,L.L., Hobbs, N.T., et al  Human Land Use Influences Chronic Wasting Disease Prevalence in Mule Deer. Ecological Applications 2005 15: 119–126.
 20. Wild, M. A., Hobbs N.T, Graham M.S, and Miller M.W. The Role of Predation in Disease Control: A Comparison of Selective and Nonselective Removal on Prion Disease Dynamics in Deer. Journal of Wildlife Diseases 2011 47(1):78–93.
 21. Blumhardt, M. Chronic wasting disease linked to Fort Collins for 50 years. Fort Collins Coloradoan, August 23, 2018. 
-22. Fox M.W. The One Health: Human Disease, Veterinary Responsibilities and Our Animal and Environmental Relationships. J Am Holist Vet Med Assoc. 2018;53:26-31 
+22. Fox M.W. The One Health: Human Disease, Veterinary Responsibilities and Our Animal and Environmental Relationships. J Am Holist Vet Med Assoc. 2018;53:26-31
+
+ADDENDUM 
+
+Counterpoint: Both farmed and wild deer are the problem. Publsihed in the  Star Tribune, Sept 10, 2021
+
+A deer farmer’s counterpoint commentary (Sept 8, “Deer farms are the remedy, not the disease” in response to “Minnesota’s wild deer are being threatened by ‘farms’” (Aug 27) which blame deer farms for the rising incidence of CWD ( chronic wasting disease) in the wild deer population needs some clarification.
+Many experts contend that chronic wasting disease was initially spread from captive deer in Colorado, some being transported to other states.  State wildlife management practices that foster large deer numbers for hunters and elimination of disease and population-controlling wolves have exacerbated the spread of this disease. White-tailed deer population now estimated at some 30 million across the U.S.is also impacting forest regeneration. 
+
+Now in the midst of the COVID-19 pandemic we face another issue involving deer. A recent study of the incidence of SARS-CoV-2 in White-tailed deer by the USDA’s Animal and Plant Health Inspection Service discovered that 33% of 481 blood samples collected from January 2020 through March 2021 from deer populations in Illinois, Michigan, Pennsylvania and New York tested positive for this coronavirus. In another study samples taken early this year from eight white-tailed deer in Ohio contained SARS-CoV-2, How the deer became infected is not known but possible from close contact with COVID-19 diseased people on deer farms and in parks and possibly left-over picknic items and human feces in public parks and campgrounds.
+White-tailed deer can be infected by and transmit SARS-CoV-2 to other deer through nasal secretions and fecal matter, researchers reported in the Journal of Virology. Fawns in the small study did not develop clinical signs of illness, but the virus replicated and was shed, suggesting cervids are potential viral reservoirs. Since captive mink are highly susceptible to this virus and have been infected by caretakers with COVID-19 and, in turn, have infected workers, there is also concern that infected deer could pass this coronavirus to wild mink and other wildlife. 
+Deer farmers must therefore take precautions to stop infected staff from passing this disease on to deer not only in Minnesota but in all states where there are deer held in captivity. Zoos are now taking such precautions. As for CWD control, the White-tailed deer population needs to be significantly reduced in most states by encouraging wolf numbers under Endangered Species Act protection to prohibit trapping, snaring and shooting would be prudent. Livestock keepers practicing non-lethal methods of wolf deterrence, especially with guard dogs, should be compensated for confirmed losses to wolves and not to disease or exposure and neglect.
+These are the kinds of One Health issues that state and federal animal and public health agencies are beginning to acknowledge and question the commercial farming of wild animals as well as the “wet markets” in China and other countries along with wildlife management practices, especially killing wolves and other deer predators to increase deer numbers for the hunting industry that are more profit-driven than science-based and ecologically restorative and sustainable.
+Michael W. Fox 
+Veterinarian
+Golden Valley MN 55422
+
+
+
 
