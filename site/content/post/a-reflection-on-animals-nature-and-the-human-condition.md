@@ -1,13 +1,13 @@
 ---
 title: >-
-  A Reflection on Animals, Nature and the Human Condition: The Spirituality of
-  One Health
+  A Reflection on Animals, Nature and the Human Condition: A One Health for One
+  Earth Manifesto
 date: 2021-07-19T15:54:59.748Z
 tags:
   - Public Health
 ---
 
-A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: THE SPIRITUALITY OF ONE HEALTH
+A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: A ONE HEALTH FOR ONE EARTH MANIFESTO
 
  By Dr. Michael W. Fox
 
@@ -15,6 +15,10 @@ A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: THE SPIRITUALITY OF ONE
 
   SYNOPSIS:
 We are part of Nature, our ultimate provider. If we respect the environment, the land, the waters and all our relations, plant and animal, Nature will not become our ultimate nemesis.
+
+ “In wildness is the preservation of the world.”---Henry David-Thoreau. “
+As long as people will shed the blood of innocent creatures there can be no peace, no liberty, no harmony between people. Slaughter and justice cannot dwell together.”— Isaac Bashevis Singer. 
+“Until he extends the circle of his compassion to all living things, man will not himself find peace.”----Albert Schweitzer.
 
 
 
