@@ -4,7 +4,7 @@ title: >-
   One Health
 date: 2021-07-19T15:54:59.748Z
 tags:
-  - Environment
+  - Public Health
 ---
 
 A REFLECTION ON ANIMALS, NATURE AND THE HUMAN CONDITION: THE SPIRITUALITY OF ONE HEALTH
