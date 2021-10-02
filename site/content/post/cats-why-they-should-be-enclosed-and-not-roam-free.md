@@ -28,6 +28,7 @@ R.Kays et al The small home ranges and large local ecological impacts of pet cat
 
 
 CAT HEALTH AND WELFARE CONCERNS: 
+
 Cats allowed off their property can get lost, hit and injured or killed by traffic, coyotes, dogs and other large animals as well as being trapped, shot, poisoned, bitten and infected by other cats, notably with feline AIDS and get feline infectious leukemia and other viral infections. Cats with feline panleukopenia have infected and killed endangered Florida panthers.
  
 
@@ -72,6 +73,14 @@ Cat owners, meat eaters and livestock keepers need to take this statement to hea
 Toxoplasmosis can have a profound impact on human health, not only in terms of congenital disease in infants, severe pathologies in immunocompromised individuals (eg, organ transplant recipients and people with AIDS) [2], and acute, symptomatic infections in adults during outbreaks [3–5], but also through its association with a large burden of behavioral and neurological disorders, including schizophrenia, in immunocompetent individuals [6–9].
 
  Toxoplasma gondii is also of major economic importance for the livestock industry, being responsible for approximately 23% of ovine abortions in Europe and the United States [10].” From the report Toward Improving Interventions Against Toxoplasmosis by Identifying Routes of Transmission Using Sporozoite-specific Serological Tools by  Gregory Milne, Joanne P Webster and Martin Walker Clinical Infectious Diseases, Volume 71, Issue 10, 15 November 2020, Pages e686–e693, https://doi.org/10.1093/cid/ciaa428.
+
+Birds of Prey Infected with Cat Parasite 
+
+Scientists Sawsan Ammar et al report in their article, Toxoplasma gondii prevalence in carnivorous wild birds in the eastern United States,
+(International Journal for Parasitology: Parasites and Wildlife,15: 153-157, 2021)
+They collected carcasses and tissue samples from ten species of raptor among three states (FL, PA, TN) to determine infection prevalence with Toxoplasma gondii. Overall, 32 of 155 birds (20.6%) tested positive for T. gondii exposure. Birds from the order Strigiformes (3 species) had the highest seroprevalence (75.0%), followed by Falconiformes (5 species; 44.8%), and Ciconiiformes (2 species; 3.8%). Barred Owls (Strix varia) had the highest seroprevalence (77.8%). Although raptors have been considered largely resistant to toxoplasmosis, more research is needed on subclinical disease. Furthermore, the exposure rates of raptors may be useful indicators of environmental contamination with T. gondii. The raptors in this study were likely exposed through consumption of infected prey tissues from other birds, small mammals, or insects.
+
+
 
 
 Some have dismissed these concerns emphasizing that infected cats are only infective for a short time. But in actuality they shed Toxoplasma in the environment ( contaminated food, water and soil) can remain infective for many months. Cats become infected when they kill and consume mice and other small mammals carrying the infective intermediary cysts of Toxoplasma, and when fed infected raw meat. Also, recovered cats no longer shedding this pathogen can succumb to this disease and may start shedding again when this dormant pathogen in their bodies multiplies when the cats are stressed and immunocompromised. 
