@@ -146,9 +146,9 @@ The division of regulatory and approval authority between the FDA and EPA facili
 
 For some social media links go to  www.hartzvictims.org/
 
-Flea and Tick Product Risks and Recalls - ConsumerAffairs.com
+Flea and Tick Product Risks and Recalls - From ConsumerAffairs:
 
-https://www.consumeraffairs.com/flea-and-tick-product-risks-and-recall
+ https://www.consumeraffairs.com/flea-and-tick-product-risks-and-recalls 
 
 and  yourpetsneedthis.com and facebook.com/groups/411371212394679/. Also  https://www.change.org/p/petition-for-the-immediate-withdrawal-of-simparica-flea-tick-treatment-from-the-market and Beware of Seresto flea collars - Page 1 - Pedigree Database www.pedigreedatabase.com/community.read?post=859429-beware-of-seresto-flea...Mar 10, 2016.
 
