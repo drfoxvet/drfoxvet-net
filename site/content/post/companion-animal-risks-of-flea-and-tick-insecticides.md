@@ -103,6 +103,22 @@ From Johnathan Hettinger, Midwest Center for Investigative Reporting March 26, 2
 “Two pet owners who claim their dogs either died or developed problems after using Seresto flea and tick collars filed a class-action lawsuit this week against Elanco Animal Health, alleging it misrepresented the safety of its product”.
 “The lawsuit, filed in the U.S. District Court of California in Los Angeles, comes just days after a congressional subcommittee asked Elanco to voluntarily recall the flea and tick collars in the wake of reporting by the Midwest Center for Investigative Reporting and USA TODAY on thousands of incident reports about pet and human harm linked to the collar. The lawsuit cites the news outlets’ reporting. Elanco declined to voluntarily recall the product”.
 
+HUMAN HEALTH RISKS   FROM INSECTICIDES APPLIED TO COMPANION ANIMALS
+
+I am concerned about the long-term adverse consequences of insecticides given to companion animals externally as spot-on applications or released from impregnated collars on both the animals’ health and in-home human exposure through petting contact and in the ambient environment. 
+
+Veterinarian Joe Cummins’ letter in the Journal of the American Veterinary Medical Association (“Parkinson disease and the veterinary profession” March 1st 2021, vol.258, p 454) questions if his later-in-life development of this incapacitating disease might be caused by “repeated exposure to flea and tick collars” in the animals he was attending to. 
+
+I would extend this questioning of exposure risk and better monitoring also to dog groomers and workers in tanneries and slaughterhouses/ animal processing facilities considering the fact that insecticides are widely used by the livestock and poultry industries. 
+
+It would seem that many autoimmune and neurodegenerative diseases like Parkinson’s and Alzheimer’s are multifactor/pluri-causal.  Several studies have linked farmers’ exposure to insecticides, fungicides and herbicides as well as non-farming people living in communities close to agrichemical-treated fields.  For a general overview see Pesticide-Induced Diseases: Brain and Nervous System ... https://www.beyondpesticides.org and also, https://www.americanscientist.org/article/the-rise-of-parkinsons-disease.
+
+ In their extensive review of clinical and research studies of these concerns. authors Freya Kamel and Jane A. Hoppin conclude “ there is mounting evidence that chronic moderate pesticide exposure is neurotoxic and increases risk of Parkinson disease.” ( quote from Association of Pesticide Exposure with Neurologic Dysfunction and Disease Environmental Health Perspectives Vol. 112, No. 9  June 1st 2004https://doi.org/10.1289/ehp.7135). 
+ 
+The precautionary principle of risk reduction is an essential component of preventive   health care maintenance. This means reducing the use of and human  exposure to externally applied insecticides to companion animals in particular and to farmed animals with the adoption of Organically Certified husbandry practices that preclude and negate the need for such chemicals. 
+
+
+
 
 ## END NOTES & REFERNCES
 
@@ -126,7 +142,7 @@ In the U.S. regulation of these pesticides is divided between two agencies. Acco
 
 EPA Evaluation of Pet Spot-on Products: Analysis and Plans for Reducing Harmful Effects ( From https://www.epa.gov/pets/epa-evaluation-pet-spot-products-analysis-and-plans-reducing-harmful-effects).
 
-Summary of findings
+Summary of Findings
 
 EPA found that the products could be used safely but that some additional restrictions are needed. EPA's team of veterinarians learned that most incidents were minor, but unfortunately some pet deaths and "major incidents" have occurred. The Agency learned that the most commonly affected organ systems were skin, gastrointestinal (digestive), and nervous.
 
@@ -146,11 +162,10 @@ The division of regulatory and approval authority between the FDA and EPA facili
 
 For some social media links go to  www.hartzvictims.org/
 
-Flea and Tick Product Risks and Recalls - From ConsumerAffairs:
+Flea and Tick Product Risks and Recalls - From Consumer Affairs: 
+https://www.consumeraffairs.com/flea-and-tick-product-risks-and-recalls
 
- https://www.consumeraffairs.com/flea-and-tick-product-risks-and-recalls 
-
-and  yourpetsneedthis.com and facebook.com/groups/411371212394679/. Also  https://www.change.org/p/petition-for-the-immediate-withdrawal-of-simparica-flea-tick-treatment-from-the-market and Beware of Seresto flea collars - Page 1 - Pedigree Database www.pedigreedatabase.com/community.read?post=859429-beware-of-seresto-flea...Mar 10, 2016.
+See also yourpetsneedthis.com and facebook.com/groups/411371212394679/. Also  https://www.change.org/p/petition-for-the-immediate-withdrawal-of-simparica-flea-tick-treatment-from-the-market and Beware of Seresto flea collars - Page 1 - Pedigree Database www.pedigreedatabase.com/community.read?post=859429-beware-of-seresto-flea...Mar 10, 2016.
 
 Jennings KA1, Canerdy TD, Keller RJ, Atieh BH, Doss RB, Gupta RC.  Human exposure to fipronil from dogs treated with frontline.  Vet Hum Toxicol. 2002 Oct;44(5):301-3.
 
