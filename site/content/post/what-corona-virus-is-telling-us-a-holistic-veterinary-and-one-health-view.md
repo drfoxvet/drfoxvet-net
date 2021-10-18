@@ -10,7 +10,7 @@ tags:
 ---
             
 
-          Pandemics: Past, Present and Future Prevention
+          
 
            By Michael W. Fox, BVetMed, PhD, DSc, MRCVS 
                                                                             
