@@ -223,7 +223,42 @@ The science of Nature and nature of science is the existential reality of truth.
 Our love of Nature and nature of love are connected empathically with our innate, ancestral and spiritual affinities and cherishing of other beings, human and non-human, plant and animal: Not just loving other humans, since love cannot be exclusive or possessive without causing harm. Selfish love breaks our sacred, life and spirit-sustaining connections as when love becomes conditional in our seeking to be loved rather than to love; and in the myriad other ways that limit our lives and so often harm others and Nature, Mother of us all.
 
 
-We have ignored, exploited and violated many of these relationships for millennia and now face the nemesis of Nature’s retribution. The worse is yet to come if we do not, as the Hopi Prophecy warns, collectively and singularly repair these relationships and respect all our relations, plant and animal, water, soil and stone. In this anthropocene age we are experiencing the existential crisis, environmentally, socio-economically and in terms of public health and food security that the Hopi Indians prophetically warned about as a consequence of koyaanisquatsi, life out of balance. Renunciation of our self-worship of gods created in our own image would be a good beginning toward living in harmony with all life, the spiritual root of One Health and the antidote to our pathogenic anthropocentrism. Indeed, Global Sustainability via a One Health approach as a moral compass is critical to our planet’s survival and thereby ourselves. 
+We have ignored, exploited and violated many of these relationships for millennia and now face the nemesis of Nature’s retribution. The worse is yet to come if we do not, as the Hopi Prophecy warns, collectively and singularly repair these relationships and respect all our relations, plant and animal, water, soil and stone. In this anthropocene age we are experiencing the existential crisis, environmentally, socio-economically and in terms of public health and food security that the Hopi Indians prophetically warned about as a consequence of koyaanisquatsi, life out of balance. Renunciation of our self-worship of gods created in our own image would be a good beginning toward living in harmony with all life, the spiritual root of One Health and the antidote to our pathogenic anthropocentrism. Indeed, Global Sustainability via a One Health approach as a moral compass is critical to our planet’s survival and thereby ourselves.
+ 
+POSTSCRIPT
+
+From ANIMAL DOCTOR, Syndicated newspaper column 
+
+
+GLOBAL CLIMATE SUMMIT FALLS FLAT:  EARTH HEALTH AT RISK
+
+By Dr. Michael W. Fox November 23rd 2021
+
+The agreement that was reached November 13th, 2021 at the COP26 Climate Summit in Glasgow is woefully inadequate. This is because of the final, last-minute inclusion of the troubling and undermining (no pun intended) statement: “accelerating efforts towards the phase-down of unabated coal power and inefficient fossil fuel subsidies”. The term “phase down” India got put in place of “phase out”. India is also one of the world’s biggest producers of buffalo meat that is exported for sale as beef.
+
+There will only be a very slow end to the burning of fossil fuels and raising billions of animals for their meat if their adverse public health, wildlife and biodiversity and environmental consequences are not recognized and publicized and rectified. These connections were evidently ill considered at this Global Summit even though there were many voices and public demonstrations advocating Conservation, Environmental and Social Justice, the political ethos of the One Health( https://www.onehealthinitiative.com )  movement embraced by various “Green” parties and Indigenous Peoples. 
+We must all focus on how we can live gentler and healthier lives and not harm the environment and other species, domesticated, farmed along with wild species, terrestrial and aquatic, and their habitats. One consequence of our ignoring and disrespecting ethical, humane and ecological boundaries has been the increase in viral diseases spread from animals to humans. The global COVID-19 pandemic is the latest consequence.
+
+
+ China, highly advanced in gene engineering animals, denies the possibility of a lapse in biosecurity at one its virology laboratories in Wuhan. But there have been pathogens accidentally released from government virology laboratory facilities developing vaccines and bioweapons in the U.S. and several other countries when there were lapses in biosecurity.
+
+
+Regardless of its origins the SARS-CoV-2 coronavirus responsible for the global COVID-19 pandemic this virus is related to other viruses and infectious organisms that are  on the horizon of “emerging diseases” forecast by epidemiologists.
+
+
+A major failure of this Global Summit on climate change was to make any concrete and coordinate commitment to address the looming crises of extreme weather events, droughts and floods and consequential urgent need for humanitarian aid, food security and support of medical and veterinary services without borders. Failure to agree to ‘loss and damage’ finance for countries that are vulnerable to climate change was most regrettable indeed. The increasingly fiery, violent waves of desperate and disenfranchised environmental, economic and political refugees, like the burning of coal, should not smolder on for another generation. Social and environmental justice go hand in hand along with human and non-human rights. Mike Davis of Global  Watchdog  (news@globalwitness.org) reported “ global leaders have failed to put people and the planet ahead of profits and vested corporate interests. On day 2 of the negotiations, we came together to shine a light on killing of over 1,000 land and environmental defenders since 2015, when the Paris Agreement was adopted. A stark reminder that as the climate crisis intensifies, violence against those protecting their land and our planet also increases.”
+
+
+The ethics of the Golden Rule and nonmaleficence should be applied to all our activities, relationships and industries. The term "nonmaleficence" derives from the ancient maxim primum non nocere, which, translated from the Latin, means "first, do no harm.”
+
+DEAR DR. FOX, The life expectancy in the Central African Republic is 53. Instead of breeding and supporting so many pets, let’s first find meaning and joy in raising the standard of living for humans. Insulin shots for 14-year-old dogs, for instance, are truly unnecessary.
+
+T.V.H., Tulsa OK
+
+DEAR T.V.H., Your letter raises an important moral issue and it does seem hypocritical if not unjust to be giving better nutrition. medical care and surgical treatments to companion animals (“pets” in the vernacular)—than to the poor at home and abroad.
+I regard compassion as a boundless ethic as per the title of my books The Boundless Circle and Bringing Life to Ethics. We have a duty to care for all our relations, human and non-human. The social, educational, medical and emotional benefits of animal companionship far outweigh the costs of care and annual Wellness veterinary check-ups. 
+Raising the standard of living for humans is inseparable from raising the standards of care for domestic animals, wildlife and the natural environment. Just giving people medicines and food aid and pouring more money into corrupt regimes will only extend human suffering and harms without the involvement of non-profit doctors and veterinarians without borders, government aid agencies and conservation organizations.
+
 
 
   *The author is a veterinarian with doctoral degrees in ethology/animal behavior and medical science from the University of London, England. He is a member of the British Veterinary Association, Honor Roll member of the American Veterinary Medical Association and writes the U.S. syndicated newspaper column Animal Doctor. He acknowledges the helpful comments by Dr. Bruce Kaplan, DVM, Dipl. AVES (Hon.), CDC/EIS63 Contents Manager/Editor One Health Initiative Website, Co-Founder One Health Initiative team/website in the completion of this article.
