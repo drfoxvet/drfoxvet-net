@@ -89,7 +89,18 @@ Suffering the loss of her only child from suicide, Patricia Maunu of Sioux Falls
 
 These and many other personal stories about how companion animals have helped their human guardians through difficult times, and are a constant source of affection and the joy of life, help us all appreciate why so many people who were victims of the Katrina hurricane disaster in New Orleans and other communities refused to leave without their animal companions. They are integral parts of the family and emotional lives of millions of people, and those who have not experienced the gifts of animal companionship, and the depths of animals’ empathy, have missed a golden opportunity to enrich their lives and awaken their appreciation for all creatures great and small. 
 
-  
+
+Harvard University  Sets Endowment for Animal Law and Policy Program
+
+
+Harvard Law School has established a $10-million endowment for its Animal Law & Policy Program in November 2021 expanding the seven-year-old program through a gift from the Brooks Institute for Animal Rights Law and Policy.
+
+
+The inaugural program allowed for an expansion of courses to include wildlife law and farmed animal law, helped in the development of visiting fellows programs and workshops and opened the door for the launch of the HLS Animal Law & Policy Clinic. This in-house public-interest law firm gives Harvard students hands-on experience and mentorship working directly on real-time animal law cases and policy projects, the school noted in a news release.
+
+
+The program bears the name of Brooks McCormick Jr., the Brooks Institute’s founding benefactor and an animal lover and philanthropist who passed away in 2015. The institute has become the leading foundation supporting academic work in the field of animal law and policy, supporting animal law programs at Yale University, New York University, Lewis & Clark, the University of Denver and Vermont Law School, among other academic institutions. Animal rights law-related courses currently are offered at 167 U.S. law schools, 21 years after the first such course launched at Harvard, the release noted. For more details see https://today.law.harvard.edu/10-million-endowment-established-for-the-harvard-law-school-animal-law-policy-program/
+ 
 
  
 END NOTE CITATIONS
