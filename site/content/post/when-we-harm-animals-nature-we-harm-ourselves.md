@@ -2,7 +2,7 @@
 title: When We Harm Animals & Nature We Harm Ourselves
 date: 2021-12-09T05:11:34.951Z
 tags:
-  - Public Health
+  - Veterinary Matters
 ---
 WHEN WE HARM ANIMALS AND NATURE, WE HARM OURSELVES
 
