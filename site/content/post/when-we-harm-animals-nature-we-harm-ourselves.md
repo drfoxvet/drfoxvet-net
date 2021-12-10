@@ -2,7 +2,7 @@
 title: When We Harm Animals & Nature We Harm Ourselves
 date: 2021-12-09T05:11:34.951Z
 tags:
-  - Veterinary Matters
+  - Environment
 ---
 WHEN WE HARM ANIMALS AND NATURE, WE HARM OURSELVES
 
@@ -27,6 +27,8 @@ Our pollution of marine and fresh water ecosystems has decimated populations of 
 Over a thousand endangered Manatees have starved to death in Florida waters because the light needed for sea grass, their main food, to grow, was blocked by algal blooms. (5). 
 
 Human feces, and urine, a source of nitrogenous urea, (pharmaceutical residues notwithstanding), should be recycled and returned to the land to nourish crops. But today urea is manufactured from natural gas or gas derived from coal to produce ammonia which is then used to synthesize urea---all adding to global warming and pollution along with other agrichemical fertilizers and pesticides. Carbon dioxide, a byproduct of urea production, is marketed as “food grade” and used to make soda fizz and to inhumanely render pigs and poultry unconscious during slaughter and processing. A shortage of carbon dioxide in the fall of 2021 in the U.K. meant many pigs had to be held back from going to slaughter and even “depopulated” on the farms. A global shortage of urea for farmers is currently being felt worldwide. (6).
+
+According to the USDA some 40% of food is wasted annually in the U.S. Several correctives are called for including upcycling damaged foods rejected for human consumption for entomophagy-- insect farming-- and fish farming. Municipal waste handling must mandate separation of food waste in trash for separate collection conversion into biogas or compost since going into landfills such waste generates methane production, contributing significantly to global warming. Mandatory recycling of organic waste has been initiated in California beginning in January 2022 and other municipalities are following suit. Municipalities burning waste that includes plastic must cease and desist because of the dioxins and other toxins being released with incineration, a world-wide practice no less harmful than ocean dumping of such waste material.
 
 
 The economy of Nature, and ultimately, our food-security and health, depend on the ecological services provided by the indigenous biodiversity of plants, animals and microorganisms. Our expanding population, encroachment and decimation of wildlands increases the probability of viral and other pathogen spillover of zoonotic diseases from wildlife. According to the United Nations report, Groundswell, 200 million people may be climate-change migrants seeking refuge from uninhabitable homelands by 2050.
