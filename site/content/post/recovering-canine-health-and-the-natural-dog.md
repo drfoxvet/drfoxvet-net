@@ -83,7 +83,22 @@ The most common diagnoses that respondents shared from veterinarians were allerg
 
 Another survey of health issues in Bulldogs in the U.K. found that this breed was especially prone to ear, skin, eye and respiratory infections, obesity and gastrointestinal problems. (  O’Neill, D.G. et al Disorders of Bulldogs under primary veterinary care in the UK in 2013. PLoSONE, 2019, 14 doi:10.1371/journal.pone.0217928).
 Brachycephalic dogs are especially prone to developing painful corneal ulcers.
-  
+
+A BOOK FOR ALL REASONS-TO STOP BREEDING FLAT-FACED ANIMALS
+
+Health and Welfare of Brachycephalic (Flat-faced) Companion Animals
+A Complete Guide for Veterinary and Animal Professionals Published August 6, 2021 by CRC Press SBN 9780367207243 418 Pages 117 B/W Illustrations
+https://www.routledge.com/Health-and-Welfare-of-Brachycephalic-Flat-faced-Companion-Animals/.
+
+
+This new book edited by Drs Rowena Packer and Dan O'Neill with chapters written by 29 internationally recognized experts addresses the serious and multiple health problems associated with selectively breeding dogs, cats, rabbits and now even horses to have flat, so-called brachycephalic faces. Their appearance is appealing to many people but in reality, appalling to the informed. 
+
+
+Year ago I was on the Oprah Winfrey show to talk about dogs. One of her invited guests came on with her 6-month-old Bulldog who could barely get up the low steps to reach us on the stage. I politely asked the breeder how could she deliberately breed an animal who had such great difficulty breathing and walking. While Oprah visibly stiffened at my taking away from the cuteness of her doggy show, which included a parade of various breeds wearing designer dog clothes, the breeder’s response was immediate: “I love them.”
+
+
+Now flat-faced dogs are the rage, especially French bulldogs and Pugs. One-fifth of all dogs in the U.K. are brachycephalic. This new book will help rectify this tragic deforming of companion animals as per the publisher’s promotional statement: “This book will equip veterinary professionals, animal welfare scientists, breeders and owners with the fuller story about brachycephalic health and welfare. The first half of the book provides the context of how and why we are in this crisis, offering in-depth historical, social, ethical, communication, nursing, welfare, epidemiological, genetics and　international　perspectives. The second half shifts towards the clinical arena, with chapters that cover the background, diagnosis, treatment and prevention of the many unique healthcare needs of brachycephalic animals. Cutting-edge knowledge is shared on a range of disciplines including respiratory disease, ophthalmology, dermatology, dentistry, neurology, obesity, reproduction and anesthesia.”　　
+
 In my opinion breeding dogs with the extreme forms of this deformity is unethical. It can mean, after a Caesarian birth, a lifetime of partial asphyxiation, limited exercise tolerance and enjoyment of life compounded by chronic eye, skin and respiratory and oral cavity infections along with a host of inherited diseases affecting the heart, joints, brain and other organs and systems. With abnormally large heads, many litters of puppies can only be delivered by surgical Caesarian section.
 
  Regardless of their appeal and appealing dispositions, those who really love them should stop breeding them, and the informed never consider purchasing a purpose-bred one regardless how adorable the puppies may seem.
