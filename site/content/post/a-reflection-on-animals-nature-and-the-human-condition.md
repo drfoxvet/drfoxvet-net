@@ -52,6 +52,22 @@ If industrial civilization had embraced the Great Law of the Iroquois – which 
 
 The Anthropocene epoch began with our ability to make fire, then pyrotechnology followed by other technologies including geoengineering, chemical, atomic/thermonuclear and genetic engineering. Some of these technologies were weaponized to fight adversaries, human and non-human, with little regard for their adverse consequences to the biosphere and life community. The increasing burden of these adverse consequences may disable future generations from ever evolving out of the collective egocentrism to the ecocentrism needed for effective planetary CPR-conservation, restoration and protection. Fr. Thomas Berry called this the “ecozoic” era of human evolution: A consummation devoutly to be wished!
 
+CLIMATE CHANGE AND THE DEMISE OF REPTILES AND AMPHIBIANS
+
+The so-called Anthropocene extinction refers to the demise of many species and loss of biodiversity caused by our impact on the environment. Reptiles and amphibians are cold-blooded, so-called poikilotherms, which can limit their ability to cope with sudden changes in temperature and humidity. We and other warm-blooded, homeothermic animals can cope better. These stressed poikilotherms are now being decimated by fungal infections which are indicative of impairment of the reptiles’ immune systems to ward off infection.
+ 
+Matthew Allender Allender, a veterinarian and wildlife epidemiologist at the University of Illinois and Chicago Zoological Society, and his colleagues have identified O. ophiodiicola in 25 snake species across 19 U.S. states and Canadian territories. The sometimes -fatal affliction now has a common name: snake fungal disease. (The fungus poses no threat to humans.) “I think it’s everywhere,” says Allender, who has detected the snake fungus in as far-ranging locales as the western U.S. and Puerto Rico. Though the fungus may not infect every snake species, “we’re finding it in remote places.” ( For details see A fatal fungal disease is spreading among North America’s snakes (nationalgeographic.com)
+
+
+ Pseudogymnoascus destructans, the likely European fungus that causes the devastating white-nose syndrome in bats is yet another indicator of the impact of climate change and the overuse of insecticides. These chemicals poison exposed insects that bats eat and decimate insect populations so the bats starve, all factors that impair bats’ immune systems and resistance to fungal and other disease. 
+
+
+The Denver Zoo is breeding endangered boreal toads for a population restoration project with the Colorado Parks and Wildlife department. A combination of habitat loss and chytrid fungal infections threaten the native species' survival, and project leaders hope to release approximately 20,000 tadpoles in the state next year. Full Story: KMGH-TV (Denver) (12/9/2021).
+
+
+Taking steps to prevent further biodiversity loss and stem this Anthropocene extinction of species calls for international government collaboration and science-based responsible planetary stewardship. When we lose species, ecosystems become dysfunctional and noxious and invasive species may then flourish and pose a threat to agriculture, food-security and public health.
+
+
 
 
 ONE HEALTH AND THE RECOVERY OF OUR SANITY AND EARTH
