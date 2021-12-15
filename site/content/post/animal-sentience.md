@@ -106,6 +106,19 @@ The program bears the name of Brooks McCormick Jr., the Brooks Institute’s fou
 
  
 END NOTE CITATIONS
+END NOTE CITATIONS
+
+Johnathan Balcombe, Super Fly: The Unexpected Lives of the World's Most Successful Insects," Penguin Books.2021. Winner of the National Outdoor Book Award  
+
+Marc Bekoff, https://www.psychologytoday.com/us/blog/animal-emotions/202112/spain-joins-other-nations-in-declaring-animals-are-sentient. He notes:  "As of November 2019, 32 countries have formally recognized non-human animal sentience. These are: Austria, Australia, Belgium, Bulgaria, Chile, Croatia, Cyprus, the Czech Republic, Denmark, Estonia, Finland, France, Germany, Greece, Hungary, Ireland, Italy, Latvia, Lithuania, Luxembourg, Malta, New Zealand, the Netherlands, Poland, Portugal, Romania, Spain, Slovakia, Slovenia, Sweden, Switzerland, and the United Kingdom..." A detailed table on the ways in which numerous countries view animal sentience and animal suffering can be seen in this summary titled "Animal rights by country or territory." See also by Marc Bekoff:
+ 
+_____. Sentient Reptiles Experience Mammalian Emotions. (A detailed review of scientific data finds evidence of reptile sentience.)
+_____. A Universal Declaration on Animal Sentience: No Pretending.
+_____. Animal Emotions, Animal Sentience, and Why They Matter,
+_____. Animal Sentience is Not Science Fiction: Recent Literature.
+____. Fish Are Sentient and Emotional Beings and Clearly Feel Pain.
+_____. Should Sentient Insects Be Farmed for Food and Feed?
+
 
 
 Dana L. M. Campbell * and Caroline Lee  A Perspective on Strategic Enrichment for Brain Development: Is This the Key to Animal Happiness? Front Vet Sci. 2021; 8: 720422. 
