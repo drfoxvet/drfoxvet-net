@@ -39,6 +39,11 @@ The ethics of respect and care awaken compassion and empathy, broadening into bi
 
 In my opinion all animals, including earthworms (who possess enkephalins and beta endorphins identified in human brains as similar to opiates in their ability to affect sensations of pleasure and pain.) and insects (who can manifest fear and injury-avoidance behaviors, many having serotonin and dopamine receptors as we have in our brains) are sentient beings. All sentient beings should be treated with care and consideration with no exceptions for commercial, animal research and other purposes or cultural tradition and erroneous belief that some species are simply instinct-driven, unfeeling automatons. Objectification and “mechanomorphization” of other sentient beings is scientifically invalid and ethically unacceptable. One of the first scientists to confront this cultural attitude was zoologist   Prof. Donald R. Griffin in his seminal text, The Question of Animal Awareness (1976).
 
+The empathic question is not do sentient beings “know” ( and are self-conscious) but rather, can they be harmed? All sentient beings avoid being harmed often in ways which we are only just discovering, like bacteria mutating and evolving resistance to antibiotics and trees signaling chemically to others when they are under some attack by insects. 
+
+Will and instinct are interdependent as are the senses, sensibility and consciousness all of which can vary as greatly within as between species. In several realms of the senses many species are far more evolved than we while others, as we are discovering, are emotionally more similar to us than they are different in their responsiveness, joys and suffering..
+
+
 
 ANIMAL COGNITION
 
