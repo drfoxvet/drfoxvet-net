@@ -2,7 +2,7 @@
 title: Technosphere and Cybersphere Harming the Biosphere
 date: 2021-12-25T14:48:43.192Z
 tags:
-  - Environment
+  - Public Health
 ---
   TECHNOSPHERE AND CYBERSPHERE HARMING THE BIOSPHERE
 
