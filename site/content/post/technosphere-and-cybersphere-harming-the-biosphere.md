@@ -35,15 +35,13 @@ In addition, we now face the realities of public surveillance and recognition te
 
 
 It is affirming of the risks of the Cybersphere when the media reported the same month that Time magazine honored Musk that electropollution from 5-G cell towers near airports interfered with altitude detection equipment needed to land safely in bad weather. AT&T and Verizon Communications must postpone their plans to roll out across the U.S. C-Band spectrum for 5G wireless services in early January, 2022, United Airlines Chief Executive Scott Kirby stated after a U.S. Senate Commerce Committee hearing, saying it could delay, divert or cancel about 4% of daily flights and impact hundreds of thousands of passengers.   
-                                                     https://www.reuters.com/business/aerospace-defense/us-airlines-warn-5g-wireless-could-cause-havoc-with-flights-2021-12-15) .
+                                                  https://www.reuters.com/business/aerospace-defense/us-airlines-warn-5g-wireless-could-cause-havoc-with-flights-2021-12-15) 
+.  AA fears 5G could affect 'wide range' of aircraft systems | 24 Dec 2021 | The FAA issued the broadened safety bulletin on Dec 23rd, outlining new concerns on how 5G networks could impact aviation while stating that it is working with telecom providers to ensure the two can "safely coexist.".
 
  Migratory birds are certainly not immune to such human-generated electrical interference of their geomagnetic and related neural pathways essential for navigation.
  Whales and other marine mammals rely on sonar for communication and navigation but they too are at risk from the disrupting consequences to marine life impacted by the military and commercial expansion of technology into the ocean via the Internet of Underwater Things (IoUT).  For details go to https://stop5ginternational.org/smart-ocean-impacts-of-technology-on-marine-life, where it is stated clearly that “Whereas wireless data transmission on land and in space relies primarily on radio waves (RF/Microwave radiation) and laser, these are less suited for underwater applications. In the ocean, sonar is most often used for carrying data. The Internet of Underwater Things will consist of underwater sensors that communicate with one another and with relay stations on the surface of the water. These stations will in turn communicate with satellites and/or ground-based 4G/5G infrastructure on land.”
 
 Every living cell and being has its own bioelectrical frequency and intensity of field maintaining homeostasis. Human-generated electrical fields and radiation, ionizing and non-ionizing, can disrupt this homoeostasis. This anthropogenic electropollution is contributing to the demise of insects and other creatures as well as affecting plant growth according to several research studies documented in my report on this major contemporary issue on my website, https://drfoxonehealth.com/post/electropollution-existential-threat-to-public-health-and-life-on-earth. . For more documentation visit https://ehtrust.org/science/bees-butterflies-wildlife-research-electromagnetic-fields-environment/
-
- We need no more crude demonstrations of the risks of electrical currents like Thomas Edison’s public frying of an elephant in 1903 whom he electrocuted to prove Nicolas Tesla’s alternating current was dangerous, a ruse to protect his own direct current business investments. Since then, various forms of electrical and electromagnetic radiation have been developed as bioweapons to kill insects, disperse crowds, and for healing and diagnostic purposes, from lasers and defibrillators to x-rays and magnetic resonance imaging. The precautionary and One Health principles applied to these medical developments should also be applied to telecommunication systems.
-
 
 The American Cancer Society’s posting (Microwaves, Radio Waves, and Other Types of Radiofrequency Radiation, May 31, 2016 ( https://www.cancer.org/cancer/cancer-causes/radiation-exposure.html).and noting that the International Agency for Research on Cancer has identified RF exposure as a possible carcinogen, emphasizes that the U.S. Environmental Protection Agency and the U.S. National Toxicology Program have not yet formally classified RF radiation as to its cancer-causing potential Also Physicians for Safe Technology. https://mdsafetech.org/environmental-and-wildlife-effects/ and World Health Organization. Electrohypersensitivity Fact Sheet http://www.who.int/peh-emf/publications/facts/fs296/en
 December 2020, NBC News reported, “‘Havana Syndrome’ likely caused by pulsed microwave energy, government study finds.” See this and the follow-up Dec. 24th 2021 Legal, financial fights mount as 'Havana Syndrome' goes ...https://www.nbcnews.com › politics › national-security.
@@ -51,6 +49,57 @@ December 2020, NBC News reported, “‘Havana Syndrome’ likely caused by puls
 
 
 In August,2021, a federal court ruled in favor of organizations and petitioners that sued the Federal Communications Commission (FCC) for NOT adequately protecting Americans from wireless radiation exposure. More recently non-profit groups petitioned the U.S. Health and Human Services Department (HHS) and Food and Drug Administration (FDA) to declare wireless radiation an “imminent” health hazard and start warning the public.
+
+We need no more crude demonstrations of the risks of electrical currents like Thomas Edison’s public frying of an elephant in 1903 whom he electrocuted to prove Nicolas Tesla’s alternating current was dangerous, a ruse to protect his own direct current business investments. Since then, various forms of electrical and electromagnetic radiation have been developed as bioweapons to kill insects, disperse crowds, and for healing and diagnostic purposes, from lasers and defibrillators to x-rays and magnetic resonance imaging. The precautionary principle applied to these medical developments should also be applied to telecommunication systems. Indeed, all such developments should be evaluated from a One Health perspective. (For details see The Concept of One Health Turns Global in 2021: How it was Born - Impakter  (https://impakter.com/concept-one-health-global-how-born/)
+
+
+For a classic examination of how electricity affects our lives for better and for worse, see the book by Arthur Firstenberg, The Invisible Rainbow: A History of Electricity and Life. AGB Press, Santa Fe NM 2017.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
