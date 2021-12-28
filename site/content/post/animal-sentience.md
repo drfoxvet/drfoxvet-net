@@ -122,9 +122,10 @@ The program bears the name of Brooks McCormick Jr., the Brooks Institute’s fou
 
  
 END NOTE CITATIONS
-END NOTE CITATIONS
 
-Johnathan Balcombe, Super Fly: The Unexpected Lives of the World's Most Successful Insects," Penguin Books.2021. Winner of the National Outdoor Book Award  
+
+Johnathan Balcombe, Super Fly: The Unexpected Lives of the World's Most Successful Insects," Penguin Books.2021. Winner of the National Outdoor Book Award  His award-winning book What a Fish Knows, Dr. Balcombe leaves no doubt that fish have feelings.  Efforts to protect them and their aquatic habitats are being promoted by non-profit organizations like Fish Feel ( www.fishfeel.org).  On the basis of several scientific studies ( Review of the Evidence of Sentience in Cephalopod Molluscs and Decapod Crustaceans, by  Jonathan Birch et al,  November 2021,  https://bit.ly/3DUgeTe) the U.K. government is extending coverage under the Animal Welfare (Sentience) Bill to include cephalopods and decapods ( octopuses, crabs and lobsters) 
+
 
 Marc Bekoff, https://www.psychologytoday.com/us/blog/animal-emotions/202112/spain-joins-other-nations-in-declaring-animals-are-sentient. He notes:  "As of November 2019, 32 countries have formally recognized non-human animal sentience. These are: Austria, Australia, Belgium, Bulgaria, Chile, Croatia, Cyprus, the Czech Republic, Denmark, Estonia, Finland, France, Germany, Greece, Hungary, Ireland, Italy, Latvia, Lithuania, Luxembourg, Malta, New Zealand, the Netherlands, Poland, Portugal, Romania, Spain, Slovakia, Slovenia, Sweden, Switzerland, and the United Kingdom..." A detailed table on the ways in which numerous countries view animal sentience and animal suffering can be seen in this summary titled "Animal rights by country or territory." See also by Marc Bekoff:
  
