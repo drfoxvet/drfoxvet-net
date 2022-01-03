@@ -16,6 +16,10 @@ In this largest ever, to date, DNA study of the frequency and distribution of 15
 The authors state: “Mixed breed dogs were more likely to carry a common recessive disease, whereas purebreds were more likely to be genetically affected with one, providing DNA-based evidence for hybrid vigor. The disease prevalence information we generated during this study is made available online (www.mybreeddata.com), as a free tool for breed and kennel clubs, breeders, as well as the veterinary and scientific community.”
 
  On May 8, 2018 the newly formed International Partnership for Dogs announced the launch of a new database providing guidance on genetic testing of dogs as part of the much -needed Harmonization of Genetic Testing of Dogs Initiative. For details including basic guides for dog owners on types of tests and testing information to aid veterinarians in advising clients go to www.dogwellnet.com
+
+A genetic analysis found 216 of 227 different dog breeds have levels of inbreeding that are "well above what would be considered safe for either humans or wild animal populations," said veterinarian Danika Bannasch, who led the study. Dogs of highly inbred breeds are predisposed to complex diseases including cancer and autoimmune diseases and have an average 24.4% more nonroutine veterinary visits than mixed breed dogs, the researchers reported. See  Bannasch, D., Famula, T., Donner, J. et al. The effect of inbreeding, body size and morphology on health in dog breeds. Canine Genet Epidemiol 8, 12 (2021). https://doi.org/10.1186/s40575-021-00111-4
+
+
 Every pure bred and “designer” puppy sold should come with a purchase agreement that includes the known list of genetic and related health problems that the particular breed and particular lineage may carry, the estimated veterinary costs for treating each condition and their probability of developing, plus an objective quality of life assessment score from zero to 5 stars
 (See Jonas Donner et al (2018) Frequency and distribution of 152 genetic disease variants in over 100,000 mixed breed and purebred dogs PLOS Genetics).
 
