@@ -55,6 +55,13 @@ Adapting to domestication should not lower animals’ quality of life physically
 
 Learning what and how animals express themselves and understand each other opens us to their realm of emotional intelligence, an invitation that is acceptable to those people who neither lack empathy and emotional intelligence, nor who believe that dogs, cats and other animals are simply instinctual automations devoid of feeling and self-awareness.(For more details, see M.W.Fox, Dog Body, Dog Mind.and Cat Body, Cat Mind, The Lyons Press, Guilford CT 2007, and  Michael A.Jawer and Marc S.Micozzi, The Spiritual Anatomy of Emotion. Park Street Press, Rochester VT 2009).
 
+SELF-AWARENESS IN ANIMALS
+
+Some animal psychologists and others contend that the mirror-test, where animals recognize that a mark has been placed on their faces, is the cardinal sign of self-awareness. Species who do react to such changes in their mirror-image include humans and the great apes, dolphins, elephants and magpies. Ethologist Jonathan Balcombe in his book Super Fly cites research indicating that some ant species also pass the mirror test. 
+
+
+I have long contended that self-awareness in various species cannot be decided on the basis of this mirror-test. Many people living with cats and dogs will attest to the fact that after initially reacting to their mirror-image, often as though it were another animal, their animals simply ignore their reflections. This is evidence to me that they know it is not another animal but themselves that they are seeing. Some cats will play games, stalk their image and look behind the mirror. 
+
 ANIMAL FEELINGS AND FEELING FOR ANIMALS
 
 
