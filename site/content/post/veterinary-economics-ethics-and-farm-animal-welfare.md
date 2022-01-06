@@ -44,6 +44,23 @@ I see grounds for hope when veterinary schools develop and offer degree programs
 
 Real progress in veterinary and human medicine will come not in correcting the problems of dysfunctional and often over-capitalized, energy-consuming, life and nutrition-degrading, and environmentally damaging systems and industries, but in client education, and in the creative anarchism and paradigm shift toward a more holistic, integrative approach to health care and maintenance, rather than profiting from treating disease and suffering, and in the process simply preserving the status quo. Informed consumers vote with their dollars when there is freedom of choice that monopolistic oligopolies abhor. For companion animal veterinary business enterprises to have to sell products and services that are at best ethically questionable and at worse do more harm than good, in order to stay in business, would be an unethical pursuit for any reasonably intelligent and rational life form.
 
+Californians’ moral outrage and loving concern for animals was evident in their voting approval of Proposition 12 by a 2-1 ratio in November 2018 which was to take effect Jan 1st 2022, requiring that breeding pigs (sows), laying hens and veal calves be given enough space to stand and turn around. This reminds me of the response by the late animal science professor, Dr. Stanley Curtis, when asked at a Senate subcommittee hearing (where I was also testifying to put an end to being raised by the veal industry in narrow crates) if he thought veal calves actually needed to turn around. His response” We need to do more research to be sure.”
+
+
+Implementation of the humane initiative from California been blocked by a lawsuit filed by the CA Groceries and restraint Associations, CA Hispanic Chambers of Commerce, CA Retailers Association and meat processor Kruse & Sons who are seeking a 28-month delay until final regulations for enforcement of rules are officially adopted according to Associated Press reporters Scott McFetridge and Charlie Neibergall in their article Farm-animal Law Prompts Lawsuit (Star Tribune, Dec 25th 2021).This reminds me of William Shakespeare’s quips about “The pangs of despised love, the law's delay, The insolence of office and the spurns. That patient merit of the unworthy takes.” 
+ 
+
+The European Union is now considering a ban to prohibit the use of cages for laying hens, rabbits, broiler breeders and laying hens, quail, ducks, geese, farrowing crates for sows, sow stalls and individual calf pens. The Federation of Veterinarians of Europe has called for an “urgent” shift away from sow farrowing crates across Europe, now banned in Norway, Sweden and Switzerland.
+
+
+Push-back by vested interests in the U.S. against efforts to improve the welfare of commercially exploited animals, arguing that changes would increase consumer costs, is now becoming ludicrous with President Joe Biden proposing in 2022 to give$1 billion to support smaller, independent meat and poultry producers whose profit-margins are shrinking. Monopolistic control by four meat and poultry processors causing price distortions (Tyson Foods, Cargill Meat Solutions (Excel), JBS USA (Swift) and National Beef) are profiting them royally while the market costs for consumers of meat and poultry are sky-rocketing.
+ 
+But this proposed $1 billion subsidy to help consumers fight price hikes for meat is contrary to the initiatives needed to address climate change, consumer health and animals’ rights and welfare; and as a vegetarian I find the cost of other basic food commodities rising no less than meat. Democracy is better served when political leaders take the bull by the horns and do not chicken out, cow-tow or are ham-strung and hog tied to major donors, especially Big Ag and Big Pharm. Every state and nation need government lawmakers who eschew pork barrel politics and not be buttered-up by hog-wild lobbyists to pig out at the corporate trough and beef up their election campaign coffers. Most need to bone up on the science of animal sentience (visit https://drfoxonehealth.com/post/animal-sentience/) and our collective duty of care.
+
+
+
+
+
 ADDENDUM
 
 FARMED ANIMAL WELFARE CONCERNS: A SYNOPSIS
