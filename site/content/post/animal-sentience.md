@@ -55,6 +55,13 @@ Adapting to domestication should not lower animals’ quality of life physically
 
 Learning what and how animals express themselves and understand each other opens us to their realm of emotional intelligence, an invitation that is acceptable to those people who neither lack empathy and emotional intelligence, nor who believe that dogs, cats and other animals are simply instinctual automations devoid of feeling and self-awareness.(For more details, see M.W.Fox, Dog Body, Dog Mind.and Cat Body, Cat Mind, The Lyons Press, Guilford CT 2007, and  Michael A.Jawer and Marc S.Micozzi, The Spiritual Anatomy of Emotion. Park Street Press, Rochester VT 2009).
 
+ANIMALS’ RIGHTS: LIBERATION FROM LEGAL LIMBO
+Aside from some animal welfare, anti-cruelty and endangered species protection laws, animals are still largely regarded by our judicial system as being objects of property. The concept and evidence of their sentience is slowly making progress in the collective psyche of society today. Now the Non-human Rights Project has filed a writ of habeas corpus in New York state’s Court of Appeals which has agreed to hear the case involving a solitary captive elephant named Happy at the Bronx zoo. She has spent more than 40 years in captivity and should be placed in an open sanctuary with eventual social contact with other elephants also rescued from extreme confinement and social deprivation.
+ 
+
+Habeas corpus petitions have only been filed on behalf of humans being held against their will and this case will raise the issue as to whether Happy is a “thing” or “person” with certain rights and interests,, writes Julie Knopp with Compassionate action for Animals in Minnesota in her article “Happy the Elephant is Giving Animals Their Day in Court”, published in the Star Tribune, Dec 31st 2021. She underscores the fact that factory farmed animals live under worse conditions than this elephant and that their welfare needs to be addressed as well as their negative environmental impact of industrial animal agriculture and its risks to human health especially from zoonotic and food-borne illnesses.
+
+
 SELF-AWARENESS IN ANIMALS
 
 Some animal psychologists and others contend that the mirror-test, where animals recognize that a mark has been placed on their faces, is the cardinal sign of self-awareness. Species who do react to such changes in their mirror-image include humans and the great apes, dolphins, elephants and magpies. Ethologist Jonathan Balcombe in his book Super Fly cites research indicating that some ant species also pass the mirror test. 
