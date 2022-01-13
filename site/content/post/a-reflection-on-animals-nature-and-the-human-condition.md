@@ -56,6 +56,7 @@ NOT BLAMING NATURE FOR NATURAL DISASTERS
 
 Hazards such as floods, droughts and heatwaves might be natural, but disasters are human-made, argue disaster researcher Emmanuel Raju, sustainability researcher Emily Boyd and climate scientist Friederike Otto. Disasters occur when hazards meet vulnerability — such as when the most vulnerable groups of people are pushed to live in hazardous areas. The authors argue that “a discourse in which the role of human activity in disasters is clearly communicated — as opposed to blaming nature or the climate — will be more conducive to a proactive, equitable and ultimately successful approach to reducing impacts of disasters”. Raju, E., Boyd, E. & Otto, F. Stop blaming the climate for disasters. Commun Earth Environ 3, 1 (2022). https://doi.org/10.1038/s43247-021-00332-2 
 
+Ocean warming is escalating because of human-emitted greenhouse gases and this provides more energy for tropical storms now increasing in frequency, intensity and duration. ( Cheng, L., Abraham, J., Trenberth, K.E. et al. Another Record: Ocean Warming Continues through 2021 despite La Niña Conditions. Adv. Atmos. Sci. 2022). 
 
 
 CLIMATE CHANGE AND THE DEMISE OF REPTILES AND AMPHIBIANS
