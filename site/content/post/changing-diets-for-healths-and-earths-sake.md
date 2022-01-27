@@ -4,7 +4,8 @@ date: 2019-02-27T19:58:05.400Z
 tags:
   - Agriculture
   - Farmed Animals
-  - Food
+  - Public Health
+  - Environment
 ---
 We are slow to accept that the human population, coupled with its non-sustainable industrial and primitive agricultural practices, dietary habits and other environmentally destructive activities, has become a planetary infestation for which the immediate solutions are in the realm of self-control especially of our breeding and feeding behaviors. If the forces of natural selection with attendant disease, starvation and suffering, as well as internecine strife and wars, regional and international, over access to and control of natural resources, are to be somewhat alleviated for the good of future generations, then this generation must begin to squarely address these interconnected issues and implement the necessary changes. Some of these are identified in this review to give grounds for hope of a viable future.
 
@@ -109,6 +110,20 @@ Eating organic, pasture-raised livestock can alleviate chronic health problems a
  Industrialized nations also need to provide more in-field veterinary services to help improve livestock health and to prevent the spread of ‘transboundary’ diseases in developing countries since, according to veterinarian Dr. Peter Roeder (20) “There is an intimate relationship between ‘homeland security’ and international health and development issues. Dr. Roeder played a key role in the final stages of eliminating Rinderpest (cattle plague) from the world that has devastated livestock and wildlife for centuries .He cautions and documents how more intensive, industrial-scale livestock and poultry production systems, currently expanding in developing countries to meet the increasing demand for meat, milk and other animal foods are contributing to the emergence and spread of epidemic diseases at an increasing rate, noting that: Infectious bovine rhinotracheitis, once a sexually transmitted infection, evolved in feedlot beef cattle in the U.S. to become a severe respiratory disease: Intensification of goat production in the Netherlands helped make Q fever a major health issue: Intensification of duck production in China and S.E. Asia set the conditions for the avian flu virus H5N1HPAI to become a global pandemic: Intensification of dairy production in Saudi Arabia created difficulties in controlling Foot and mouth disease. He also documents how multiple factors associated with intensive production systems contribute to immune system impairment and increased susceptibility to disease in poultry, beef and dairy cattle and pigs---and we can also add fish in aquaculture.
 
 Waste is sinful, even in times of plenty. Food waste in developed countries (21)) from marketing and personal household practices is indeed scandalous. The amount exceeds 8 million tons in the U.K. and 40 million tons in the U.S. annually. Much of this waste, still suitable for human consumption, could, with appropriate management and processing, be profitably processed into feed for poultry and pigs along the lines of model legislation in Japan which directs local authorities to recycle a portion of waste food into animal feed.
+
+ADDENDA Jan 2022
+
+ANTIBIOTIC OVERUSE AND MISUSE CREATING GLOBAL HEALTH CRISIS
+More than 1.2 million people died in 2019 of infections from antibiotic-resistant bacteria, according to a global study of 204 countries. The burden was highest in sub-Saharan Africa and South Asia, with children under 5 the most at risk. Another five million people died in 2019 from diseases in which antibiotic-resistant bacteria had a role. For comparison, researchers estimate that, in the same year, AIDS caused 860,000 deaths and malaria caused 640,000.Read more: Global burden of bacterial antimicrobial resistance in 2019: a systematic analysis By Antimicrobial Resistance Collaborators  The Lancet, Open Access,  Published: January2022 DOI:https://doi.org/10.1016/S0140-6736(21)02724-0 
+
+
+Over 40 years ago I sought to draw government attention, along with other concerned scientists, physicians and veterinarians, to the inclusion of antibiotics in farmed animals’ feed used liberally to boost productivity and prevent the bacterial disease to which animals were more susceptible being raised in overcrowded factory farms and feedlots which were spreading globally under the delusion of progress, often funded by the World Bank and international aid and development organizations. There was increasing evidence of harmless bacteria developing resistance to antibiotics and even passing on this resistance to more harmful bacteria, thus reducing the effectiveness of such drugs when called for to treat sick animals and people. Now we are paying the price.
+
+PLANT-BASED DIETS TO HELP RESTORE NATURE AND REDUCE EMISSIONS
+
+The prestigious medical journal The Lancet has taken a leading role in promoting dietary choices that are better for our own health and for the environment and other species, wild and domesticated, with whom we share this planet which we are now rapidly destroying. Many people are now adopting the EAT-Lancet diet. For the detailed report go to  https://eatforum.org/learn-and-discover/the-planetary-health-diet/ and  https://eatforum.org/eat-lancet-commission/eat-lancet-commission-summary-report/
+Scientists have now determined that if high-income countries were to adopt this diet the energy savings and carbon-sequestering would help significantly reduce climate change/global warming and loss of biodiversity. Adopting a more plant-based diet could give rich countries a “double climate dividend” of lower emissions and more land for capturing carbon. (See Dietary change in high-income nations alone can lead to substantial double climate dividend by Zhongxiao Sun et al, NATURE FOOD VOL 3 JANUARY 2022 p. 29–37 www.nature.com/natfood36).
+
 
 ##  References
 
