@@ -119,9 +119,13 @@ More than 1.2 million people died in 2019 of infections from antibiotic-resistan
 
 Over 40 years ago I sought to draw government attention, along with other concerned scientists, physicians and veterinarians, to the inclusion of antibiotics in farmed animals’ feed used liberally to boost productivity and prevent the bacterial disease to which animals were more susceptible being raised in overcrowded factory farms and feedlots which were spreading globally under the delusion of progress, often funded by the World Bank and international aid and development organizations. There was increasing evidence of harmless bacteria developing resistance to antibiotics and even passing on this resistance to more harmful bacteria, thus reducing the effectiveness of such drugs when called for to treat sick animals and people. Now we are paying the price.
 
+It is time to prohibit the pharmaceutical industry’s wholesale, global marketing of all production-enhancing drugs to farmed animals because of various adverse effects on animals’ welfare and the environment.
+
+
 PLANT-BASED DIETS TO HELP RESTORE NATURE AND REDUCE EMISSIONS
 
 The prestigious medical journal The Lancet has taken a leading role in promoting dietary choices that are better for our own health and for the environment and other species, wild and domesticated, with whom we share this planet which we are now rapidly destroying. Many people are now adopting the EAT-Lancet diet. For the detailed report go to  https://eatforum.org/learn-and-discover/the-planetary-health-diet/ and  https://eatforum.org/eat-lancet-commission/eat-lancet-commission-summary-report/
+
 Scientists have now determined that if high-income countries were to adopt this diet the energy savings and carbon-sequestering would help significantly reduce climate change/global warming and loss of biodiversity. Adopting a more plant-based diet could give rich countries a “double climate dividend” of lower emissions and more land for capturing carbon. (See Dietary change in high-income nations alone can lead to substantial double climate dividend by Zhongxiao Sun et al, NATURE FOOD VOL 3 JANUARY 2022 p. 29–37 www.nature.com/natfood36).
 
 
