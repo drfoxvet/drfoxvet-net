@@ -119,7 +119,7 @@ More than 1.2 million people died in 2019 of infections from antibiotic-resistan
 
 Over 40 years ago I sought to draw government attention, along with other concerned scientists, physicians and veterinarians, to the inclusion of antibiotics in farmed animals’ feed used liberally to boost productivity and prevent the bacterial disease to which animals were more susceptible being raised in overcrowded factory farms and feedlots which were spreading globally under the delusion of progress, often funded by the World Bank and international aid and development organizations. There was increasing evidence of harmless bacteria developing resistance to antibiotics and even passing on this resistance to more harmful bacteria, thus reducing the effectiveness of such drugs when called for to treat sick animals and people. Now we are paying the price.
 
-It is time to prohibit the pharmaceutical industry’s wholesale, global marketing of all production-enhancing drugs to farmed animals because of various adverse effects on animals’ welfare and the environment.
+It is time to prohibit the pharmaceutical industry’s wholesale, global marketing of all production-enhancing drugs to farmed animals because of various adverse effects on animals’ welfare and the environment as well as consumer risks.
 
 
 PLANT-BASED DIETS TO HELP RESTORE NATURE AND REDUCE EMISSIONS
