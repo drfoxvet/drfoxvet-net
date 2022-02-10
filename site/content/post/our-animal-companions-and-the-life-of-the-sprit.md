@@ -2,7 +2,7 @@
 title: Our Animal Companions and the Life of the Sprit
 date: 2022-02-10T22:15:26.439Z
 tags:
-  - Spiritual
+  - Cats
 ---
         OUR ANIMAL COMPANIONS AND THE LIFE OF THE SPIRIT
 
@@ -72,14 +72,8 @@ An overarching aspect of all the accounts that I have received on the subject of
 
 different the world would be if we all embraced every living being with the same respect and devotion that we see between so many people and their animal companions. 
 
-Since animals clearly possess powers of empathy and of remote sensing that we are just beginning  to recognize and accept, we should all ponder on what the impacts may be 
+Since animals clearly possess powers of empathy and of remote sensing that we are just beginning  to recognize and accept, we should all ponder on what the impacts may be on other animals when whales are being harpooned, elephants chained and tortured for the circus, and other creatures made to suffer under the cruel hands of human ignorance and domination.
 
-on other animals when whales are being harpooned, elephants chained and tortured for the circus, and other creatures made to suffer under the cruel hands of human ignorance and domination.
-
-When we treat other living beings,--- as many people do their animal companions,---with respect and love, they will show us devotion in return, and flourish and benefit us in 
-
-countless ways. This spiritual aspect of affection has profound implications when it comes to our physical health and emotional well-being. This is why animals can be our 
-
-healers  and teachers, as well as our best friends. The bond betwee people and their dogs and cats is as much a spiritual connection as it is an emotional one. The more we attend to the spirit, and accept that this realm is more real than imagined, then indeed we may bring  Heaven down to where Earth abides.
+When we treat other living beings,--- as many people do their animal companions,---with respect and love, they will show us devotion in return, and flourish and benefit us in countless ways. This spiritual aspect of affection has profound implications when it comes to our physical health and emotional well-being. This is why animals can be our healers  and teachers, as well as our best friends. The bond between people and their dogs and cats is as much a spiritual connection as it is an emotional one. The more we attend to the spirit, and accept that this realm is more real than imagined, then indeed we may bring  Heaven down to where Earth abides.
 
 
