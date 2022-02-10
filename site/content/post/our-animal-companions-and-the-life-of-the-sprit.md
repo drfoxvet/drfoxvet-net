@@ -2,7 +2,7 @@
 title: Our Animal Companions and the Life of the Sprit
 date: 2022-02-10T22:15:26.439Z
 tags:
-  - Cats
+  - Dogs
 ---
         OUR ANIMAL COMPANIONS AND THE LIFE OF THE SPIRIT
 
