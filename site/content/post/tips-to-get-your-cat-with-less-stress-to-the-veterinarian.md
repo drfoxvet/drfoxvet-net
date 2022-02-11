@@ -23,3 +23,8 @@ Bartonellosis: A zoonosis hidden in plain sight. .https://www.avma.org › javma
 
 More and more veterinarians make house-calls, often with an assistant as needed on many occasions, and this may be your alternative choice for your cat which you may wish to explore.
 
+Cats need periodic veterinary tests for parasites and for cvaccinations especially when new cats are brought into the home and most especially when cats are allowed to roam outdoors. Otherwise they may infect other cats and humans in the home and spread rabies and other diseases into the community.
+It is also prudent to have your cat microchipped for identification if lost and rescued.
+
+
+
