@@ -2,6 +2,7 @@
 title: 'Animal Rights, Human Rights And Wrongs'
 date: 2019-02-27T19:37:41.553Z
 tags:
+  - Ethics
   - Ethical Issues
   - Social Issues
   - Spiritual Issues
@@ -32,4 +33,27 @@ Africa’s apartheid did not result in economic ruin. On the contrary, human pro
 
    The issue of racism raises a parallel concern that has been termed specieism, where, for reasons such as custom or sentimentality, some animals are treated preferentially over others of the same or different species, and yet in essence are similar in terms of their sentience and capacity to suffer. Under the democratic spirit of a rising civil society world wide, the divisiveness and injustices of racism, tribalism, caste/class-ism, sexism, and other forms of discrimination are being more effectively addressed and eradicated. Our chauvinistic attitude toward other animals, aptly termed speciesism, will eventually become a thing of the past as we give equal and fair consideration to all species and individuals, human and non-human alike. One reason to do so is actually economic, because a healthy society depends upon a healthy animal population, as it does upon a healthy environment.
 
-   In conclusion, animal rights is now on the social agenda of civil society, and all who care more about the quality of life of fellow creatures than for their value as a means to exclusively human ends are the harbingers of what I see as a Golden Age to come, where the Golden Rule ---of treating all living beings as we would have them treat us---usurps the rule of gold.
+In 2021 a nonprofit group called Nonhuman Rights Project filed a writ of habeas corpus in the New York State Court of Appeals on behalf of a captive elephant at the Bronx Zoo named Happy. Happy has spent more than 40 years in captivity, and should be placed in an open sanctuary with eventual social contact with other elephants rescued from extreme confinement and social deprivation.
+
+
+
+Habeas corpus petitions have only been filed thus far on behalf of humans being held against their will. This case, which the court has now agreed to hear, will raise the issue of whether Happy is a "thing" or a "person" with certain rights, writes Julie Knopp with Compassionate Action for Animals. In her article "Happy the Elephant Is Giving Animals Their Day in Court" (Star Tribune, Dec. 31/21), Knopp underscores the fact that factory farmed animals live under even worse conditions than this elephant, and that their welfare needs to be addressed -- as well as the negative environmental impact of industrial animal agriculture and its risks to human health from zoonotic and food-borne illnesses.
+
+
+
+In 2018, Californians' moral outrage and loving concern for animals was evident in their approval of Proposition 12 by a 2-1 ratio. The law, which was to take effect Jan. 1, 2022, requires that breeding pigs (sows), laying hens and veal calves be given enough space to stand and turn around. However, implementation of this humane initiative has been blocked by a lawsuit filed by the California Grocers Associations, the California Restaurant Association, California Hispanic Chambers of Commerce, California Retailers Association and meat processor Kruse & Son Inc. The plaintiffs are seeking a 28-month delay until final regulations for enforcement of the rules are officially adopted, according to reporter Scott McFetridge. (Full story: Associated Press, Dec. 25/21)
+
+
+
+Pushing back against efforts to improve the welfare of commercially exploited animals, nonprofit organizations like the Humane Farming Association claim that changes would increase consumer costs. In reality, it is the monopolistic control by four giant meat and poultry processors -- Tyson Foods, Cargill, JBS and National Beef Packing -- that are causing price distortions. These companies are profiting royally while consumer prices for meat and poultry are skyrocketing. In response, President Joe Biden is proposing to give $1 billion to support small, independent meat and poultry producers whose profit margins are shrinking.
+
+This is now becoming ludicrous. This proposed $1 billion subsidy is contrary to the initiatives needed to address climate change, consumer health and animals' rights and welfare. And as a vegetarian, I find that the costs of other basic food commodities are rising just as much as meat.
+
+
+
+Democracy is better served when political leaders take the bull by the horns and do not chicken out, duck the issues or get hamstrung and hog-tied to major donors, especially Big Ag and Big Pharm. All states and nations need lawmakers who eschew pork-barrel politics, ignoring invitations from hog-wild lobbyists to beef up their campaign coffers by pigging out at the corporate trough.
+
+
+
+Lawmakers and citizens alike need to bone up on the science of animal sentience (visit drfoxonehealth.com/post/animal-sentience) and then take a gander at our collective duty of care. 
+In conclusion, animal rights is now on the social agenda of civil society, and all who care more about the quality of life of fellow creatures than for their value as a means to exclusively human ends are the harbingers of what I see as a Golden Age to come, where the Golden Rule ---of treating all living beings as we would have them treat us---usurps the rule of gold.
