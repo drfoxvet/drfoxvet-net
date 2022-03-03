@@ -4,7 +4,7 @@ title: >-
   Life on Earth?
 date: 2020-01-17T20:08:01.155Z
 tags:
-  - Environment
+  - Public Health
 ---
 (Provisional draft to be edited and updated)
 
