@@ -57,3 +57,10 @@ Democracy is better served when political leaders take the bull by the horns and
 
 Lawmakers and citizens alike need to bone up on the science of animal sentience (visit drfoxonehealth.com/post/animal-sentience) and then take a gander at our collective duty of care. 
 In conclusion, animal rights is now on the social agenda of civil society, and all who care more about the quality of life of fellow creatures than for their value as a means to exclusively human ends are the harbingers of what I see as a Golden Age to come, where the Golden Rule ---of treating all living beings as we would have them treat us---usurps the rule of gold.
+
+There was good news in January 2022 ( according to the Veterinary Record, 8/12 Feb. 2022, p 95) for English bulldogs and Cavalier king Charles spaniels in Norway. The Norwegian Society for the Protection of Animals won its case against the breeding of these dogs which is now prohibited. This is based on the stipulation in Norway's Animal Welfare Act that which states that animals may not be bred from if their offspring can be expected to inherit health problems. 
+This same principle holds for many breeds of dogs and cats as well as other species marketed as pets.
+
+ Farmed animals could also suffer from inherited health problems as a consequence of genetic selection for very rapid growth and productivity ( of eggs, milk). This issue needs to be addressed and animal welfare and health take precedence over productivity and profitability.
+ 
+The Norwegian case, which essentially advocates a right not to exist, contrasts the "right to life" of endangered and threatened wildlife under the Rights of Nature movement now surfacing in ever more lawsuits in U.S. communities and around the world. 
