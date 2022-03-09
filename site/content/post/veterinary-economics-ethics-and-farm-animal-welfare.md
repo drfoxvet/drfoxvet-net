@@ -106,6 +106,8 @@ It is notable that the United Nations Environment Programme’s international pa
 As the global population surges towards a predicted 9.1 billion people by 2050, western tastes for diets rich in meat and dairy products are unsustainable, says the report. It states: "Impacts from agriculture are expected to increase substantially due to population growth increasing consumption of animal products. Unlike fossil fuels, it is difficult to look for alternatives: people have to eat. A substantial reduction of impacts would only be possible with a substantial worldwide diet change, away from animal products."  Agriculture, particularly meat and dairy products, accounts for 70% of global freshwater consumption, 38% of the total land use and 19% of the world's greenhouse gas emissions, says the report.
 Produce from organically certified and free-range animals, are generally more humanely derived, and with less environmental harm and drug-dependence than similar produce from CAFOs.
 
+On January 28th 2022 the European Union implemented a ban on the use of antibiotics for prophylactic purposes especially by pig producers. In June 2021 the European Commission responded to the End the Cage citizen's campaign to introduce legislation by 2023 to prohibit sow stalls and farrowing crates and raising laying hens, rabbits, pullets, broiler breeders, layer breeders, quail, ducks and geese and ban force feeding ducks and geese to produce foie gras.
+
 References
 
 1. British Veterinary Association, Obstacles and welfare, Veterinary Record  2009, 165: p.513. See also the Farm animal Welfare council’s opinion on the welfare needs of dairy cows on p 514 of same journal edition, and the Food and Agriculture Organization’s report ‘Capacity building to implement good animal welfare practices, www.fao.org/ag/aginfo/resources/en/pubs_awelf.html).
@@ -118,7 +120,9 @@ References
 8. .LaCroix, Jeffrey A. Is it time for limited licensure? J. Am Vet Med Assoc. 235: 1401, 2009
 9. Fox, Michael W. Bringing Life to Ethics: Global Bioethics for a Humane Society Albany, NY, State University of New York Press 2001
 
-POSTSCRIPT 
+POSTSCRIPTS 
+
+
 Veterinarians’ Well-being: At Risk from Empathy?
 According to a Feb 13th 2015 Centers for Disease Control & Prevention Weekly Morbidity and Mortality Report Vol 64, p 131-132 by Randall J. Nett and associates, “Veterinarians are believed to be at increased risk for suicide compared with the general population.” They sent out a questionnaire that “asked respondents about their experiences with depression and suicidal behavior, and included standardized questions from the Kessler-6 psychological distress scale that assesses for the presence of serious mental illness…. Approximately 6.8% of male and 10.9%  of female respondents were characterized as having serious psychological distress… compared with 3.5% of male and 4.4% of female U.S. adults, respectively.” 
 
