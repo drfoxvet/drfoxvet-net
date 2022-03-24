@@ -57,6 +57,38 @@ Push-back by vested interests in the U.S. against efforts to improve the welfare
  
 But this proposed $1 billion subsidy to help consumers fight price hikes for meat is contrary to the initiatives needed to address climate change, consumer health and animals’ rights and welfare; and as a vegetarian I find the cost of other basic food commodities rising no less than meat. Democracy is better served when political leaders take the bull by the horns and do not chicken out, cow-tow or are ham-strung and hog tied to major donors, especially Big Ag and Big Pharm. Every state and nation need government lawmakers who eschew pork barrel politics and not be buttered-up by hog-wild lobbyists to pig out at the corporate trough and beef up their election campaign coffers. Most need to bone up on the science of animal sentience (visit https://drfoxonehealth.com/post/animal-sentience/) and our collective duty of care.
 
+FROM ANIMAL DOCTOR SYNICATED NEWSPAPER COLUMN April 2022
+PUTTING AN END TO CRUEL ANIMAL FACTORY FARMS
+By Dr. Michael W. Fox 
+
+Consumers and producers of farmed animal products---meats, eggs and dairy---along with markets are responding to the documented animal and public health, animal welfare and environmental concerns associated with intensive factory farm systems, so  called CAFOs-confined/concentrated animal feeding operations. 
+
+The Global Animal Partnership is one of the largest animal welfare food labeling programs in North America. For details visit. Global Animal Partnership: Animal Welfare Food Labeling ...https://globalanimalpartnership.org
+
+Look for their label, “Animal Welfare Certified” on any animal products you purchase and also on pet foods as per veterinarian Dr. Bob Goldstein’s Wisdom dog foods and treats. Our dog relished his Turkey kibble recipe which smells delectable and which I can feed our dog in good conscience.( For details visit www.earthanimal.com).
+Devatha P. Nair March 15, 2022 in a posting on Sentient media writes:
+
+
+  Emissions from factory farms in the United States now cause more deaths than traditional polluting industries such as coal-fired plants, with air pollution coming from agriculture accounting for 17,900 deaths every year. And yet, factory farming is one of the least regulated industries by the Environmental Protection Agency (EPA).
+
+
+Most farms are currently protected by an amnesty deal that protects the industry’s biggest players from any meaningful enforcement of environmental protection laws. The inability of the EPA to regulate the livestock industry led to 24 advocacy organizations filing a legal petition to enforce federal air pollution laws against high polluting farms, which the agency has refused to do for nearly two decades. The groups are asking the EPA to stop giving factory farms a free pass to pollute and start doing more to protect communities and the environment.” For more details go to Most Factory Farms Have ‘Free Pass’ to Pollute the Environment (sentientmedia.org)
+
+Collateral Damage: How Factory Farming Drives Up the Use of Toxic Agricultural Pesticides: A report from The Center for Biological Diversity and World Animal Protection.
+
+•	This new report analyses the use of six common pesticides sprayed on crops used for  factory-farmed pig, poultry and cattle feed.
+•	According to the report, 235 million pounds of pesticides were used on corn and soybean crops in 2018.
+•	All of the pesticides and herbicides listed in the report threaten the flora and fauna of the ecosystems surrounding the crops they are used on, the authors assert.For details go to WAP_Collateral_Damage_Report_02_04_22_R3.pdf (dkt6rvnu67rqj.cloudfront.net)
+
+
+The Animal Welfare Act, which sets minimum standards for animals used in zoos or research or sold as pets, specifically exempts animals raised for food. The Humane Methods of Slaughter Act and the 28-Hour Law (the latter which covers farmed animals in transport) are weakly enforced, and both exempt poultry, which make up 98 percent of US land animals raised for food.
+
+
+ As avian flu spreads through the poultry industry in 2022, millions of broiler chickens, laying hens and turkeys are being culled en masse. Veterinarians are among those demanding an end to some of the ‘cruelest’ killing methods such as ventilation shutdown causing death by suffocation and hyperthermia. See The Guardian: ‘They’re Cooking Them Alive’: Calls to Ban ‘Cruel’ Killing Methods on US Farms:
+
+
+Factory farmed animals suffer from inherited health problems as a consequence of genetic selection for very rapid growth (for more flesh/meat and fat) and productivity ( of eggs, milk). This issue, which I raised in my book Farm Animals: Husbandry, Behavior, and veterinary Practice ( Viewpoints of a Critic), University Park Press Baltimore MD 1984, is at last beginning to be addressed since animal welfare and health should take precedence over productivity and profitability. The Global Animal Partnership, an animal welfare certifier, endorsed by Amazon.com’s Whole Foods, is setting new standards for broiler chicken producers setting new rules for breeding programs to begin in 2016 to reduce the adverse health consequences of selective breeding for accelerated growth.
+
 
 
 
