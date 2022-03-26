@@ -63,6 +63,11 @@ At best, TNR/TRVR cat colonies may indirectly help reduce stray and feral breedi
 
 Those TNR programs that provide proper care in adoption-promoting cat sanctuaries, such as indoor-outdoor, complex-environment, group-housing facilities and in closed / “island” colonies on some farms, horse barns, well fenced warehouses and even prisons, may be acceptable from a veterinary bioethics perspective: But with the proviso that all cats are fed on a daily basis and are rejected as colony members if they test positive for feline immunodeficiency virus and feline leukemia, unless the colony is specifically for such afflicted felines.
 
+CATS, TNVR & RABIES
+In their review article “Rabies Prevention and Management of Cats in the Context of Trap, Neuter, Vaccinate, Release Programs”, veterinarians and scientists Allison D. Roebling, MPH, DVM, Dana Johnson, DVM, Jesse D. Blanton, MPH, Michael Levin, PhD, Dennis Slate, PhD, George Fenwick, PhD ,and Charles E. Rupprecht  PhD summarize their findings as follows::
+“Domestic cats are an important part of many Americans’ lives, but effective control of the 60–100 million feral cats living throughout the country remains problematic. Although Trap-Neuter-Vaccinate-Return (TNVR) programs are growing in popularity as alternatives to euthanizing feral cats, their ability to adequately address disease threats and population growth within managed cat colonies is dubious. Rabies transmission via feral cats is a particular concern as demonstrated by the significant proportion of rabies postexposure prophylaxis associated with exposures involving cats. Moreover, TNVR has not been shown to reliably reduce feral cat colony populations because of low implementation rates, inconsistent maintenance, and immigration of unsterilized cats into colonies. For these reasons, TNVR programs are not effective methods for reducing public health concerns or for controlling feral cat populations. Instead, responsible pet ownership, universal rabies vaccination of pets, and removal of strays remain integral components to control rabies and other diseases.” (Citation from Zoonoses Public Health. 2014 Jun; 61(4): 290–296. Published online 2013 Jul 17. doi: 10.1111/zph.12070)
+
+
 SATISFYING CATS’ DRIVE TO HUNT
 
 
