@@ -45,15 +45,12 @@ Real progress in veterinary and human medicine will come not in correcting the p
 
 Californians’ moral outrage and loving concern for animals was evident in their voting approval of Proposition 12 by a 2-1 ratio in November 2018 which was to take effect Jan 1st 2022, requiring that breeding pigs (sows), laying hens and veal calves be given enough space to stand and turn around. This reminds me of the response by the late animal science professor, Dr. Stanley Curtis, when asked at a Senate subcommittee hearing (where I was also testifying to put an end to being raised by the veal industry in narrow crates) if he thought veal calves actually needed to turn around. His response” We need to do more research to be sure.”
 
-
 Implementation of the humane initiative from California been blocked by a lawsuit filed by the CA Groceries and restraint Associations, CA Hispanic Chambers of Commerce, CA Retailers Association and meat processor Kruse & Sons who are seeking a 28-month delay until final regulations for enforcement of rules are officially adopted according to Associated Press reporters Scott McFetridge and Charlie Neibergall in their article Farm-animal Law Prompts Lawsuit (Star Tribune, Dec 25th 2021).This reminds me of William Shakespeare’s quips about “The pangs of despised love, the law's delay, The insolence of office and the spurns. That patient merit of the unworthy takes.” 
- 
 
 The European Union is now considering a ban to prohibit the use of cages for laying hens, rabbits, broiler breeders and laying hens, quail, ducks, geese, farrowing crates for sows, sow stalls and individual calf pens. The Federation of Veterinarians of Europe has called for an “urgent” shift away from sow farrowing crates across Europe, now banned in Norway, Sweden and Switzerland.
 
-
 Push-back by vested interests in the U.S. against efforts to improve the welfare of commercially exploited animals, arguing that changes would increase consumer costs, is now becoming ludicrous with President Joe Biden proposing in 2022 to give$1 billion to support smaller, independent meat and poultry producers whose profit-margins are shrinking. Monopolistic control by four meat and poultry processors causing price distortions (Tyson Foods, Cargill Meat Solutions (Excel), JBS USA (Swift) and National Beef) are profiting them royally while the market costs for consumers of meat and poultry are sky-rocketing.
- 
+
 But this proposed $1 billion subsidy to help consumers fight price hikes for meat is contrary to the initiatives needed to address climate change, consumer health and animals’ rights and welfare; and as a vegetarian I find the cost of other basic food commodities rising no less than meat. Democracy is better served when political leaders take the bull by the horns and do not chicken out, cow-tow or are ham-strung and hog tied to major donors, especially Big Ag and Big Pharm. Every state and nation need government lawmakers who eschew pork barrel politics and not be buttered-up by hog-wild lobbyists to pig out at the corporate trough and beef up their election campaign coffers. Most need to bone up on the science of animal sentience (visit https://drfoxonehealth.com/post/animal-sentience/) and our collective duty of care.
 
 FROM ANIMAL DOCTOR SYNICATED NEWSPAPER COLUMN April 2022
@@ -67,9 +64,7 @@ The Global Animal Partnership is one of the largest animal welfare food labeling
 Look for their label, “Animal Welfare Certified” on any animal products you purchase and also on pet foods as per veterinarian Dr. Bob Goldstein’s Wisdom dog foods and treats. Our dog relished his Turkey kibble recipe which smells delectable and which I can feed our dog in good conscience.( For details visit www.earthanimal.com).
 Devatha P. Nair March 15, 2022 in a posting on Sentient media writes:
 
-
   Emissions from factory farms in the United States now cause more deaths than traditional polluting industries such as coal-fired plants, with air pollution coming from agriculture accounting for 17,900 deaths every year. And yet, factory farming is one of the least regulated industries by the Environmental Protection Agency (EPA).
-
 
 Most farms are currently protected by an amnesty deal that protects the industry’s biggest players from any meaningful enforcement of environmental protection laws. The inability of the EPA to regulate the livestock industry led to 24 advocacy organizations filing a legal petition to enforce federal air pollution laws against high polluting farms, which the agency has refused to do for nearly two decades. The groups are asking the EPA to stop giving factory farms a free pass to pollute and start doing more to protect communities and the environment.” For more details go to Most Factory Farms Have ‘Free Pass’ to Pollute the Environment (sentientmedia.org)
 
@@ -79,14 +74,23 @@ Collateral Damage: How Factory Farming Drives Up the Use of Toxic Agricultural P
 •	According to the report, 235 million pounds of pesticides were used on corn and soybean crops in 2018.
 •	All of the pesticides and herbicides listed in the report threaten the flora and fauna of the ecosystems surrounding the crops they are used on, the authors assert.For details go to WAP_Collateral_Damage_Report_02_04_22_R3.pdf (dkt6rvnu67rqj.cloudfront.net)
 
-
 The Animal Welfare Act, which sets minimum standards for animals used in zoos or research or sold as pets, specifically exempts animals raised for food. The Humane Methods of Slaughter Act and the 28-Hour Law (the latter which covers farmed animals in transport) are weakly enforced, and both exempt poultry, which make up 98 percent of US land animals raised for food.
-
 
  As avian flu spreads through the poultry industry in 2022, millions of broiler chickens, laying hens and turkeys are being culled en masse. Veterinarians are among those demanding an end to some of the ‘cruelest’ killing methods such as ventilation shutdown causing death by suffocation and hyperthermia. See The Guardian: ‘They’re Cooking Them Alive’: Calls to Ban ‘Cruel’ Killing Methods on US Farms:
 
+Factory farmed animals suffer from inherited health problems as a consequence of genetic selection for very rapid growth (for more flesh/meat and fat) and productivity ( of eggs, milk). This issue, which I raised in my book Farm Animals: Husbandry, Behavior, and veterinary Practice ( Viewpoints of a Critic), University Park Press Baltimore MD 1984, is at last beginning to be addressed since animal welfare and health should take precedence over productivity and profitability. The Global Animal Partnership, an animal welfare certifier, endorsed by Amazon..com’s Whole Foods, is setting new standards for broiler chicken producers setting new rules for breeding programs to begin in 2016 to reduce the adverse health consequences of selective breeding for accelerated growth.
 
-Factory farmed animals suffer from inherited health problems as a consequence of genetic selection for very rapid growth (for more flesh/meat and fat) and productivity ( of eggs, milk). This issue, which I raised in my book Farm Animals: Husbandry, Behavior, and veterinary Practice ( Viewpoints of a Critic), University Park Press Baltimore MD 1984, is at last beginning to be addressed since animal welfare and health should take precedence over productivity and profitability. The Global Animal Partnership, an animal welfare certifier, endorsed by Amazon.com’s Whole Foods, is setting new standards for broiler chicken producers setting new rules for breeding programs to begin in 2016 to reduce the adverse health consequences of selective breeding for accelerated growth.
+SUPREME COURT TO CONSIDER THE PLIGHT OF PIGS
+
+Sixty-three percent of California voters supported Proposition 12 in 2018 which would prohibit the in-State sale of farmed animal produce from animals raised both within and out of State under extreme, confined conditions---so called factory farms. This immediately impacted egg and veal producers, many responding by adopting more humane husbandry practices. But the call to pig producers to end confining sows in crates and stalls met resistance.
+
+ The National Pork Producers Council and American Farm Bureau Federation, both with whom I have had dealings with in the past, contend that this would violate protection under the Constitution of the free flow of interstate commerce. In March 2022 they succeeded in getting the Supreme Court to hear their appeal to overturn this ruling.  
+
+If this Court rules in their favor and dismisses the humane initiative of Proposition 12, it would be simply in the service of mammon and be a serious setback for the ethical and moral progress needed in society today. It would affirm that animals are mere commodities, objects of property and would consequentially condone inhumane production methods.
+
+As a veterinarian with a doctoral degree in ethologist/animal behavior, I can affirm the high degree of sentience and sapience of pigs, a very social species with emotional intelligence and, like most of us, they can be empathic and altruistic. Every good pig farmer and owners of pet pigs know this and it has been well documented how pigs are healthier and more productive when on friendly terms with farm. staff. The attitude of stockpersons and environment in which pigs are raised determine their health and well-being which should not be undermined by profit-driven “economies of scale” evident in the factory farming systems of the  pork industry: And which the American Farm Bureau Federation, erroneously believed by many to support the “family farm” unconditionally endorses.
+
+There are multiple, well documented environmental, public health, worker health and safety and animal health reasons to phase out all intensive production systems involving extreme animal confinement in so-called factory farms.
 
 
 
@@ -152,7 +156,6 @@ References
 9. Fox, Michael W. Bringing Life to Ethics: Global Bioethics for a Humane Society Albany, NY, State University of New York Press 2001
 
 POSTSCRIPTS 
-
 
 Veterinarians’ Well-being: At Risk from Empathy?
 According to a Feb 13th 2015 Centers for Disease Control & Prevention Weekly Morbidity and Mortality Report Vol 64, p 131-132 by Randall J. Nett and associates, “Veterinarians are believed to be at increased risk for suicide compared with the general population.” They sent out a questionnaire that “asked respondents about their experiences with depression and suicidal behavior, and included standardized questions from the Kessler-6 psychological distress scale that assesses for the presence of serious mental illness…. Approximately 6.8% of male and 10.9%  of female respondents were characterized as having serious psychological distress… compared with 3.5% of male and 4.4% of female U.S. adults, respectively.” 
