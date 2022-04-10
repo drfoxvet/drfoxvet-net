@@ -92,6 +92,30 @@ The cat is the definitive host for Toxoplasma gondii and serves as the reservoir
 In a report entitled ‘Further discussion on declining wild bird populations and feral cats’ published in the Journal of the American Veterinary Medical Association ( Vol. 257: p 144-145, 2020), veterinarians David A. Jessup and Sonia M. Hernandez provide documented support for their contention that “the link between free-roaming cats and bird deaths is clear and that TNR programs, as typically structured, do not reduce free-roaming cat populations.” They assert “TNR programs alone seldom, if ever, result in feral cat colony reduction or elimination and that removal for adoption or euthanasia is needed to bring the number of feral cats down.”  
 They advocate that those choosing to care for feral and free-roaming cats set up large enclosures-mega-“catios” (with provision of shelter, food, water and veterinary care) to protect both wildlife, public health and the cats themselves.
 
+FREE ROAMING CATS ARE A NON-NATIVE INVASIVE SPECIES
+
+
+( From Animal Doctor syndicated newspaper column April 2022)
+DEAR DR. FOX, I am concerned about free-roaming cats in our communities here in Minnesota and I spoke to a person at the Minnesota DNR who said that outdoor stray, free-roaming and feral cats are not regarded as an invasive species because they are a domesticated animal. I was told they were a responsibility of the Board of Animal Health. What is your opinion on this sine I know one past member of this Board, a veterinarian, was an advocate of trapping, neutering and releasing cats, calling them “Community cats.”
+J.H., Minneapolis MN
+
+
+ DEAR J.H., This statement by a MN DNR staffer who should remain anonymous is an example of the biological illiteracy of this and other State wildlife "management". agencies. Non-native species of plants and animals that are domesticated are causing havoc to natural ecosystems around the world along with deliberately released and escapee non-native wild species (like the pythons in Florida).
+With climate change many ecosystems are in flux with populations of plant and animal species exhibiting succession and replacement which is a challenge for managers and ecology monitors. Because of these vulnerabilities and uncertainties, it is imperative that invasive, non-native species, be they wild or domesticated, be identified and humanely controlled to help maintain the integrity of indigenous species populations and ecosystem health.
+
+
+Another reason why the MN DNR refuses to accept that domestic cats are a seriously damaging invasive species is probably because of its close alliance with the livestock industry The invasive grazing of cattle and sheep into wildlife habitat/public lands coupled with indiscriminate predator control by State and Federal agencies for centuries and the fact that, like the domestic cat, these domesticated farmed animals spread various diseases to wildlife as well as competing for food, cannot be denied. It is time to change from managing wildlife as a resource and to stewarding wildlife to maximize biodiversity and ecosystem health and that includes preventing domesticated animals like the cat from becoming an invasive species.
+
+
+In established urban communities around the world cats, and dogs to some degree, have roamed free for centuries often being fed by well-meaning residents. Such feeding means more offspring being born and ever more suffering until effective TNVR-trap,-- spay-neuter, vaccination and release--- programs are established along with volunteers who provide food and veterinary care when feasible for injured and sick animals.
+
+
+But this not the final or only solution to the problem of free roaming, stray and feral cats and also dogs in many communities, as in India where I have worked with my wife Deanna Krantz who ran an animal shelter and full veterinary services for several years. TNVE/A---trap, neuter vaccinate, enclose or adopt out (re-home or put in foster care) should take priority over releasing such animals especially in more rural and suburban communities where they are an invasive, non-native species in wildlife habitat, many wild, native species becoming at risk from cat predation. Cats also pose a risk to public and animal health from rabies and other communicable diseases they may carry and transmit to humans, livestock and wildlife.
+As for cats helping control rats, that myth has been put to rest at last. They do control mice but not adult rats according to recent in-field research. (See Cats Are No Match for New York City’s Rats: Despite popular wisdom, rats are too big and too fierce for cats. By Sarah Zhang, https://www.theatlantic.com/science/archive/2018/09/cats-vs-rats-new-york/571414/)
+Conservationists and ecologists see cats in particular as an invasive, non-native species outside of their urban environments which all U.S. State departments of wildlife and natural resource management and boards of animal and public health need to address. Every municipality now has ordinances prohibiting dog owners from allowing their canine companions to roam free off their property and the same principle should be applied to owned cats as a matter of public health, wildlife protection in many areas and the health and welfare of the cats themselves. 
+
+
+
 ALL PUBLIC HEALTH OFFICIALS SHOULD NOTE:
 
 
