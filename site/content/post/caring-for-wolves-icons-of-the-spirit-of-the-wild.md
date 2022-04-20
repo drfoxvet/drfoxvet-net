@@ -2,7 +2,7 @@
 title: 'Caring for Wolves, Icons of the Spirit of the Wild'
 date: 2022-04-20T13:13:49.235Z
 tags:
-  - Wolves
+  - Conservation
 ---
        Caring for Wolves, Icons of the Spirit of the Wild
 
