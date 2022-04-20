@@ -21,7 +21,7 @@ In her book _Shelter Cats_ ( Howell Books, N.Y., 1998) Karen Commings advises; â
 
 Material adhering to the cat after using the box can, in part, be dislodged by having the cat walk on a rough-textured mat in front of the litter box. This will also help stop tracking into the house. One of my concerns is cats swallowing this material along with litter dust when they groom themselves. In rare instances intestinal blockage requiring emergency surgery have been reported.
 
-Volatile organic compounds are used to give cat litter a floral scent is for humans, not for their cats who may develop respiratory problems and allergic reactions especially in combination with a covered litter box. 
+Volatile organic compounds are used to give cat litter a floral scent is for humans, not for their cats who may develop respiratory problems and allergic reactions especially in combination with a covered litter box. Cedar chip litter has been linked to allergic reactions in cats who develop skin irritation and scratch themselves to the point of self-mutilation if not diagnosed and a different litter used.
 
 ## TYPES OF CAT LITTER
 
