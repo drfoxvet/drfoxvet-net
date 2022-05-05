@@ -207,3 +207,31 @@ DOG ANCESTRY
  Indigenous dog populations in the Neotropics and South Pacific have been largely replaced by European dogs, whereas those in Africa show varying degrees of European vs. indigenous African ancestry.
 
 As I discuss in this review article these wonderful indigenous, “landrace” varieties of dogs are endangered by European (pure breed) dog crossbreeding. In the U.S. there are un-neutered mixed breed dogs especially in the Southern states where they are still allowed to freely roam and breed back to a more natural landrace type. But as municipalities enforce spay/neuter and leash laws for many good reasons and overcrowded shelters in these states such as Alabama, Arkansas, Georgia, Mississippi, and Tennessee, send these dogs up to shelters in northern states where there are insufficient local dogs and pups for adoption, we may be seeing the last of the natural, landrace dogs in north America, many on Indian reservations being crossbred with Pit bulls and other pure breeds.
+
+From my  Animal Doctor syndiated newspaper column June 2022
+
+DEAR DR.FOX, Did you see this article about dog genetics and temperament??  What are your thoughts?
+https://www.latimes.com/science/story/2022-04-28/genetic-study-says-stereotypes-about-dog-breeds-are-wrong
+ K.K., Northbrook IL
+
+
+DEAR K.K., This study has generated a lot of publicity and I disagree with its conclusions .It asserts that a dog’s breed has less influence on its personality than is commonly thought. Researchers surveyed thousands of dog owners about their pets’ traits, ranging from whether they had a propensity to eat grass to how likely they were to chase toys. The researchers then sequenced the DNA of a subsection of the survey dogs and found that breed explained only around 9% of the variation in dog behaviour. “When you adopt a dog based on its breed, you’re getting a dog that looks a certain way,” says computational biologist and co-author Elinor Karlsson. “But as far as behaviour goes, it’s kind of luck of the draw.” (Science, Vol. . 376, No. 6592 Ancestry-inclusive dog genomics challenges breed stereotypes).
+
+
+The main point of this study that extreme physical rather than behavioral differences in dogs of various breeds and crosses are determined by heredity---nature-- is evident and understandable. Certainly, we all know that nurture---puppy socialization--- which I worked on years ago with Drs. Scott and Fuller at the Jackson laboratory, Bar Harbor ME ---determines how dogs generally react to people later in life. 
+
+
+Perhaps these biologists were influenced by their own convictions, be they anti-racial or anti-genetic determinism. Specific traits like herding, protecting and retrieving, in my opinion, are more closely linked to nature---genetics---than to nurture. Nurture can reinforce such behaviors as Konrad Lorenz proposed and called instinct-training-interlocking. Much as I have tried with our Australian heeler-Boxer cross, she will not retrieve but tries to round up people on our walks! We are always on guard around Pugs-on-the-leash who are almost always pugnacious!
+
+
+THE ANCESTRY OF DOMESTICATED DOGS
+The dingo does not appear to have descended from domesticated dogs, according to a genetic comparison of the wild Australian canid with five dog breeds. A key genetic sign that dingoes have never been domesticated is that unlike dogs, they lack multiple copies of a gene that allows them to digest starches such as rice, researchers reported in Science Advances.
+ Full Story: New Scientist (free content) (4/22) This supports my long-held opposition to the contention that the sole ancestor of the domesticated dog is Canis lupus, the wolf.And I have raised and studied the behavior and development of both wolves and dingoes as well as other wild canids and various domesticated dog breeds. Coyotes, jackals, dingoes and wolves will cross-breed with the domesticated dog which produce offspring are fertile ( unlike horse-donkey crosses that produce sterile mules) which in the past created local breeds and variants of domesticated dogs.
+
+Just as the human species cross-bred in Europe with Neanderthal hominids who eventually became extinct, dogs were cross-bred with wolves who are now extinct in many parts of the world they once inhabited.
+
+
+BREED AND SEX DIFFERENCES IN CANINE LONGEVITY
+From Teng, K.Ty.,Brodbelt, D.C., Pegram, C. et al. Life tables of annual life expectancy and mortality for companion dogs in the United Kingdom. Sci Rep 12, 6415 (2022). https://doi.org/10.1038/s41598-022-10341-6   Among 30,563 dogs that died between 1st January 2016 and 31st July 2020, life expectancy 11.23 years. Female dogs (11.41 years) had a greater life expectancy than males (11.07 years); Life tables varied widely between breeds. Jack Russell Terrier (12.72 years); and French Bulldog (4.53 years) had the longest and shortest life expectancy 
+
+
