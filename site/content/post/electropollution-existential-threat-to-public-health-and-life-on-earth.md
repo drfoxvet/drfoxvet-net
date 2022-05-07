@@ -218,7 +218,7 @@ DEAR DR.FOX, I recently moved in with my boyfriend, and he was telling me about 
 
 It's a complete and easy-to-follow guide to understanding the toxic sources of radiation and also finding out different ways to prevent it in order to make you and your family feel safe in your own home. 
 I think that my article would be a great addition to your Electropollution: Existential Threat to Public Health,Companion Animals and Life on Earth? post, would you like to add our link as a resource? I think this is something your readers may find helpful.
-P.T., Seattle WA
+Pamela Tatam, Seattle WA
 
 
 
