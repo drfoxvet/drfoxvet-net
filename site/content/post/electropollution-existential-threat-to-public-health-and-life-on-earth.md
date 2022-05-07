@@ -211,6 +211,17 @@ Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields o
 
 "Ambient levels of electromagnetic fields (EMF) have risen sharply in the last 80 years, creating a novel energetic exposure that previously did not exist. Most recent decades have seen exponential increases in nearly all environments, including rural/remote areas and lower atmospheric regions. Because of unique physiologies, some species of flora and fauna are sensitive to exogenous EMF in ways that may surpass human reactivity. There is limited, but comprehensive, baseline data in the U.S. from the 1980s against which to compare significant new surveys from different countries. This now provides broader and more precise data on potential transient and chronic exposures to wildlife and habitats. Biological effects have been seen broadly across all taxa and frequencies at vanishingly low intensities comparable to today's ambient exposures. Broad wildlife effects have been seen on orientation and migration, food finding, reproduction, mating, nest and den building, territorial maintenance and defense, and longevity and survivorship. Cyto- and geno-toxic effects have been observed. The above issues are explored in three consecutive parts: Part 1 questions today's ambient EMF capabilities to adversely affect wildlife, with more urgency regarding 5G technologies. Part 2 explores natural and man-made fields, animal magnetoreception mechanisms, and pertinent studies to all wildlife kingdoms. Part 3 examines current exposure standards, applicable laws, and future directions. It is time to recognize ambient EMF as a novel form of pollution and develop rules at regulatory agencies that designate air as 'habitat' so EMF can be regulated like other pollutants. Wildlife loss is often unseen and undocumented until tipping points are reached. Long-term chronic low-level EMF exposure standards, which do not now exist, should be set accordingly for wildlife, and environmental laws should be strictly enforced."
 
+FROM MY "ANIMAL DOCTOR" SYNDICATED NEWSAPER COLUMN, July 2022
+
+DEAR DR.FOX, I recently moved in with my boyfriend, and he was telling me about the different sources of radiation and radon at home and how electromagnetic fields can make you sick in many ways like having headaches, body pain, lethargy, tinnitus (ringing in the ear), nausea, burning sensation, heart arrhythmia, and anxiety. I got terrified! This is why I created this  article, "How to Limit Exposure to EMF and Radon at Home"
+
+
+It's a complete and easy-to-follow guide to understanding the toxic sources of radiation and also finding out different ways to prevent it in order to make you and your family feel safe in your own home. 
+I think that my article would be a great addition to your Electropollution: Existential Threat to Public Health,Companion Animals and Life on Earth? post, would you like to add our link as a resource? I think this is something your readers may find helpful.
+P.T., Seattle WA
+
+
+
 
 # ADDENDUM
 
