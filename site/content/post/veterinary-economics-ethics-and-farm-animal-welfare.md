@@ -80,6 +80,26 @@ The Animal Welfare Act, which sets minimum standards for animals used in zoos or
 
 Factory farmed animals suffer from inherited health problems as a consequence of genetic selection for very rapid growth (for more flesh/meat and fat) and productivity ( of eggs, milk). This issue, which I raised in my book Farm Animals: Husbandry, Behavior, and veterinary Practice ( Viewpoints of a Critic), University Park Press Baltimore MD 1984, is at last beginning to be addressed since animal welfare and health should take precedence over productivity and profitability. The Global Animal Partnership, an animal welfare certifier, endorsed by Amazon..com’s Whole Foods, is setting new standards for broiler chicken producers setting new rules for breeding programs to begin in 2016 to reduce the adverse health consequences of selective breeding for accelerated growth.
 
+THE BIG BEEF ABOUT BEEF
+
+
+According to the BBC News ( July 1/19) satellite data an area of Amazon rainforest roughly the size of a football pitch is now being cleared every single minute. The rate of losses has accelerated as Brazil's new right-wing president favors development (for beef and soybean production) over conservation. The largest rainforest in the world, the Amazon is a vital carbon store that slows down the pace of global warming.
+ 
+Shaley Lensegrav, writing for Tri-State Livestock News, March 28/19, reports: “A recent meeting between President Donald Trump and Brazilian President Jair Messias Bolsonaro set specifications into motion that could lead to the return of Brazilian beef to United States markets if the processing facilities pass inspection…… The introduction of Brazilian beef could negatively affect herd health and the beef markets in the U.S., say some.” For more details visit
+https://the ecologist.org/2019/jul/02/jbs-brazilian-butchers-take-over-world
+
+It should be noted that the U.S. government has blocked efforts to indicate country of origin of marketed beef. The United States imports beef from places like Australia, Canada, and much of Latin America. It then runs that beef through a USDA inspection and, if it passes, sticks a label on it that reads “Product of the U.S.A. ”according to  the Western Organization of Resource Councils ( http://www.worc.org/were-importing-beef-and-labeling-it-product-of-the-usa/).
+
+ Most U.S. beef producers are opposing protection of the wolf under the Endangered Species Act and are largely responsible for the virtual demise of the mountain lion as well as the wolf across their natural ranges and the consequential decline in biodiversity and ecosystem health. In the Amazon, indigenous natives are experiencing a similar fate as native American Indians a century ago from such commercial expropriation.
+
+
+Much of the “Beef’ in pet foods is recycled cattle remains condemned for human consumption and classified as “4-D” meat---parts from cattle who are diseased, debilitated, dying or dead on arrival at the processing plant. Some could soon be coming from Brazil.
+Aside from consumer health concerns with the association of high beef consumption with breast, prostate and colon cancer, animal welfare and environmental concerns call for informed consumers who wish to eat beef with conscience to purchase local, grass-fed and Organically Certified beef products. Globally, beef production has the greatest negative impact on the environment and use of water and land for feed compared with poultry production. So from now on the animals in our home will not have any pet foods containing “Beef” “Beef Meal, Beef Tallow” or unspecified “Meat Meal” “Meat By-products” “Bone Meal” and “Animal Fat.”
+
+
+Cattle barons East and West became some of the first capitalists, (cattle being linked etymologically and historically with chattel; and along with other scions of industrial civilization the Earth cannot sustain their takings any more which civil society can rectify in the market place by voting with their dollars and sense. The British Veterinary Association’s call in April 2019 to consumers to eat less animal produce and be prepared to pay more from sources certified humane and sustainable because of concerns over animal welfare, economic viability, climate change and loss of biodiversity is quite remarkable considering the long-standing ties between the profession and the livestock and poultry industries.
+
+
 SUPREME COURT TO CONSIDER THE PLIGHT OF PIGS
 
 Sixty-three percent of California voters supported Proposition 12 in 2018 which would prohibit the in-State sale of farmed animal produce from animals raised both within and out of State under extreme, confined conditions---so called factory farms. This immediately impacted egg and veal producers, many responding by adopting more humane husbandry practices. But the call to pig producers to end confining sows in crates and stalls met resistance.
