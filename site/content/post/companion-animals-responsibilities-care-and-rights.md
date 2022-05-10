@@ -2,8 +2,7 @@
 title: 'Companion Animals: Responsibilities, care and Rights'
 date: 2022-05-10T17:09:58.609Z
 tags:
-  - Dogs
-  - ''
+  - Cats
 ---
  COMPANION ANIMALS: RESPONSIBILITIES, CARE,AND RIGHTS
 
