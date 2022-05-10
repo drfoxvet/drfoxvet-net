@@ -113,6 +113,16 @@ As a veterinarian with a doctoral degree in ethologist/animal behavior, I can af
 There are multiple, well documented environmental, public health, worker health and safety and animal health reasons to phase out all intensive production systems involving extreme animal confinement in so-called factory farms.
 
 
+A detailed report on our global impact on the environment, climate, biodiversity in producing food for ourselves shows that while meat and dairy provide just 18% of calories and 37% of protein, it uses the vast majority – 83% – of farmland and produces 60% of agriculture’s greenhouse gas emissions. Without meat and dairy consumption, global farmland use could be reduced by more than 75% – an area equivalent to the US, China, European Union and Australia combined – and still feed the world. Loss of wild areas to agriculture is the leading cause of the current mass extinction of wildlife.
+
+
+ Other recent research shows 86% of all land mammals are now livestock or humans. The scientists also found that even the very lowest impact meat and dairy products still cause much more environmental harm than the least sustainable vegetable and cereal growing.---The biomass distribution on Earth
+Yinon M. Bar-On, Rob Phillips, and Ron Milo
+PNAS May 21, 2018. 201711842; published ahead of print May 21, 2018. https://doi.org/10.1073/pnas.1711842115
+
+See also Biological annihilation via the ongoing sixth mass extinction signaled by vertebrate population losses and declines
+Gerardo Ceballos, Paul R. Ehrlich, and Rodolfo Dirzo
+PNAS July 25, 2017. 114 (30) E6089-E6096; published ahead of print July 10, 2017. https://doi.org/10.1073/pnas.1704949114 
 
 
 
