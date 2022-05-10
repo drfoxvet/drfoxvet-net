@@ -2,7 +2,7 @@
 title: 'Flight, Fight or Play: War and Peace Revisited'
 date: 2022-05-10T20:30:28.659Z
 tags:
-  - Ethics
+  - Ethical Issues
 ---
       FLIGHT, FIGHT---OR PLAY: WAR AND PEACE REVISITED
 
