@@ -24,7 +24,32 @@ There is limited employment opportunity for veterinarians in CAPOs. For economic
 
 What then are veterinary colleges and these animal-based industries doing to fill this lack of food animal veterinarians that could mean lower standards of animal health, consumer safety/public health, animal welfare and animal protection oversight?  To possibly help rectify the shortage of veterinarians in the food animal sector the multinational drug company Pfizer Animal Health has teamed with the American Veterinary Medical Foundation to award $2,500 scholarships to more than 225 veterinary students in the US (5). 
 
+CLIMATE CHANGE HARMING FARM ANIMALS 
+
+
+It is a tragic irony that the billions of farm animals raised for human consumption are a major contributing factor to Climate Change and are dying and suffering as a consequence of climatic extremes world-wide. In the U.S. producers enjoy tax-payer support in the U.S. Department of Agriculture’s Disaster Relief and Livestock Indemnity programs providing compensation for losses due to extreme heat and cold. But the animals have no relief.
+
+
+Pigs and poultry in overcrowded factory sheds suffer hyperthermia when ventilation systems fail or cannot keep up with rising temperatures and humidity. They are less “productive,” suffer inhaling ammonia and other toxic fumes from their excrement over which they must live, and many die.
+
+
+ Likewise dairy cows produce less milk under heat stress and many, along with beef cattle, are exposed to the elements in feedlots or out on the range. According to Texas A&M University the economic loss for cattle, sheep and goat farmers was $228 million from the 2021 winter storm, actual numbers of animals freezing to death not being posted.
+
+
+The main-stream media rarely reports on the plight of these factory farmed animals in sheds decimated by storms and tornadoes or when torrential rains burst the lagoon dams holding animal waste that then pollutes rivers and lakes and ultimately, the drinking water of many communities. Nor do we hear about their suffering out on the range decimated by decades of overgrazing and drought.
+
+
+The energy used to ventilate factory farm sheds adds to the “carbon footprint” of the livestock and poultry industries in addition to the millions of acres of agricultural land dedicated to raising feed for them. This land is rarely seeded with a post- corn and soyabean harvest “cover crop” to serve as a carbon sink and protect and enrich the topsoil. 
+
+
+Communities living close to factory farms suffer a variety of health problems from the foul air being blown out of these sheds and from the high nitrate content of animal waste spread on fields that finishes up in their drinking water along with toxic algal blooms from the high phosphates in such waste that contaminates lakes and streams.
+
+ Pig and poultry factories are also point-sources of influenza virus epidemics and outbreaks of E. coli, Salmonella and other, often antibiotic-resistant infections in humans.
+During the COVID-19 pandemic, when slaughter houses/processing facilities were closed down after workers contracted this disease, animals destined for slaughter were held in confinement, the delays in shipment causing much suffering. 
+
+
 RECYCLING BY-PRODUCTS & FOOD SAFETY
+
 Both production-enhancing drug and vaccine addicted  livestock and poultry industries, and the petrochemical and pesticide addicted, gene-engineering human food and beverage, and livestock feed industries, create enormous volumes of  sometimes hazardous waste by-products that are recycled very profitably  into pet foods, livestock feeds, fertilizer and human supplements, cosmetics and toiletries and a host of other secondary consumables. The safety of these secondary consumables, many imported from third world countries by US manufacturers, are too complex and costly to effectively police. This is what the heads of government agencies like the USDA and FDA say at every Congressional hearing on some major E.coli hamburger or contaminated spinach recall, or massive pet food recall as at the Senate Sub-committee hearings in 2007.
 
  The animal and human health benefits of prebiotics and probiotics, along with biologically appropriate diets, which nurture beneficial gut bacteria, parallel organic farming practices that benefit soil microorganisms essential to crop health and nutrient content. Both gut and soil bacteria are respectively harmed by agrichemicals, antibiotics and GM (genetically modified) crops and foods leading to bacterial population imbalances and dysbiosis.
