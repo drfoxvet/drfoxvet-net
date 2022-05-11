@@ -258,6 +258,33 @@ Some sage once said, ‘Until we suffer the earth as we suffer for ourselves and
 
 My friend Thomas Berry wrote ‘The glory of the human has become the desolation of the earth. This I would consider an appropriate way to summarize the twentieth century.’ But for me, I find  seeds of hope in the practice and bioethics of humane, organic, and sustainable agriculture that can see us through the next century to a more enlightened and viable future.
 
+ADDENDUM
+
+Increasing CO2 threatens human nutrition
+•	Samuel S. Myers et al
+•	Nature 510, 139–142 (05 June 2014)
+•	doi:10.1038/nature13179
+Myers, S., Zanobetti, A., Kloog, I. et al. Increasing CO2 threatens human nutrition. Nature 510, 139–142 (2014). https://doi.org/10.1038/nature13179
+**************************************************
+
+
+http://www.politico.com/agenda/story/2017/09/13/food-nutrients-carbon-dioxide-000511
+
+The great nutrient collapse
+The atmosphere is literally changing the food we eat, for the worse. And almost nobody is paying attention.
+By HELENA BOTTEMILLER EVICH 09/13/2017 05:03 AM EDT
+  ****************************************************************
+Hidden shift of the ionome of plants exposed to elevated CO2 depletes minerals at the base of human nutrition
+1.	Irakli Loladze  
+1.	The Catholic University of Daegu, Republic of Korea 
+Research Article May 7, 2014
+ 
+Abstract
+Mineral malnutrition stemming from undiversified plant-based diets is a top global challenge. In C3 plants (e.g., rice, wheat), elevated concentrations of atmospheric carbon dioxide (eCO2) reduce protein and nitrogen concentrations, and can increase the total non-structural carbohydrates (TNC; mainly starch, sugars). However, contradictory findings have obscured the effect of eCO2 on the ionome—the mineral and trace-element composition—of plants. Consequently, CO2-induced shifts in plant quality have been ignored in the estimation of the impact of global change on humans. This study shows that eCO2 reduces the overall mineral concentrations (−8%, 95% confidence interval: −9.1 to −6.9, p<0.00001) and increases TNC: minerals > carbon: minerals in C3 plants. The meta-analysis of 7761 observations, including 2264 observations at state of the art FACE centers, covers 130 species/cultivars. The attained statistical power reveals that the shift is systemic and global. Its potential to exacerbate the prevalence of ‘hidden hunger’ and obesity is discussed.
+https://doi.org/10.7554/eLife.02245.001
+
+
+
 ## SELECTED REFERENCES AND RESOURCES
 
 Berry T, ‘The Dream of the Earth’, San Francisco, CA, Sierra Books, 1988
