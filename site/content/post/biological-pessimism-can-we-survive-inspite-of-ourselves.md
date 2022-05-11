@@ -2,7 +2,7 @@
 title: 'Biological Pessimism: Can We Survive Inspite of Ourselves?'
 date: 2022-05-11T13:34:33.171Z
 tags:
-  - Social Issues
+  - Environment
 ---
 BIOLOGICAL PESSIMISM: CAN WE SURVIVE INSPITE OF OURSELVES?
 
