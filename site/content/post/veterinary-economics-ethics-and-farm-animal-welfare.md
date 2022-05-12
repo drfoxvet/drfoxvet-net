@@ -2,7 +2,7 @@
 title: 'Veterinary Economics, Ethics and Farm Animal Welfare'
 date: 2020-08-17T17:03:36.012Z
 tags:
-  - Farmed Animals
+  - Veterinary Matters
 ---
 VETERINARY ECONOMICS, ETHICS & FARM ANIMAL WELFARE
 \
