@@ -155,43 +155,46 @@ Efforts to protect indigenous wolf clans or cultures need to be redoubled along 
 
 
 REFERENCES
-1. Tamgüney, G., et al (2009) Asymptomatic deer excrete infectious prions in faeces Nature 461, 529-532 (24 September 2009) | doi:10.1038/nature08289; Received 11 May 2009; Accepted 16 July 2009; Published online 9 September 2009
+1.Tamgüney, G., et al (2009) Asymptomatic deer excrete infectious prions in faeces Nature 461, 529-532 (24 September 2009) | doi:10.1038/nature08289; Received 11 May 2009; Accepted 16 July 2009; Published online 9 September 2009
 
 
-2. Gilch, S., et al. (2011) Chronic wasting disease. Top Curr Chem. 305:51-77. doi: 10.1007/128_2011_159. See also Centers for Disease Control and Prevention CDC - Chronic Wasting Disease (CWD) -. www.cdc.gov/ncidod/dvrd/cwd 
+2 Gilch, S., et al. (2011) Chronic wasting disease. Top Curr Chem. 305:51-77. doi: 10.1007/128_2011_159. See also Centers for Disease Control and Prevention CDC - Chronic Wasting Disease (CWD) -. www.cdc.gov/ncidod/dvrd/cwd 
    
 
-3.  Zhang, J., (2012) Ref: arxiv.org/abs/1106.4628: The Nature Of The Infectious Agents: PrP Models Of Resistant Species To Prion Diseases (Dog, Rabbit And Horses) Published in Prions and Prion Diseases: New Developments (J.M. Verdier Eds.), NOVA Science Publishers, 2012, ISBN 978-1-61942-768-6, Chapter 2, pages 41-48
+3.Zhang, J., (2012) Ref: arxiv.org/abs/1106.4628: The Nature Of The Infectious Agents: PrP Models Of Resistant Species To Prion Diseases (Dog, Rabbit And Horses) Published in Prions and Prion Diseases: New Developments (J.M. Verdier Eds.), NOVA Science Publishers, 2012, ISBN 978-1-61942-768-6, Chapter 2, pages 41-48
 
 
-4. Gill, O.N. et al (2013). Prevalent abnormal prion protein in human appendixes after bovine spongiform encephalopathy epizootic: large scale survey. : British Medical Journal 2013;347:f5675 
+4.Gill, O.N. et al (2013). Prevalent abnormal prion protein in human appendixes after bovine spongiform encephalopathy epizootic: large scale survey. : British Medical Journal 2013;347:f5675 
 BMJ 2013; 347 doi: http://dx.doi.org/10.1136/bmj.f5675 (Published 15 October 2013)
 
 
 
-5..Berry, D.D. et al  (2013) Drug resistance confounding prion therapeutics. Proc Nat Acad Sci www.pnas Oct 11. 
-6. Angers, R.C. et al (2009). Chronic wasting disease prions in elk antler velvet. Emerg Infect Dis. May
+5.Berry, D.D. et al  (2013) Drug resistance confounding prion therapeutics. Proc Nat Acad Sci www.pnas Oct 11. 
+
+6.Angers, R.C. et al (2009). Chronic wasting disease prions in elk antler velvet. Emerg Infect Dis. May
 
 
-7. Johnson, C., (2013) Uptake of Prions into Plants. In session Current Science of Chronic Wasting Disease: What Have We Learned in the Last 5 Years? The Wildlife Society Milwaukee WI Oct 2013
-
-8. Schultz, R., (2013) Rare Disease reported in Wisconsin Cattle Wisconsin State Journal, Oct 3.
+7.Johnson, C., (2013) Uptake of Prions into Plants. In session Current Science of Chronic Wasting Disease: What Have We Learned in the Last 5 Years? The Wildlife Society Milwaukee WI Oct 2013
 
 
-9. Levi, T., et al. (2012) Deer, predators, and the emergence of Lyme disease PNAS; published ahead of print June 18, 2012, doi:10.1073/pnas.1204536109   www.pnas.org/cgi/content.  See also : Hofmeester TR, Jansen PA, Wijnen HJ, Coipan EC, Fonville M, Prins HHT, Sprong H, van Wieren SE. 2017 Cascading effects of predator activity on tick-borne disease risk. Proc. R. Soc. B 284: 20170453. http://dx.doi.org/10.1098/rspb.2017.0453 
+8.Schultz, R., (2013) Rare Disease reported in Wisconsin Cattle Wisconsin State Journal, Oct 3.
 
 
-10. Fox, M.W., (2012) Lyme Disease, Wildlife Management and Public Health www.drfoxvet.com 
+9.Levi, T., et al. (2012) Deer, predators, and the emergence of Lyme disease PNAS; published ahead of print June 18, 2012, doi:10.1073/pnas.1204536109   www.pnas.org/cgi/content.  See also : Hofmeester TR, Jansen PA, Wijnen HJ, Coipan EC, Fonville M, Prins HHT, Sprong H, van Wieren SE. 2017 Cascading effects of predator activity on tick-borne disease risk. Proc. R. Soc. B 284: 20170453. http://dx.doi.org/10.1098/rspb.2017.0453 
 
 
-11. Fox, M.W., (2012) Healing Animals & the Vision of One Health. Amazon.com/CreateSpace Books
+10.Fox, M.W., (2012) Lyme Disease, Wildlife Management and Public Health www.drfoxvet.com 
 
 
-12. Cambronne, A., (2013) Deerland: America’s Hunt for Ecological balance and the Esssence of Wildness. The Lyons Press, Guilford CT.
-13. Telford, S.R. (2017)  Deer Reduction Is a Cornerstone of Integrated Deer Tick Management Journal of Integrated Pest Management, Volume 8, Issue 1, 1 January 25,https://doi.org/10.1093/jipm/pmx024).
+11.Fox, M.W., (2012) Healing Animals & the Vision of One Health. Amazon.com/CreateSpace Books
 
 
-14. Ripple, W.J, et al. (2015) Trophic cascades from wolves to alders in Yellowstone Forest Ecology and Management 354: 254-260.
+12.Cambronne, A., (2013) Deerland: America’s Hunt for Ecological balance and the Esssence of Wildness. The Lyons Press, Guilford CT.
+
+13.Telford, S.R. (2017)  Deer Reduction Is a Cornerstone of Integrated Deer Tick Management Journal of Integrated Pest Management, Volume 8, Issue 1, 1 January 25,https://doi.org/10.1093/jipm/pmx024).
+
+
+14.Ripple, W.J, et al. (2015) Trophic cascades from wolves to alders in Yellowstone Forest Ecology and Management 354: 254-260.
 
 
 .
