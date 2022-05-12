@@ -171,6 +171,7 @@ BMJ 2013; 347 doi: http://dx.doi.org/10.1136/bmj.f5675 (Published 15 October 201
 
 5.Berry, D.D. et al  (2013) Drug resistance confounding prion therapeutics. Proc Nat Acad Sci www.pnas Oct 11. 
 
+
 6.Angers, R.C. et al (2009). Chronic wasting disease prions in elk antler velvet. Emerg Infect Dis. May
 
 
