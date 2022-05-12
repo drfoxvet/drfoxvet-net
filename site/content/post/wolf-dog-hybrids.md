@@ -2,7 +2,7 @@
 title: Wolf-Dog Hybrids
 date: 2022-05-12T15:33:12.288Z
 tags:
-  - Woves
+  - Dogs
 ---
 
 ETHICS OF ANIMAL DOMESTICATION AND BREEDING WOLF-DOG HYBRIDS
