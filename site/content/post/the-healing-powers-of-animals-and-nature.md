@@ -2,7 +2,7 @@
 title: The Healing Powers of Animals and Nature
 date: 2022-05-23T11:48:48.656Z
 tags:
-  - Spiritual Issues
+  - Public Health
 ---
             THE HEALING POWERS OF ANIMALS AND NATURE
 
