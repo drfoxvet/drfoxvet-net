@@ -5,6 +5,7 @@ title: >-
 date: 2020-01-17T20:08:01.155Z
 tags:
   - Environment
+  - Public Health
 ---
 (Provisional draft to be edited and updated)
 
@@ -26,7 +27,13 @@ _\- EMF pioneer and Nobel prize nominee Dr. Robert Becker._
 
 _\- Samuel Milham, MD, MPH, author of Dirty Electricity._
 
-For a well documented report on the human effects of electropollution see Michael Kagelidis’ review article Electrohypersensitivity: What you need to know about the allergy of the 21st century. http://www.home-biology.com/electromagnetic-radiation/emf-radiation-health-effects/electrohypersensitivity. Ronald Kostoff, Ph.D. at Georgia Institute of Technology School of Public Policy issued a 2020 report called, "The Largest Unethical Medical Experiment in Human History" which documents the validity of these concerns. https://smartech.gatech.edu/handle/1853/62452 
+For a well documented report on the human effects of electropollution see Michael Kagelidis’ review article Electrohypersensitivity: What you need to know about the allergy of the 21st century. http://www.home-biology.com/electromagnetic-radiation/emf-radiation-health-effects/electrohypersensitivity. Ronald Kostoff, Ph.D. at Georgia Institute of Technology School of Public Policy issued a 2020 report called, "The Largest Unethical Medical Experiment in Human History" which documents the validity of these concerns. https://smartech.gatech.edu/handle/1853/62452
+
+French court orders 4G antenna switch-off over cow health concerns
+A farmer in central-east France said that milk production had dropped by 15-20% in the days following the antenna installation, and 40 of his 200 cows had died
+https://www.activistpost.com/2022/05/cell-tower-turned-off-by-court-after-farmer-complained-that-its-radiation-was-damaging-his-cows-health.html
+
+ 
 
 Our planet is a living biosphere (including the atmosphere), what some call the _anima mundi_ or soul of the Earth. It sustains all sentient beings whose bioelectrical fields are attuned to the Earth’s electromagnetic field. The planetary biosphere is being covered by the electronic cybersphere, the realm of information technology and electronic communication, especially the Internet. Helping interconnect and socialize humankind, this is seen by some as the “hominizing” techno-evolution envisioned by Fr Pierre Teilhard de Chardin, SJ, facilitating the genesis of the noosphere. the collectively connected evolutionary matrix of human consciousness. (1).
 
