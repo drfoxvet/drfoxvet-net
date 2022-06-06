@@ -2,7 +2,7 @@
 title: Our Spiritual Crisis in the Anthropocene Epoch
 date: 2022-06-06T14:43:05.607Z
 tags:
-  - Ethical Issues
+  - Social Issues
 ---
      OUR SPIRITUAL CRISIS IN THE ANTHROPOCENE EPOCH
 
