@@ -2,7 +2,7 @@
 title: The Fate of Children In an Inhumane Society
 date: 2022-04-17T02:33:44.810Z
 tags:
-  - Ethical Issues
+  - Social Issues
 ---
 THE FATE OF CHILDREN IN AN INHUMANE SOCIETY
 
