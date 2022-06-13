@@ -20,5 +20,24 @@ Some dogs enjoy chewing Nylabones and the Chewbrush which is FDA food-safe and d
 
 Dogs enjoy chewing and it is a relaxing activity that does help keep teeth and gums clean, but often only on one side since many dogs tend to chew more on one side tan the other. So regular teeth cleaning with a brush and veterinary approved paste or a home-prepared paste of equal parts salt and baking soda in equal parts aloe vera gel and Green tea, with a drop of essential oil of Thyme every evening is advisable.
 
- Get puppies and kittens used to having their teeth brushed early in life can make this health-care maintenance a breeze later in life. The costs and suffering from dental problems especially in cats and small-breed and flat-faced, (brachycephalic) dogs is a major health issue as per my posting, Dental Problems in Companion Animals, on my website.
+Get puppies and kittens used to having their teeth brushed early in life can make this health-care maintenance a breeze later in life. The costs and suffering from dental problems especially in cats and small-breed and flat-faced, (brachycephalic) dogs is a major health issue as per my posting, Dental Problems in Companion Animals, on my website.
+
+From ANIMAL DOCTOR Syndicated newspaper column June 2022
+
+FINDING THE HEALTHIEST, TASTY CHEWS FOR DOGS
+
+
+Dogs enjoy chewing which helps keep their teeth clean and gums healthy. But hard bones and deer antlers can crack their teeth while bone chips, corn cobs and the knotted ends of rawhide chews can be swallowed and cause intestinal perforation or obstruction calling for emergency surgery.
+
+Many rawhide chews for dogs are from cattle-hides processed abroad and can contain toxic chemicals so are best avoided. I also advise against purchasing dried pig parts such as ears and feet which can be contaminated with Salmonella and other potentially harmful bacteria putting pets and family members at risk
+I recently gave my dog a 10-inch stick of highly compacted shredded rawhide. Within less than ten minutes, she had chewed and swallowed two-thirds! I was concerned she might get a gut impaction so gave her milky water to drink and plenty of exercise but would never again give her such a product labelled all natural and made in the U.S.
+
+I have since tried Earth Animal’s No-Hide® Chews for dogs. The flavor I gave my dog was basically plant-based (contains egg), was very impressed with the simple, clean ingredients (they were listed on the front of the package), and how long they lasted. Our dog relished chewing the tasty roll for 15 minutes until I took it away. She had only gnawed away a few inches and the soft ends hardened as they dried for later chewing.
+
+
+I always recommend allowing dogs to chew for short periods of time just to help keep the teeth clean and for some tasty boredom busting. And because we all want the best, most enjoyable chewing experiences for our dogs, it is important to remember that they should not be left unattended when chewing as anything that goes into their mouth can potentially become a choking hazard. I encourage you to visit Earth Animal’s Chew School https://earthanimal.com/chewschool/ to learn how they suggest choosing the right chew!  
+
+
+
+
 
