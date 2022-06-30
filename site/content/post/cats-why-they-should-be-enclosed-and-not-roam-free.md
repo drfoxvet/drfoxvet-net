@@ -119,8 +119,22 @@ Bartonellosis, commonly called cat scratch fever, is now being recognized as a p
  
 There are two clinical syndromes of infection: VLM and ocular larval migrans (OLM). The symptoms of VLM are related to the organ invaded, most commonly the liver, lung, (asthma being a common symptom) or other thoracic or abdominal organ. VLM usually affects children <5 years old, often from ingesting Toxocara eggs in free-roaming cats’ feces deposited in sand boxes and other play areas. (Visceral Larva Migrans - an overview | ScienceDirect Topics https://www.sciencedirect.com › medicine-and-dentistry).
 
+CATS PRONE TO COVID-19 INFECTION:CONTAIN/ENCLOSE 
 
-COVID-19. Two different studies have found that pet cats and dogs that have close contact with a person who has COVID-19 can become infected, with cats being more susceptible to the virus, though most pets have only mild clinical signs of illness. Researchers say anyone with COVID-19 should avoid close contact with pets both to prevent transmitting the coronavirus and to keep pets from becoming a reservoir for it. Full Story: NBC News (6/30/2021),  BBC (free registration) (6/30’/2021). Blood samples from 8% of cats being treated for unrelated conditions at the University of Minnesota veterinary college clinic tested positive for COVID-19 antibodies. (Star Tribune, Science & Health. p.2, July 25th 2021).
+People who share a bed with, cuddle and kiss cats and dogs while sick with COVID-19 are more likely to pass the disease to their pets, researchers report in Emerging Infectious Diseases. (1). Lead author Prof. Dorothee Bienzle from the University of Guelph's pathobiology department said results suggest that cats have a higher rate of COVID-19 infection than dogs, stating to the press "It has to do with how well the virus latches on to the receptor in the cat or dog's respiratory system," said Bienzle. The high prevalence of COVID-19 antibodies in cats surprised researchers, she said. "We did not expect quite that many," she said. "Over half of the cats that live in a household of a person who had COVID had antibodies. That's very high."(2)
+
+This timely study confirms what I and others with veterinary, medical and scientific background and understanding of epidemiology and zoonoses advocate: All owned cats should be contained/enclosed and not allowed to go off their owners' property. This would help prevent local wildlife and stray and feral cats from being infected with the SARS-CoV-2 virus and becoming a public health risk as reservoirs of potential infection for years to come. Also, cats infected by humans with this virus could pass on the infection to people as happened in Thailand. (3).Virologists have established that  a cat belonging to a COVID-19 positive family sneezed in the face of a veterinarian testing the cat for this disease. Such cases of cat-to-human transmission are probably rare, and researchers emphasize that people should care for their cats — and perhaps take extra precautions when handling cats that might be infected — and not abandon them.
+
+References
+
+1.Bienzle D, Rousseau J, Marom D, MacNicol J, et al). Risk Factors for SARS-CoV-2 Infection and Illness in Cats and Dogs1. Emerg Infect Dis. 2022 Jun;28(6):1154-1162. 2022.
+ 
+2.CTV News (Canada)/The Canadian Press (6/26)
+
+3.Sila, T Sunghan,J. Laochareonsuk.W et al Suspected Cat-to-Human Transmission of SARS-CoV-2, Thailand, July–September 2021 Emerg. Infect. Dis. 28, 1485–1488 2022
+
+
+Blood samples from 8% of cats being treated for unrelated conditions at the University of Minnesota veterinary college clinic tested positive for COVID-19 antibodies. (Star Tribune, Science & Health. p.2, July 25th 2021).
 
 
 These studies underscore the importance of not letting cats roam free because of the possibility of human-infected cats infecting other cats and wildlife and then establishing a reservoir of infection in the community. 
