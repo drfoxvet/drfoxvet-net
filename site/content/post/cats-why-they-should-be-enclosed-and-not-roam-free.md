@@ -34,6 +34,17 @@ In their review article “Rabies Prevention and Management of Cats in the Conte
 
 
 
+Rabies, Cats and Coyotes. 
+
+While non-profit organizations like projectcoyote.org are helping communities live in greater harmony with coyotes who are moving into many previously coyote-free places across the U.S., many wish for their extermination, fearing rabies. This disease is transmitted by the bites and saliva of infected animals, Each year, rabies causes approximately 59,000 deaths worldwide.
+ In the CDC’s 2020 rabies surveillance report ( https://doi.org/10.2460/javma.22.03.0112) only 11 coyotes tested positive as compared with a total of 288 cats, a number that has increased from 245 reported in 2019. Only 57 dogs tested positive in 2020, a drop from 66 in 2019.
+
+
+Municipalities need to consider these findings and take every measure to improve public health standards by mandating, as with dogs, rabies vaccinations for all owned cats and not allowing cats to roam free in their neighborhoods.  Many such communities have skunks, raccoons, foxes and bats who, as this CDC report documents, serve as reservoirs for rabies infection. This could be quickly passed on to outdoor cats and then from the cats to people when they return home or when they bite people who contact them outdoors. This virus affects animals’ brains and is appropriately called ‘le rage’ because infected animals are hyper-aggressive and bite at whatever they can, as I have witnessed working at the animal hospital and refuge my wife Deanna Krantz founded and ran in S. India over a decade ago.
+
+
+All engaged in TNVR-trap, neuter-vaccinate (against rabies) and release “community cat” programs should cease and desist because these cats can rarely be trapped again for needed re-vaccination if they survive such inhumane abandonment. While it is true that cases of cat-to-human rabies infection are rare in the U.S., the incidence of rabies in wildlife is on the upswing, increasing the risk of cats becoming infected: And, as the CDC notes: “The number of human rabies deaths in the United States has been steadily declining since the 1970’s thanks to animal control and vaccination programs, successful outreach programs, public health capacity and laboratory diagnostics, and the availability of modern rabies biologics. Yet each year, hundreds of thousands of animals need to be placed under observation or be tested for rabies, and between 30,000 to 60,000 people need to receive rabies postexposure prophylaxis.” https://www.cdc.gov/rabies/location/usa/surveillance/human_rabies.html
+
 
 
  Few municipalities have any effective ordinances mandating keeping cats indoors or enclosed on private property, creating a perfect storm, now exacerbated by climate change in many areas with increased rainfall and humidity and mosquitoes becoming insecticide-resistant. Thus a perfect storm is created for the spread of mosquito-borne diseases in communities that can sicken and kill people, companion animals, livestock and wildlife.
