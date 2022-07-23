@@ -24,6 +24,11 @@ FREE-ROAMING CATS MAY CONTRIBUTE TO RISING INCIDENCE OF MOSQUITO-BORNE DISEASES
 
 Most municipalities in the U.S. use sprays to kill adult mosquitoes and pellets of insecticides spread often by helicopters over lakes to kill mosquito larvae. But in the process, they kill beneficial aquatic insects and other aquatic species that would consume the mosquito larvae while insectivorous reptiles, amphibians, bats and birds starve to death because their main food source of mosquitoes and other beneficial insects This loss of biodiversity, exacerbated by herbicides and insecticides used in agriculture, forestry and by gardeners, leads to dysbiosis and the proliferation of disease-transmitting chemical-resistant insects, notably sandflies, ticks and midges as well as various mosquito species.
 
+Few municipalities have any effective ordinances mandating keeping cats indoors or enclosed on private property, creating a perfect storm, now exacerbated by climate change in many areas with increased rainfall and humidity and mosquitoes becoming insecticide-resistant. Thus a perfect storm is created for the spread of mosquito-borne diseases in communities that can sicken and kill people, companion animals, livestock and wildlife.
+
+
+NOTE: Two people in Delaware tested positive in Oct. 2021 for West Nile virus, and an unvaccinated horse with WNV was euthanized Oct. 5 after the animal became unable to stand. Both West Nile virus and Eastern equine encephalitis can be fatal to equids, and owners should "work with their veterinarian to set up a routine vaccination protocol," said Deputy State Veterinarian Karen Lopez .Full Story: WBOC-TV (Salisbury, Md.) (10/8/21) 
+
 CATS, TNVR & RABIES
 
 
@@ -47,12 +52,10 @@ All engaged in TNVR-trap, neuter-vaccinate (against rabies) and release “commu
 
 
 
- Few municipalities have any effective ordinances mandating keeping cats indoors or enclosed on private property, creating a perfect storm, now exacerbated by climate change in many areas with increased rainfall and humidity and mosquitoes becoming insecticide-resistant. Thus a perfect storm is created for the spread of mosquito-borne diseases in communities that can sicken and kill people, companion animals, livestock and wildlife.
-NOTE: Two people in Delaware tested positive in Oct. 2021 for West Nile virus, and an unvaccinated horse with WNV was euthanized Oct. 5 after the animal became unable to stand. Both West Nile virus and Eastern equine encephalitis can be fatal to equids, and owners should "work with their veterinarian to set up a routine vaccination protocol," said Deputy State Veterinarian Karen Lopez .Full Story: WBOC-TV (Salisbury, Md.) (10/8/21) 
+ 
 
 
-
-IN-FIELD STUDY OF PREDATION BY HOUSE CATS
+ IN-FIELD STUDY OF PREDATION BY HOUSE CATS
 Researchers distributed GPS tracking backpacks to pet owners in six countries, including the United States, United Kingdom, Australia, and New Zealand. They collected data on both how far 925 pet cats roamed and how many animals they hunted down. Pet cats kill between two and ten times more wildlife than native predators, the researchers found.  
 
 
@@ -65,7 +68,21 @@ R.Kays et al The small home ranges and large local ecological impacts of pet cat
 CAT HEALTH AND WELFARE CONCERNS: 
 
 Cats allowed off their property can get lost, hit and injured or killed by traffic, coyotes, dogs and other large animals as well as being trapped, shot, poisoned, bitten and infected by other cats, notably with feline AIDS and get feline infectious leukemia and other viral infections. Cats with feline panleukopenia have infected and killed endangered Florida panthers.
- 
+
+BOT FLY MAGGOT (WARBLES) SKIN INFECTIONS IN CATS
+
+Outdoor cats who are not treated for bot and other fly maggot infections develop chronic secondary infections and suffer considerably. Several fly species can infect wounds, causing a condition called myiasis. According to one extensive review (Pezzi M, Bonacci T, Leis M, et al, Myiasis in domestic cats: a global review. Parasit Vectors. 2019 Jul 29;12(1):372. doi: 10.1186/s13071-019-3618-1.  “Factors favouring the occurrence of myiasis in cats are prowling in infested areas, poor hygiene conditions due to diseases and/or neglect, and wounds inflicted during territorial or reproductive competition.”
+
+ According to a posting on this subject,  (https://vcahospitals.com/know-your-pet/cuterebra-or-warbles-in-cats) “Cats are accidental hosts of Cuterebra larvae. They are most commonly infected when they are hunting rodents or rabbits and encounter the botfly larvae near the entryway to a rodent's burrow. The adult botfly deposits its eggs near or in the opening of rodent and rabbit burrows. After hatching, the botfly larvae, which typically infect rodents and rabbits, enters the host's body through an opening such as the nose or mouth or through a skin wound. After several days, the botfly larvae migrate to the tissues beneath the skin where they encyst and continue their development. Most cases of warbles in cats occur around the head and neck. Most cats will develop a deep abscess or skin infection at the infection site after the warble has left the skin. How can I prevent my cat from getting warbles? The best prevention is to keep your cat from hunting rodents."
+
+
+CATS OUTDOORS MORE PRONE TO ORAL CANCER
+
+The incidence of oral, squamous cell cancer in cats, which is generally fatal, is estimated to account for 3% of all feline cancers. It can be avoided. The research study Environmental risk factors for the development of oral squamous cell carcinoma in cats by Riccardo Zaccone et al  27 May 2022 https://doi.org/10.1111/jvim.16372 identifies two major risk factors: outdoor access and petfood containing chemical additives. So, the best preventives are to keep cats indoors and feed good quality, ideally Organically Certified and at least additive- free cat foods, or make your own as per my recipe posted at https://drfoxonehealth.com/post/cat-food-recipe/
+
+
+
+ OUTDOOR CATS DISTURB THOSE INDOORS
 
 Indoor cats are upset by cats outdoors their reactions including redirected aggression toward their owners and companion cats in the home; spraying/territorial marking and stress-related cystitis and other health issues such as excessive grooming and house-soiling. These latter behavioral problems can mean abandonment, surrender to a shelter and euthanasia.
 
@@ -87,10 +104,10 @@ Kwame Anthony Appiah, writer of  the New York Times “The Ethicist” column, r
 
 
 
-Many people have improved the quality of life and overall well-being of their cats by first, having two or more cats rather than one, and secondly, providing access via a flap door set in a window pane or outside door to an enclosure as per the various “Catio” designs provided by the company Catio Spaces. Catio Plans range from $39.95-$69.95 and 10% is donated to animal welfare organizations.  See DIY Catio Plans:  https://catiospaces.com/catios-cat-enclosures/diy-plans/  Catio Spaces also offers free catio tips.  Visit www.CatioSpaces.comto learn more. 
+Many people have improved the quality of life and overall well-being of their cats by first, having two or more cats rather than one, and secondly, providing access via a flap door set in a window pane or outside door to an enclosure as per the various “Catio” designs provided by the company Catio Spaces. Catio Plans range from $39.95-$69.95 and 10% is donated to animal welfare organizations.  See DIY Catio Plans:  https://catiospaces.com/catios-cat-enclosures/diy-plans/  Catio Spaces also offers free catio tips.  Visit www.CatioSpaces.comto learn more.
+ 
+OTHER PUBLIC HEALTH CONCERNS
 
-
-PUBLIC HEALTH CONCERNS:
 
  Diseases transmissible from cats to humans include: Capnocytophaga, Chlamydiosis, ,Leptospirosis, MRSA resistant Staphylococcus aureus, Streptococcus A, Tuberculosis, Pasteurellosis, Plague, Salmonellosis, Yersiniosis, Tularemia,
 Cat flea typhus, Sporotrichosis, Cat scratch fever,(Bartonellosis) Ringworm ( Dermatophytosis),
