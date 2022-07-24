@@ -18,8 +18,9 @@ The "No Kill" animal shelter movement should not mean that cats considered to be
 
 The stress, health and behavioral problems of indoor cats disturbed by cats prowling, yowling and spraying around their homes are well documented. Some are euthanized when they begin to spray in the home or become aggressive, or are put on psychotropic medications. So it is inconsiderate and highly irresponsible for cat owners to allow their cats to roam free off their properties and calls for legislation to mandate cats being kept on their owners' property.
 *****************************************************************
-NOTE: COMMUNITY'S SCIENTIFIC ANALYSIS CONFIRMS: 
+SCIENTIFIC ANALYSIS CONFIRMS: 
 TNR NOT EFFECTIVE
+
 The City of Saratoga Springs, Utah, conducted an analysis on "The Science of Feral Cats" to help it understand and effectively address feral cat issues in the community. The report was initiated after Best Friends Animal Society called on the City to implement a trap, neuter, release (TNR) program. This extensive report (100 pages) found that "overwhelmingly, science does not support TNR programs as an effective method to reduce feral cat populations" and that such programs "fail to adequately mitigate the significant threat to public health or alleviate the negative impacts on wildlife that feral and free-roaming cats pose."
 ............................................................
 
