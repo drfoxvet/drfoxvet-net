@@ -136,11 +136,6 @@ Essentially, handle meat with care and cook well if you must eat it and keep cat
 Dr John Read | Wildlife Ecologist interview MAR 2020 · AUSSIE WILDLIFE SHOW on the threat of free ranging cats in Australia and cat control methods restoring ecological balance. Talks about the threat to humans -details toxoplasmosis. His book "Among the Pigeons, Why Cats Belong Inside" advocates for keeping pet cats indoors with a chapter on how TNR is ineffective. https://podtail.com/pt-BR/podcast/aussie-wildlife-show/dr-john-read-wildlife-ecologist/
 
 
-CATS, TNVR & RABIES
-
-
-In their review article “Rabies Prevention and Management of Cats in the Context of Trap, Neuter, Vaccinate, Release Programs”, veterinarians and scientists Allison D. Roebling, MPH, DVM, Dana Johnson, DVM, Jesse D. Blanton, MPH, Michael Levin, PhD, Dennis Slate, PhD, George Fenwick, PhD ,and Charles E. Rupprecht  PhD summarize their findings as follows::
-“Domestic cats are an important part of many Americans’ lives, but effective control of the 60–100 million feral cats living throughout the country remains problematic. Although Trap-Neuter-Vaccinate-Return (TNVR) programs are growing in popularity as alternatives to euthanizing feral cats, their ability to adequately address disease threats and population growth within managed cat colonies is dubious. Rabies transmission via feral cats is a particular concern as demonstrated by the significant proportion of rabies postexposure prophylaxis associated with exposures involving cats. Moreover, TNVR has not been shown to reliably reduce feral cat colony populations because of low implementation rates, inconsistent maintenance, and immigration of unsterilized cats into colonies. For these reasons, TNVR programs are not effective methods for reducing public health concerns or for controlling feral cat populations. Instead, responsible pet ownership, universal rabies vaccination of pets, and removal of strays remain integral components to control rabies and other diseases.” (Citation from Zoonoses Public Health. 2014 Jun; 61(4): 290–296. Published online 2013 Jul 17. doi: 10.1111/zph.12070)
 
 ## LOCAL AND PERSONAL CAT ISSUES
 
