@@ -9,7 +9,9 @@ CATS: WHY THEY SHOULD BE ENCLOSED AND NOT ROAM FREE
                                
 By Michael W. Fox BVetMed, PhD, DSc, MRCVS
 
-Presented to Minneapolis Animal Care and Control, August 12th 2021
+
+As will be documented in this review, one of the greatest animal health and welfare, wildlife conservation and public health concerns which are not being fully addressed in the U.S. and most other countries, and which can be quickly remedied by public education and legislation, is owned cats being allowed to roam free and un-neutered cats establishing feral populations in urban and rural communities and invading natural ecosystems.
+
 
 I love cats as well as all creatures wild and domesticated and am very opposed to allowing them to roam free. There is an estimated 24.5 million owned cats in the U.S. ( Source: 2017-2018 U.S. Pet Ownership & Demographics Sourcebook ).
  Unfortunately, there are no rigorous estimates for the number of feral cats living in the United States. The best available estimate suggests that the population is probably about 32 million, roughly 76% of whom live in urban areas. (Source: https://www.felineresearch.org/fast-facts-about-feral-cats). If half of America’s cat owners let their cats outdoors, this means there are around 44 million cats roaming free, at risk and putting wildlife and public health also at risk.
@@ -54,8 +56,7 @@ All engaged in TNVR-trap, neuter-vaccinate (against rabies) and release “commu
 
  
 
-
- IN-FIELD STUDY OF PREDATION BY HOUSE CATS
+IN-FIELD STUDY OF PREDATION BY HOUSE CATS
 Researchers distributed GPS tracking backpacks to pet owners in six countries, including the United States, United Kingdom, Australia, and New Zealand. They collected data on both how far 925 pet cats roamed and how many animals they hunted down. Pet cats kill between two and ten times more wildlife than native predators, the researchers found.  
 
 
@@ -69,9 +70,40 @@ CAT HEALTH AND WELFARE CONCERNS:
 
 Cats allowed off their property can get lost, hit and injured or killed by traffic, coyotes, dogs and other large animals as well as being trapped, shot, poisoned, bitten and infected by other cats, notably with feline AIDS and get feline infectious leukemia and other viral infections. Cats with feline panleukopenia have infected and killed endangered Florida panthers.
 
+Domestic cats also carry feline viral diseases such as feline leukemia virus which has infected and killed endangered Florida panthers. ( See  Multiple Introductions of Domestic Cat Feline Leukemia Virus in Endangered Florida Panthers by  Elliott S Chiu, Simona Kraberger, Mark Cunningham et al Emerg Infect Dis 2019 Jan;25(1):92-101. doi: 10.3201/eid2501.181347.)
+
+
+Feline distemper, also called feline panleukopenia, is an acute, highly infectious viral disease common in unvaccinated domestic cats that can affect other members of the Felidae, (bobcat, lynx,) and  Procyonidae, (raccoon) and Mustelidae.( ferret, mink, weasel, marten, fisher, otter, badger, skunk, wolverine) ( See https://www.michigan.gov/dnr/0,4570,7-350-79136_79608_85016-26505--,00.html).
+
+
+Feline AIDS or feline immunodeficiency virus has also been detected in Florida panthers.( See Miller, D.L., Taylor, S.K., Rotstein, D.S. et al. Feline Immunodeficiency Virus and Puma Lentivirus in Florida panthers (Puma concolor coryi): Epidemiology and Diagnostic Issues. Vet Res Commun 30, 307–317 (2006). https://doi.org/10.1007/s11259-006-3167-x )
+
+
+Pumas, bobcats, and domestic cats are sympatric in many areas of North America and share many of the same pathogens, some of which are zoonotic. Researchers analyzed bobcat, puma, and feral domestic cat samples collected from targeted geographic areas. They examined exposure to three pathogens that are taxonomically diverse (bacterial, protozoal, viral), that incorporate multiple transmission strategies (vector-borne, environmental exposure/ingestion, and direct contact), and that vary in species-specificity. (See Sarah N. Bevins,  Scott Carver, Erin E. Boydston et al Three Pathogens in Sympatric Populations of Pumas, Bobcats, and Domestic Cats: Implications for Infectious Disease Transmission PLoS One. 2012; 7(2): e31403. 10.1371/journal.pone.0031403
+They reported: “Bartonella spp., Feline Immunodeficiency Virus (FIV), and Toxoplasma gondii IgG were detected in all three species with mean respective prevalence as follows: puma 16%, 41% and 75%; bobcat 31%, 22% and 43%; domestic cat 45%, 10% and 1%. Bartonella spp. were highly prevalent among domestic cats in Southern California compared to other cohort groups.
+
+ Feline Immunodeficiency Virus exposure was primarily associated with species and age, and was not influenced by geographic location. Pumas were more likely to be infected with FIV than bobcats, with domestic cats having the lowest infection rate. Toxoplasma gondii seroprevalence was high in both pumas and bobcats across all sites; in contrast, few domestic cats were seropositive, despite the fact that feral, free ranging domestic cats were targeted in this study. Interestingly, a directly transmitted species-specific disease (FIV) was not associated with geographic location, while exposure to indirectly transmitted diseases – vector-borne for Bartonella spp. and ingestion of oocysts via infected prey or environmental exposure for T. gondii – varied significantly by site.”
+
+
+See also  Frequent cross-species transmissions of foamy virus between domestic and wild felids .by Kraberger S, Fountain-Jones NM, Gagne RB,et al Virus Evol. 2020 Jan 12;6(1):vez058. doi: 10.1093/ve/vez058. eCollection 2020 Jan.PMID: 31942245 
+Assessing cross-species transmission of hemoplasmas at the wild-domestic felid interface in Chile using genetic and landscape variables analysis .by Sacristán I, Acuña F, Aguilar E, et al Sci Rep. 2019 Nov 14;9(1):16816. doi: 10.1038/s41598-019-53184-4.).
+Feline calicivirus can be passed on from infected cats to other wildlife according to a study by Seth P. D. Riley, Janet Foley, and Bruno Chomel.  Exposure to feline and canine Pathogens In Bobcats and Gray Foxes in Urban and rural Zones of a National Park in California.   Journal of Wildlife Diseases, 40(1), 2004, pp. 11–22 q 
+Feline parvovirus, which has a high incidence in unvaccinated cat populations, can also be passed on to raccoons and foxes .( PARVOVIRUSES (PARVOVIRIDAE) | Cats, Dogs and Mink Colin R. Parrish, in Encyclopedia of Virology (Second Edition), 1999)
+
+
+ Feline scabies (Notoedres cati and Sarcoptes scabiei  )  are a parasitic skin infestation which can decimate wolf packs and infect foxes, coyotes, bobcats and other wildlife as well as humans and can be spread by free-roaming cats infested by these mites.  ( See Error! Hyperlink reference not valid.Jul 19, 2019 — A dedicated TNR advocate struggles to find help for the feral cats).
+
+
+Cats can play a role in the spread of other emerging diseases like Q fever (Meredith AL, Cleaveland SC, Denwood MJ, et al.  Coxiella burnetii (Q-Fever) Seroprevalence in Prey and Predators in the United Kingdom: Evaluation of Infection in Wild Rodents, Foxes and Domestic Cats Using a Modified ELISA. Transbound Emerg Dis. 2015 Dec;62(6):639-49. doi: 10.1111/tbed.12211. Epub 2014 Jan 31. PMID: 24479951.) 
+
+
+Rather than offering more supportive citations to stress the urgent need to protect all wild felids like Bobcats, Lynx and Panthers/Cougars and other wildlife species, not simply from the competitive predation by domestic cats but from diseases they can contract from infective cats, better community control of domestic cats coupled with owner-education and legislation to not allow cats to roam free are called for. But this is not to discount the significance of competing with indigenous predators for food/prey.
+
+
 BOT FLY MAGGOT (WARBLES) SKIN INFECTIONS IN CATS
 
-Outdoor cats who are not treated for bot and other fly maggot infections develop chronic secondary infections and suffer considerably. Several fly species can infect wounds, causing a condition called myiasis. According to one extensive review (Pezzi M, Bonacci T, Leis M, et al, Myiasis in domestic cats: a global review. Parasit Vectors. 2019 Jul 29;12(1):372. doi: 10.1186/s13071-019-3618-1.  “Factors favouring the occurrence of myiasis in cats are prowling in infested areas, poor hygiene conditions due to diseases and/or neglect, and wounds inflicted during territorial or reproductive competition.”
+Outdoor cats who are not treated for bot and other fly maggot infections develop chronic secondary infections and suffer considerably. Several fly species can infect wounds, causing a condition called myiasis. According to one extensive review (Pezzi M, Bonacci T, Leis M, et al, Myiasis in domestic cats: a global review. Parasit Vectors. 2019 Jul 29;12(1):372. doi: 10.1186/s13071-019-3618-1.  “Factors favouring the occurrence of myiasis in cats are prowling in infested areas, poor hygiene conditions due to diseases and/or neglect, and wounds inflicted during territorial or reproductive competition."
+
 
  According to a posting on this subject,  (https://vcahospitals.com/know-your-pet/cuterebra-or-warbles-in-cats) “Cats are accidental hosts of Cuterebra larvae. They are most commonly infected when they are hunting rodents or rabbits and encounter the botfly larvae near the entryway to a rodent's burrow. The adult botfly deposits its eggs near or in the opening of rodent and rabbit burrows. After hatching, the botfly larvae, which typically infect rodents and rabbits, enters the host's body through an opening such as the nose or mouth or through a skin wound. After several days, the botfly larvae migrate to the tissues beneath the skin where they encyst and continue their development. Most cases of warbles in cats occur around the head and neck. Most cats will develop a deep abscess or skin infection at the infection site after the warble has left the skin. How can I prevent my cat from getting warbles? The best prevention is to keep your cat from hunting rodents."
 
