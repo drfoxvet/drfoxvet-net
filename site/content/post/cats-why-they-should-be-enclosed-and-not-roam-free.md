@@ -50,13 +50,10 @@ While non-profit organizations like projectcoyote.org are helping communities li
 Municipalities need to consider these findings and take every measure to improve public health standards by mandating, as with dogs, rabies vaccinations for all owned cats and not allowing cats to roam free in their neighborhoods.  Many such communities have skunks, raccoons, foxes and bats who, as this CDC report documents, serve as reservoirs for rabies infection. This could be quickly passed on to outdoor cats and then from the cats to people when they return home or when they bite people who contact them outdoors. This virus affects animals’ brains and is appropriately called ‘le rage’ because infected animals are hyper-aggressive and bite at whatever they can, as I have witnessed working at the animal hospital and refuge my wife Deanna Krantz founded and ran in S. India over a decade ago.
 
 
-All engaged in TNVR-trap, neuter-vaccinate (against rabies) and release “community cat” programs should cease and desist because these cats can rarely be trapped again for needed re-vaccination if they survive such inhumane abandonment. While it is true that cases of cat-to-human rabies infection are rare in the U.S., the incidence of rabies in wildlife is on the upswing, increasing the risk of cats becoming infected: And, as the CDC notes: “The number of human rabies deaths in the United States has been steadily declining since the 1970’s thanks to animal control and vaccination programs, successful outreach programs, public health capacity and laboratory diagnostics, and the availability of modern rabies biologics. Yet each year, hundreds of thousands of animals need to be placed under observation or be tested for rabies, and between 30,000 to 60,000 people need to receive rabies postexposure prophylaxis.” https://www.cdc.gov/rabies/location/usa/surveillance/human_rabies.html
-
-
-
- 
+All engaged in TNVR-trap, neuter-vaccinate (against rabies) and release “community cat” programs should cease and desist because these cats can rarely be trapped again for needed re-vaccination if they survive such inhumane abandonment. While it is true that cases of cat-to-human rabies infection are rare in the U.S., the incidence of rabies in wildlife is on the upswing, increasing the risk of cats becoming infected: And, as the CDC notes: “The number of human rabies deaths in the United States has been steadily declining since the 1970’s thanks to animal control and vaccination programs, successful outreach programs, public health capacity and laboratory diagnostics, and the availability of modern rabies biologics. Yet each year, hundreds of thousands of animals need to be placed under observation or be tested for rabies, and between 30,000 to 60,000 people need to receive rabies post exposure prophylaxis.” https://www.cdc.gov/rabies/location/usa/surveillance/human_rabies.html
 
 IN-FIELD STUDY OF PREDATION BY HOUSE CATS
+
 Researchers distributed GPS tracking backpacks to pet owners in six countries, including the United States, United Kingdom, Australia, and New Zealand. They collected data on both how far 925 pet cats roamed and how many animals they hunted down. Pet cats kill between two and ten times more wildlife than native predators, the researchers found.  
 
 
@@ -112,9 +109,7 @@ CATS OUTDOORS MORE PRONE TO ORAL CANCER
 
 The incidence of oral, squamous cell cancer in cats, which is generally fatal, is estimated to account for 3% of all feline cancers. It can be avoided. The research study Environmental risk factors for the development of oral squamous cell carcinoma in cats by Riccardo Zaccone et al  27 May 2022 https://doi.org/10.1111/jvim.16372 identifies two major risk factors: outdoor access and petfood containing chemical additives. So, the best preventives are to keep cats indoors and feed good quality, ideally Organically Certified and at least additive- free cat foods, or make your own as per my recipe posted at https://drfoxonehealth.com/post/cat-food-recipe/
 
-
-
- OUTDOOR CATS DISTURB THOSE INDOORS
+OUTDOOR CATS DISTURB THOSE INDOORS
 
 Indoor cats are upset by cats outdoors their reactions including redirected aggression toward their owners and companion cats in the home; spraying/territorial marking and stress-related cystitis and other health issues such as excessive grooming and house-soiling. These latter behavioral problems can mean abandonment, surrender to a shelter and euthanasia.
 
@@ -174,6 +169,8 @@ Bartonellosis, commonly called cat scratch fever, is now being recognized as a p
 
 
  Preventing this disease is not feasible when owned cats are allowed outdoors because they are likely to pick up and bring home fleas. Anti-flea drugs, many putting cats at risk from toxicity, that do not immediately kill on contact but must first be ingested by the fleas from the blood of orally medicated cats are no insurance against Bartonellosis and other flea-borne diseases such as typhus and plague. Humans, infants in particular, while playing on the floor, may accidentally swallow a flea infected with Dipylidium tapeworm larvae and become parasitized.
+
+TULAREMIA: Cats that spend time outdoors may be exposed to ticks or animals carrying Francisella tularensis, which causes tularemia in cats, people and other species. It doesn't take much bacteria to cause illness, so it's wise to use a tick preventive and seek veterinary care for animals that show signs of illness such as fever, lethargy or appetite changes and people should watch out for cat bites and scratches, which can pass the pathogen to humans. Full Story: Farm Forum (7/26/22) 
 
 
  Visceral larva migrans (VLM) or toxocariasis is a zoonotic infection usually caused by dog or cat round worms of the Toxocara genus. The eggs passed out in the feces are ingested and then hatch into larvae, which penetrate the intestine and start migrating. Because humans are not the definitive host, the larvae cannot mature, and so continue migrating for months or years.
