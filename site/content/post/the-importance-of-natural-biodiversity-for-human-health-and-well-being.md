@@ -2,7 +2,7 @@
 title: The Importance of Natural Biodiversity for Human Health and Well-being
 date: 2019-10-12T20:13:44.369Z
 tags:
-  - Environment
+  - Public Health
 ---
   THE IMPORTANCE OF NATURAL BIODIVERSITY FOR OUR HEALTH & WELL-BEING
 
