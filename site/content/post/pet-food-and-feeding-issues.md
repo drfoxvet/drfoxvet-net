@@ -148,7 +148,33 @@ Some pet food labels will also list Ash. If they do not, estimate Ash at 6%.
 To estimate carbohydrates, subtract all of the above EXCEPT Fiber (Fiber is a carbohydrate) from the total of 100%. Such as...
 20% + 7% + 8% + 6% = 41%. 100% - 41% = 59% carbohydrates.
 This is only an estimate, but the standard method to calculate carbs in a pet food. Here is a post from friend Rodney Habib on this: https://www.planetpaws.ca/2015/07/05/how-to-calculate-how-many-carbs-are-in-a-bag-of-pet-food/
----From Susan Thixton ( www.truthaboutpetfood.com)..
+---From Susan Thixton ( www.truthaboutpetfood.com).
+
+
+THE KINDS OF FOOD CONSUMED CAN CHANGE US AND OUR PETS
+
+Dog's gut metabolite balance starts changing within two days of switching abruptly to either a high-fiber or high-fat diet, and the bacterial community changes dramatically within a week as "wallflower bacteria" multiply rapidly in response to new nutrients, according to a study in Animal Microbiome. The findings may be applicable to humans and other species, and they support common advice to transition animals to a new diet gradually, study co-author Kelly Swanson says. Full Story: HealthDay News (8/4/22)
+
+
+This gut community of bacteria, the microbiome, and its health, is influenced by what food is consumed, which, in turn, affects the health of the consumer. Good diets encourage the proliferation of some bacteria that provide us and other animals with beneficial nutrients and hormones such as the anti-depressant serotonin. Indeed, what we eat can affect our mood and behavior and immune systems and more research is confirming this in other species was well. 
+
+For a healthy mind-body we need a healthy gut microbiome which calls for health-promoting foods. Dogs, and probably humans, are less aggressive when their diets contain certain nutrients such as tryptophan which might also benefit the microbiome. Inflammatory bowel conditions and other health problems are often improved by adding prebiotics and probiotics to the diet in order to restore a healthy microbiome. For such supplements for pets see Dr. Bob Goldstein's Daily Health Nuggets posted on www.earthanimal.com. And for more insights, read https://www.science.org/content/article/meet-psychobiome-gut-bacteria-may-alter-how-you-think-feel-and-act
+
+However, processed food manufacturers, from  chip snacks to kid’s cereals and and various pet foods, have included additives that can trick the innate nutritional wisdom into consumer acceptance and even addiction. Good for business but not for health! 
+
+
+I wonder about the pre-slaughter terror and stress hormones which can affect meat quality and all the drugs given to factory farmed animals and their effects on this microbiome and our psyches and somas. The novice American Indian hunter was traditionally advised to kill the deer not only with respect and remorse, but also swiftly with one arrow, otherwise whatever fear the animal experienced would be passed on to all who ate that meat.
+
+
+Most consumers never know in any way the animals they consume other than as a piece of flesh from a castrated or spayed and hormone-treated, feedlot over-fatted ‘beef’ calf, or from a pig or chicken raised under  crowded conditions that create stress, suffering, and disease. No animal needs to be killed in order for most of us to be well nourished. Few know the suffering behind every egg they consume from a hen whose living space with four other hens in a ‘battery’cage is barely half the size of an opened newspaper page. And then there are dairy products from cows, many injected with a genetically engineered growth hormone, who were deprived of and bawled terribly for their newborn calves, their milk going to us instead of to them. 
+
+
+Most of these factory farmed animals are fed genetically engineered foods containing pesticide residues which certainly can disrupt the gut microbiome.
+
+A few pet foods such as Earth Animal’s Wisdom dog food, The Honest Kitchen and Halo include animal ingredients that are certified humane by the  Global Animal Partnership: An international organization establishing humane standards for farmed animals and their produce; G.A.P. Animal Welfare Certified : https://globalanimalpartnership.org/pet-parents/
+
+
+
 
 
 SOY CONCERNS
