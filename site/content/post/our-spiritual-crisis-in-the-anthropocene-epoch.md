@@ -27,6 +27,24 @@ Compassion fatigue may include a diminution of empathy but it is the antithesis 
 
 The climate and plant and animal extinction crises are a consequence of our collectively ignorant, harmful and destructive existence. The looming food, public health and economic security crises are also a consequence of our non-sustainable numbers and appetites. This must all change if we are to evolve rather than continue to devolve and possibly perish or see ever more millions die in wars, famines, pandemics, floods, fires, droughts and unlivable temperatures.
 
+LIVING IN ACCORD WITH NATURAL SYSTEMS 
+
+
+
+The mythic quest for infinite economic growth and the reality of an ever-increasing population have combined to trigger and accelerate climate change and the annihilation of the Earth’s biodiversity and metabolic, ecologic and other natural systems and processes. Yet it is precisely and only upon the functional integrity and interdependence of these natural, organic systems and our consonance with them that the health of our economy and species are secured along with that of other animal and plant species.
+
+My colleague the late Dr. Barry Commoner, who invited me to join his Center for the Biology of Natural Systems while I was at Washington University St. Louis as a tenured associate professor of psychology in the late 1960’s, sought to make this symbiotic consonance a reality. 
+One of Commoner's lasting legacies is his four laws of ecology, as written in The Closing Circle in 1971. The four laws are:
+1.	Everything is connected to everything else. There is one ecosphere for all living organisms and what affects one, affects all.
+2.	Everything must go somewhere. There is no "waste" in nature and there is no "away" to which things can be thrown.
+3.	Nature knows best. Humankind has fashioned technology to improve upon nature, but such change in a natural system is, says Commoner, "likely to be detrimental to that system"
+4.	There is no such thing as a free lunch. Exploitation of nature will inevitably involve the conversion of resources from useful to useless forms. 
+
+When our politics and economics, health care, education, agriculture and all other commercial and industrial activities are designed to be integrated mindfully in concord with natural organic systems, we may yet save us from ourselves and the nemesis of socio-economic and ecological collapse. Responsible self-governance in harmony with natural systems is a keystone bioethical (science-based ethics) principle for a viable future. 
+
+The late, legendary theoretical physicist Prof. Paul Hawken opined: "At present we are stealing the future, selling it in the present, and calling it gross domestic product. We can just as easily have an economy that is based on healing the future instead of stealing it. We can either create assets for the future or take the assets of the future. One is called restoration and the other exploitation. And whenever we exploit the earth we exploit people and cause untold suffering. Working for the earth is not a way to get rich, it is a way to be rich."
+
+
 
  Nature has become our nemesis rather than sustaining provider because in satisfying our material needs, we have sacrificed the spiritual that enabled and ennobled us to live in harmony with all our relations that make up the life community of planet Earth. When we disrespect and disregard these relationships ---our sacred connections and duties to preserve and protect according to the Anishinaabe, we bring on what the Hopi Indians call Koyaanisquatsi, life out of balance.
 
