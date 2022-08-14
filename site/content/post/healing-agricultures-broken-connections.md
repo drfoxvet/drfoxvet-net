@@ -104,6 +104,25 @@ Advances in the science and bioethics of alternative human and veterinary medici
 
 The death of Nature will mean the death of humanity, since our humanity is derivative of the natural world, and has no primacy either in origin or in significance. There is nothing miraculously different separating the existence of ants and earthworms from mice and men. All are different manifestations of being, of the life force. None is more significant, in itself, than any other in contributing to the diversity and dynamic harmony of the life process and community. It is from this perspective of a reverential respect for all life and for its community, that through communion, the time of healing and hallowing will begin. This is a spiritual and ethical imperative, and a survival necessity for the human species in these times and at this stage in our evolution toward a wiser and more responsible, empathic and compassionate life form.
 
+ANTIBIOTIC RESISTANT BACTERIA: ANOTHER GLOBAL HEALTH CRISIS
+
+Back in the early 1980s I was involved in addressing various animal welfare, environmental and public health concerns involving intensive animal “factory farms” which were documented in my 1986 book Agricide: The Hidden Farm and Food Crisis That Affects Us All. I met with the Director of the Bureau of Veterinary Medicine to appeal for immediate action to curtail the feeding of human-life-saving antibiotics to farm animals which were being given to boost productivity and profits and to protect them from diseases to which the inhumane conditions of over-crowding made them more susceptible. He shook his head, pointing to a pile of reports on his desk supporting my concerns about increasing bacterial resistance to antibiotics and told me that because of the political power of the pharmaceutical industry and livestock and poultry sectors, his hands were tied.
+
+
+Now, over 40 years later we face the consequences of what I consider tantamount to a crime against humanity stemming from this profit-driven misuse of antibiotics, marginally compounded the over-prescribing by physicians and over-the -counter availability in many countries.
+ 
+An analysis of human deaths associated with antibiotic resistant bacteria published in The Lancet on 19 January 2022, estimates that in 2019, 4.95 million people died from illnesses in which bacterial antimicrobial resistance (AMR) played a part. Of those, 1.27 million deaths were the direct result of AMR — meaning that drug-resistant infections killed more people than HIV/AIDS (864,000 deaths) or malaria (643,000 deaths). (Murray, C. L. J. et al. Global burden of bacterial antimicrobial resistance in 2019: a systematic analysis. Lancet https://doi.org/10.1016/S0140-6736(21)02724-0 (2022).
+
+
+According to a recent comparative analysis of human and farm animal use of antibiotics, “Use of antibiotics in human medicine has remained consistent since 2009. It even declined slightly since 2017, despite the year-on-year increase in the U.S. population. By contrast, sales of these same drugs for use in livestock increased 11.3% from 2017 to 2019, from 5.6M kg to 6.2M kg. Livestock sales are now nearly double the sales for human medicine (6.19M kg vs. 3.30M kg). The net increase in livestock sales since 2017 is entirely due to more antibiotics being sold for use in pig and cattle production.”  (https://www.nrdc.org/experts/david-wallinga-md/us-livestock-antibiotic-use-rising-medical-use-falls)
+
+
+
+This analysis concludes with this important statement: “”The CDC states that 75% of dangerous new infections, including pandemics, spill over from animals to human populations. These animal-borne threats include viruses as well as new forms of antibiotic resistance genes and the multi-drug resistant superbugs that carry them. Pandemic preparedness and public health protection should be our nation’s foremost priority. We must therefore invest to robustly to track antibiotic resistance and antibiotic use wherever it occurs.”
+
+
+
+
  GOOD NEWS FROM EUROPE FOR FARMED ANIMALS
 
 Thanks to the efforts of European citizens’ campaign End the Cage Age, the European Parliament has resoundingly voted to pass a resolution calling for the European Commission to develop legislative language to end cage and crate confinement of farm animals with a potential target starting date of 2017.The use of cages for laying hens, rabbits, pullets, broiler and layer breeders, quail, ducks and geese, farrowing crates for sows, sow stalls and individual calf pens would be prohibited along with the force-feeding of geese and ducks for foie gras. ( JAVMA News, Aug 15th 2021, Vol. 259. P.335).
