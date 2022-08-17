@@ -2,7 +2,7 @@
 title: 'Companion Animals: Responsibilities, care and Rights'
 date: 2022-05-10T17:09:58.609Z
 tags:
-  - Ethics
+  - Ethical Issues
 ---
  COMPANION ANIMALS: RESPONSIBILITIES, CARE,AND RIGHTS
 
