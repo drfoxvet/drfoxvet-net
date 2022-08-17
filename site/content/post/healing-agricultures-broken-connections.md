@@ -121,9 +121,17 @@ According to a recent comparative analysis of human and farm animal use of antib
 This analysis concludes with this important statement: “”The CDC states that 75% of dangerous new infections, including pandemics, spill over from animals to human populations. These animal-borne threats include viruses as well as new forms of antibiotic resistance genes and the multi-drug resistant superbugs that carry them. Pandemic preparedness and public health protection should be our nation’s foremost priority. We must therefore invest to robustly to track antibiotic resistance and antibiotic use wherever it occurs.”
 
 
+ROUNDUP HEBICIDE GLYPHOSATE AFFECTS OUR BRAINS-AND MORE
 
 
- GOOD NEWS FROM EUROPE FOR FARMED ANIMALS
+Glyphosate is used in hundreds of herbicide products and is considered the most widely used weed killer in the world. It is so ubiquitous that residues are commonly found in food, water, even in rainfall. The chemical was classified as a probable human carcinogen by the International Agency for Research on Cancer in 2015. 
+
+Research has now shown a link with neurogenerative diseases following ingestion of this herbicide which is a residue in many conventional crops and processed foods. Aberrant TNFα signaling has been implicated in numerous pathological conditions including cancer, rheumatoid arthritis, psoriasis, multiple sclerosis, as well as immune, inflammatory, and neurodegenerative diseases like Alzheimer’s disease (AD). 
+
+The authors summarize their findings; “Herbicides are environmental contaminants that have gained much attention due to the potential hazards they pose to human health. Glyphosate, the active ingredient in many commercial herbicides, is the most heavily applied herbicide worldwide. The recent rise in glyphosate application to corn and soy crops correlates positively with increased death rates due to Alzheimer’s disease and other neurodegenerative disorders. Glyphosate has been shown to cross the blood–brain barrier in in vitro models, but had yet to be verified in vivo. Additionally, reports have shown that glyphosate exposure increases pro-inflammatory cytokines in blood plasma, particularly TNFα. Collectively, these results show for the first time that glyphosate infiltrates the brain, elevates both the expression of TNFα and soluble Aβ, and disrupts the transcriptome in a dose-dependent manner, suggesting that exposure to this herbicide may have detrimental outcomes regarding the health of the general population.”--Winstone, J.K., Pathak, K.V., Winslow, W. et al. Glyphosate infiltrates the brain and increases pro-inflammatory cytokine TNFα: implications for neurodegenerative disorders. J Neuroinflammation 19, 193 (2022). https://doi.org/10.1186/s12974-022-02544-5
+
+
+GOOD NEWS FROM EUROPE FOR FARMED ANIMALS
 
 Thanks to the efforts of European citizens’ campaign End the Cage Age, the European Parliament has resoundingly voted to pass a resolution calling for the European Commission to develop legislative language to end cage and crate confinement of farm animals with a potential target starting date of 2017.The use of cages for laying hens, rabbits, pullets, broiler and layer breeders, quail, ducks and geese, farrowing crates for sows, sow stalls and individual calf pens would be prohibited along with the force-feeding of geese and ducks for foie gras. ( JAVMA News, Aug 15th 2021, Vol. 259. P.335).
 
