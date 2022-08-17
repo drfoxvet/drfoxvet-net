@@ -2,7 +2,6 @@
 title: 'Animal Rights, Human Rights And Wrongs'
 date: 2019-02-27T19:37:41.553Z
 tags:
-  - Ethics
   - Ethical Issues
   - Social Issues
   - Spiritual Issues
