@@ -6,7 +6,7 @@ tags:
   - Social Issues
   - Spiritual Issues
 ---
-The gulf between animal exploitation and animal kinship, and between animal abuse and animal liberation, is fundamentally a spiritual one. 
+The gulf between animal exploitation and animal kinship, and between animal abuse and animal liberation, is fundamentally a spiritual one. Until all animals are liberated from all forms of inhumane exploitation our humanity will continue its decline and possible extinction. 
 
  The absence of the Sacred is a societal norm today. So long as this gulf persists between the 'two cultures' of those who see life as a commodity and a means to an end for human gain, and of those who would treat all life with reverence and speak for animal rights, we and the world will never be well. And no amount of experimentation on animals in biomedical research laboratories will come up with the right cure.
 
