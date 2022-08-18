@@ -104,6 +104,15 @@ Outdoor cats who are not treated for bot and other fly maggot infections develop
 
  According to a posting on this subject,  (https://vcahospitals.com/know-your-pet/cuterebra-or-warbles-in-cats) “Cats are accidental hosts of Cuterebra larvae. They are most commonly infected when they are hunting rodents or rabbits and encounter the botfly larvae near the entryway to a rodent's burrow. The adult botfly deposits its eggs near or in the opening of rodent and rabbit burrows. After hatching, the botfly larvae, which typically infect rodents and rabbits, enters the host's body through an opening such as the nose or mouth or through a skin wound. After several days, the botfly larvae migrate to the tissues beneath the skin where they encyst and continue their development. Most cases of warbles in cats occur around the head and neck. Most cats will develop a deep abscess or skin infection at the infection site after the warble has left the skin. How can I prevent my cat from getting warbles? The best prevention is to keep your cat from hunting rodents."
 
+CATS OUTDOORS AT RISK FROM CRYPTOCOCCOSIS AND HISTOPLASMOSIS
+
+Often under-diagnosed when cats go blind or develop a fever, become lethargic, anorexic, lameness, skin nodules and respiratory distress, histoplasmosis is a fungal disease in the soil. It is the second most commonly reported fungal infection in cats, following cryptococcosis. 
+
+
+Cryptococcosis is a type of fungal infection that occurs when a cat inhales spores from a type of fungus that grows in organic material such as soil, decaying wood, or bird guano (especially droppings from pigeons). Spores also can enter the skin through an open wound.
+Since these fungi are everywhere in the soil, cats are likely to get the soil on their paws and ingest it when grooming, along with fungal spores. The spores could be inhaled or get into the fur in dry and dusty weather and when cats dig into the soil chasing small rodents or making a pit in which to defecate. The fungal diseases are a major reason to keep cats indoors and never use soil in the cat’s litter box.
+
+
 
 CATS OUTDOORS MORE PRONE TO ORAL CANCER
 
