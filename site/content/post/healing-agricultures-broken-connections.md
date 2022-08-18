@@ -5,6 +5,7 @@ tags:
   - Agriculture
   - Farmed Animals
   - Food
+  - Veterinary Issues
 ---
 Over millions of years animals and plants have co-evolved, establishing a matrix of symbiotic (mutually enhancing) relationships. For the animals, including the human species, this co-evolution brings the myriad benefits of life-sustaining and health-maintaining plant nutrients (proteins, complex carbohydrates, oils and minerals) as well as plant derived enzymes, neurohormonal precursors; and various other beneficial phytochemicals, along with prebiotics and nutrients essential for maintaining a healthy gut flora vital for the proper digestion and assimilation of food and immune system function.
 
