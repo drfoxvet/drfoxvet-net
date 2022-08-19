@@ -36,3 +36,18 @@ According to Ted Mischaikov, CEO of Healthy Pet, “Pulp mills have a variety of
  Some household cleaning and disinfecting products such as Lysol used in and around the litter box may put cats at risk, most notably Swiffer and other antibacterial cleaners and cationic detergents containing quaternary ammonium compounds which cats can groom off themselves or absorb through their paws after walking and lying on treated surfaces. (See Richard Malik et al Benzalkonium chloride intoxication in cats. _Veterinary Record_ Feb.28: p 226-227, 2015 and _Small Animal Toxicology_ by Michael E. Peterson & Patricia A. Talcott, 3rd edition, Elsevier Health Sciences, 2013).
 
 While some cat litters like those from Healthy Pet can be safely and effectively processed into garden compost, they are generally best disposed of in biodegradable bags placed in with household garbage. Disposal by flushing down the toilet may clog drains and spread disease such as _toxoplasmosis_ which has been linked to often fatal infections in California’s sea otters and other marine mammals. Pregnant women as well as people with impaired immune systems should handle soiled cat litter with caution or have others clean out the litter box because they are especially at risk when cats have this disease which, along with other potential pathogens, is passed out in their excreta.
+
+DO NOT USE GARDEN SOIL IN THE LITTER BOX
+
+Often under-diagnosed when cats go blind or develop a fever, become lethargic, anorexic, lameness, skin nodules and respiratory distress, histoplasmosis is a fungal disease in the soil. It is the second most commonly reported fungal infection in cats, following cryptococcosis. 
+
+Cryptococcosis is a type of fungal infection that occurs when a cat inhales spores from a type of fungus that grows in organic material such as soil, decaying wood, or bird guano (especially droppings from pigeons). Spores also can enter the skin through an open wound.
+
+Since these fungi are everywhere in the soil, cats are likely to get the soil on their paws and ingest it when grooming, along with fungal spores. The spores could be inhaled or get into the fur in dry and dusty weather and when cats dig into the soil chasing small rodents or making a pit in which to defecate. These fungal diseases are a major reason to keep cats indoors and never use soil in the cat’s litter box.
+
+
+
+
+D
+
+
