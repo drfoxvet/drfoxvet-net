@@ -63,3 +63,53 @@ CONCLUSIONS
 
 In sum, applying eugenics to animals for some alleged greater good must be subject to bioethical evaluation in every instance, considering the health, well-being and rights of each and every individual subjected to such treatment as well as the environmental/ecological, gene-pool, natural biodiversity and public health consequences. Perhaps if there were greater concern amongst the scientific community and an informed public over gene editing of non-humans equaling that expressed over gene editing of humans, we might indeed see greater progress for the common good and the good of the commons.
 
+REFERENCES
+
+1.Gillham NW. Sir Francis Galton and the birth of eugenics. Annu Rev Genet. 2001: 35;83-101. doi: 10.1146/annurev.genet.35.102401.090055. PMID: 11700278. 
+
+2.Fox MW. Veterinary Bioethics. J Am Vet Med Assoc.1996: 208;1628-1629.
+
+3. Jarvis S. Banning breeds: help or hindrance? Veterinary Record. 2022:190; 139
+
+4. Loeb J. Will breed ban result in rise of illegal activity? Veterinary Record, 2022: 190; 140.
+
+5. Pedersen NC, Pooch AS, & Liu H. A genetic assessment of the English bulldog. Canine Genet Epidemiol 2016:3;6  https://doi.org/10.1186/s40575-016-0036-y
+
+6. https://www.geminigenetics.com/how-similar-will-the-clone-be-to-my-pet/.Accessed 5/25/22
+
+7.Bondriansky R. Why Barbra Streisand’s cloned dogs aren’t identical to the original pet by The Coversation, 2018.March 1,  https://theconversation.com/why-barbra-streisands-cloned-dogs-arent-identical-to-the-original-pet-92656).
+
+8. Murphy B. Few replicas as first cloned cat nears 10. 2011.Phys Org   August 8
+https://phys.org/news/2011-08-replicas-cloned-cat-nears.html
+
+9. Normile D. CRISPR bombshell: Chinese researcher claims to have created gene-edited twins 2018..26 Nov . Science.  Error! Hyperlink reference not valid.
+
+10. Cheng H-W. Breeding of tomorrow’s chickens to improve well-being. Poultry Science 2010: 89: 805-813
+
+11. USDA. Mycoplasma bovis. An Emerging Pathogen in Ranched Buffalo. https://www.aphis.usda.gov/animal_health/nahms/bison/downloads/bison14/Bison14_Mbovis_1.pdf      Accessed May 25, 2022
+
+12. Singh P, Ali SA. Impact of CRISPR-Cas9-Based Genome Engineering in Farm Animals. Vet Sci. 2021:8;122.  doi:10.3390/vetsci8070122
+
+13 Khwatenge C N and  Nahashon SN. Recent Advances in the Application of CRISPR/Cas9 Gene Editing System in Poultry Species. 19 February 2021 Front. Genet. doi: 10.3389/fgene.2021.627714
+
+14. Perisse IV  Fan Z,  Singina, GN. et al. Improvements in Gene Editing Technology Boost Its Applications in Livestock. Front. Genet. 2021 January 8.doi: 10.3389/fgene.2020.614688
+
+15. Chenouard V, Remy S, Tesson  L. et al, Advances in Genome Editing and Application to the Generation of Genetically Modified Rat Models. Front. Genet 2021 April 20.. doi: 10.3389/fgene.2021.615491
+
+16. Norris AL, Lee SS, Greenlees KJ, et al. Template plasmid integration in germline genome-edited cattle. Nat Biotechnol. 2020:38;163-164. doi: 10.1038/s41587-019-0394-6. Epub 2020 Feb 7. Erratum in: Nat Biotechnol. 2020 Mar 5;: PMID: 32034391.
+
+17. Taylor JH., Walton JC., McCann, KE. et al CRISPR-Cas9 editing of the arginine–vasopressin V1a receptor produces paradoxical changes in social behavior in Syrian hamsters. PNAS  2022:119(19)e2121037119 https://doi.org/10.1073/pnas.2121037119
+
+18. Brackett NF, Davis BW. Adli M. et al, The CRISPR Journal. Apr 2022.213-223.http://doi.org/10.1089/crispr.2021.0101
+
+19. Cohen J. China’s CRISPR push in animals promises better meat, novel   therapies and pig organs for people. Science, 2019 July 31. .https://www.science.org/content/article/china-s-crispr-push-animals-promises-better-meat-novel-therapies-and-pig-organs-people
+
+20. Committee on Gene Drive Research in Non-Human Organisms: Recommendations for Responsible Conduct; Board on Life Sciences; Division on Earth and Life Studies; National Academies of Sciences, Engineering, and Medicine. Gene Drives on the Horizon: Advancing Science, Navigating Uncertainty, and Aligning Research with Public Values. Washington (DC):  National Academies Press (US); 2016 Jul 28. See also, https://www.nationalacademies.org/our-work/gene-drive-research-in-non-human-organisms-recommendations-for-responsible-conduct.
+
+21. Jarvis S. Editorial: Debating the ethics of gene editing. Veterinary Record 2022:190; 387
+
+22. Fox MW, Farm Animals: Husbandry, behavior and veterinary practice. 1984. Baltimore MD University Park Press. p157-160
+
+
+
+
