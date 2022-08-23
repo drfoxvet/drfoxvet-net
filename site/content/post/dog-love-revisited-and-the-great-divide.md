@@ -58,4 +58,6 @@ This great divide was eventually bridged by ethologists and other biological and
 
 Well before this Declaration, and in spite of the paranoid pontifications of Budiansky et al, veterinarians had been diagnosing and treating emotional conditions in animals also seen in humans, and with similar protocols and medications as for depression and separation anxiety, a field of veterinary care I helped establish in the early 1970s.
 
+For evidence of homologous and analogous human emotional responses in other animals including insects, crabs and lobsters, read the article ‘The question of animal emotions’ by Frans B.M.deWall and Kristin Andrews, published in Science https://www.science.org on March 24,2022: 1351-1352.
+
 When we liberate animals from all forms of cruel exploitation and incarceration we may yet recover our humanity
