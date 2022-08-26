@@ -130,6 +130,31 @@ It should also be added that micronutrient deficiencies, also a nutritional prob
 
 Recent studies in Canada, the U. S. and the U. K. have shown that fruits and vegetables are less nutritious than 30-50 years ago, showing often marked deficiencies in iron, copper, zinc, calcium, sodium, phosphorus, protein, vitamins C and riboflavin, a disturbing finding attributable, in part, to the fast-growing and large-yielding varieties of crops being grown today for human consumption: And to the use of chemical fertilizers, potassium fertilizer, for example, interferes with plants’ magnesium and phosphate absorption. Herbicides like Monsanto’s Roundup can interfere with plants’ uptake of iron and manganese. Widely used nitrogenous fertilizers can increase harmful nitrate levels in conventionally grown crops, lower the plant’s vitamin C content, and while increasing total protein content, the quality of the protein is inferior to organically grown crops, lacking in essential amino acids like lysine, which means lower quality food, and livestock feed.
 
+ROUNDUP HEBICIDE GLYPHOSATE AFFECTS OUR BRAINS-AND MORE
+
+
+Glyphosate is used in hundreds of herbicide products and is considered the most widely used weed killer in the world. It is so ubiquitous that residues are commonly found in food, water, even in rainfall. The chemical was classified as a probable human carcinogen by the International Agency for Research on Cancer in 2015.
+
+
+Research has now shown a link with neurogenerative diseases following ingestion of this herbicide which is a residue in many conventional crops and processed foods. Aberrant TNFα signaling has been implicated in numerous pathological conditions including cancer, rheumatoid arthritis, psoriasis, multiple sclerosis, as well as immune, inflammatory, and neurodegenerative diseases like Alzheimer’s disease (AD).
+
+
+The authors summarize their findings; “Herbicides are environmental contaminants that have gained much attention due to the potential hazards they pose to human health. Glyphosate, the active ingredient in many commercial herbicides, is the most heavily applied herbicide worldwide. The recent rise in glyphosate application to corn and soy crops correlates positively with increased death rates due to Alzheimer’s disease and other neurodegenerative disorders. Glyphosate has been shown to cross the blood–brain barrier in in vitro models, but had yet to be verified in vivo. Additionally, reports have shown that glyphosate exposure increases pro-inflammatory cytokines in blood plasma, particularly TNFα. Collectively, these results show for the first time that glyphosate infiltrates the brain, elevates both the expression of TNFα and soluble Aβ, and disrupts the transcriptome in a dose-dependent manner, suggesting that exposure to this herbicide may have detrimental outcomes regarding the health of the general population.”--Winstone, J.K., Pathak, K.V., Winslow, W. et al. Glyphosate infiltrates the brain and increases pro-inflammatory cytokine TNFα: implications for neurodegenerative disorders. J Neuroinflammation 19, 193 (2022). https://doi.org/10.1186/s12974-022-02544-5
+
+
+As I have reported in one review article   https://drfoxonehealth.com/post/genetically-modified-gmo-pet-food-ingredients-put-dogs-cats-and-other-consumers-at-risk/glyphosate, Monsanto’s (now Bayer’s) “Roundup” herbicide, glyphosate (which many homeowners use) contaminates various foods, including many pet foods, causing disruption of the intestinal flora, the microbiome, possibly leading to inflammatory and other bowel diseases, impaired immune system functioning and allergies.
+
+
+Recently, the U.S. Centers for Disease Control and Prevention released a report that found more than three quarters of urine samples tested from adults and children in the U.S. contained glyphosate,  a press release from Florida Atlantic University (FAU) said. A new FAU and Nova Southeastern University study has gone further and found a link between the weed-killer and convulsions in animals. The results of the study, “Roundup and glyphosate’s impact on GABA to elicit extended proconvulsant behavior in Caenorhabditis elegans,” were published in the journal Scientific Reports.
+
+
+The researchers found an increase in seizure-like behavior in the soil-dwelling roundworms C. elegans due to the glyphosate found in Roundup, the press release said. The findings provided compelling evidence that GABA-A receptors — transmission points necessary for movement — are targeted by glyphosate. (See Naraine, A.S., Aker, R., Sweeney, I. et al. Roundup and glyphosate’s impact on GABA to elicit extended proconvulsant behavior in Caenorhabditis elegans. Sci Rep 12, 13655 2022).
+
+
+
+Coupled with neonicotinoid seed treatments and herbicide-resistant, insecticide-producing ( Bt, Bacillus thuringiensis)  genetically engineered commodity crops, industrial agriculture, (that has displaced more biodiverse and sustainable indigenous farming practices) has decimated many harmless and beneficial insect species from Monarch butterflies to pollinating bees. In the process, insectivores, (including reptiles, amphibians, birds and bats), whonatural controllers of potentially harmful insects, notably disease-carrying mosquitoes and ticks, have either starved to death from lack of insects or were poisoned by insects contaminated with insecticide. Some “superweeds” and various insects devlop chemical resistance. So the  agribusiness and agroforestry industries resort to ever more lethal pesticides, putting ourselves and other species at risk. This is a crime against Nature and a crime against humanity which will harm generations to come and be ever more difficult to correct.
+
+
 ## ORGANIC IS SUPERIOR
 
 Studies comparing the nutrient content of organic versus conventionally grown crops report significantly lower levels of potentially toxic aluminium, mercury and lead in the organically grown, that also had higher levels of many essential trace minerals and other nutrients, notably boron, calcium, chromium, copper, iodine, iron, lithium, magnesium, manganese, molybdenum, phosphorus, potassium, selenium, silicon, sodium, sulfur, vanadium, and zinc. Also more vitamin C and other antioxidants, and less nitrates.
