@@ -9,6 +9,25 @@ RECOGNIZING ANIMALS’ SENTIENCE ADVANCES THEIR PROTECTION & WELFARE
                                                       
  By Dr. Michael W. Fox 
 
+The scientific determination of animals' sentience--what they sense, feel and know--is a challenge calling for an interdisciplinary application of ethology and the  neurosciences. It provides an objective basis for their welfare assessment and provisions by care-givers, and is the foundation of animal welfare science and associated animal protection laws. 
+
+It is a matter of recorded history that the science of animal sentience, which supported animal rights philosophy, was opposed as being unscientific and anthropomorphic. For instance, Stephen Budiansky, in his book, If a Lion Could Talk: Animal Intelligence and the Evolution of Consciousness,( 1998) came with this promotional statement: “Although Budiansky concedes that animals most likely experience emotions, he denies them consciousness, which, in his view, is inseparably linked to language, an exclusively human invention. Furthermore, Budiansky contends, animals don't really suffer, at least not the way we do, because their sensation of pain lacks a social context. Budiansky, a science writer (The Nature of Horses) and U.S. News & World Report deputy editor, uses this debatable thesis to bash the animal rights and deep-ecology movements. Whatever one thinks of the correctness of his argument, it has value as a levelheaded critique of our tendency to anthropomorphize animal behavior”.
+
+Budiansky was not alone in politicizing  and twisting science to discredit animal welfare and rights advocacy and environmental protection. But for me, the icing on the cake was his article ‘Academic roots of paranoia: The Unabomber may not be such an intellectual loner’ in the U.S. News and World Report, May 13th, 1996 in which he wrote “ a surprising number of leading academic writers on animal rights and the environment share the Unabomber’s paranoid hostility to science---The first is the Unabomber: [ FBI’s most wanted fugitive, Theodore Kaczynski] the second is Michael W. Fox, a widely published writer on animal rights and the environment.”
+
+
+This was all part of a concerted effort to dismiss animals as sentient, conscious beings on the grounds of anthropomorphizing (having emotional states similar to us). Instead, it was argued, animals are unfeeling automatons governed by instinctual reflexes. This “mechanomorphizing” of other animals helped create the “great void”, as I call it. The exploiters of animals needed this to continue their activities in all good conscience and for protection from public accountability and censure. Distancing us from the environment and from other animals and severing empathy along with compassion was the ultimate aim to maintain the status quo of animal and environmental exploitation.
+
+
+Around that time, I was testifying before a U.S. Senate Subcommittee to improve conditions for veal calves being raised in narrow crates in which they could not even turn around. On defendant of the industry, animal science Prof. Stanley Curtis from the University of Illinois, when asked if veal calves need to turn around replied,” We need to do more research before we can be really sure.”
+
+This great divide was eventually bridged by ethologists and other biological and animal welfare scientists, marked by the 2012 Cambridge Declaration on Animal Consciousness. (https://drfoxonehealth.com/post/the-cambridge-declaration-on-animal-consciousness). 
+
+
+Well before this Declaration, and in spite of the paranoid pontifications of Budiansky et al, veterinarians had been diagnosing and treating emotional conditions in animals also seen in humans, and with similar medications as for depression and separation anxiety, a field of veterinary care I helped establish in the early 1970s.
+
+For evidence of homologous and analogous human emotional responses in other animals including insects, crabs and lobsters, read the article ‘The question of animal emotions’ by Frans B.M .de Wall and Kristin Andrews, published in Science https://www.science.org on March 24,2022: 1351-1352.
+
 Government Animal Welfare Acts in the U.S. and other countries to establish standards that mandate humane treatment of various species and their enforcement are at best inconsistent and need considerable revision and greater international accord. The USDA’s Animal and Plant Health Inspection Service (APHIS) conducts annual inspections of all licensed facilities and generally oversees compliance but many animal species are excluded from protection.
 
 
