@@ -74,6 +74,21 @@ REFERENCES
 8.M.W. Fox Healing Animals and the Vision of One Health CreateSpace Books/Amazon.com 2011
 
 
+ADDENDUM
+
+PREVENTING FUTURE PANDEMICS
+
+Relying on ever more vaccines and pharmaceuticals to treat emerging zoonoses, diseases transmitted from animals to humans, and mass extermination of animal carriers of such diseases, is profitable for a few but no solution when preventive measures are not put first.
+
+ An article by Laura H. KahnandRichard Seifman, It’s Time to Get Serious About Preventing Pandemics: A new World Bank/WHO Fund  could treat prevention as a priority and for which the One Health interdisciplinary approach is critical  (It’s Time to Get Serious About Preventing Pandemics - Impakter) spells this out very clearly. Kahn and Seifman state : “The good news is that the World Bank with the World Health Organization is about to launch a brand-new international multilateral financing mechanism called the “Pandemic Prevention, Preparedness and Response” Financial Intermediate Fund (FIF) to provide long-term funding to address pandemics .FIF is targeted to reach $12.5 billion within five years.,,, Unfortunately, the preparedness and response parts of the mechanism are receiving the lion’s share of the attention and funding compared to the prevention part.  …We must include veterinarians and other animal health professionals who receive extensive education and training in zoonotic diseases, and environmental health experts to be part of the pandemic [One Health] prevention solution. So far, their involvement has been minimal which jeopardizes the effort’s success.”
+
+
+I would add a note of concern with regard to the potential pandemic-potentiating consequences of documented cellular, immunological and other adverse health effects of non-ionizing radiation from 3G, 4G and still not proven safe but now widely rolled out 5G telecommunications from cell phone towers and satellites. 
+
+ Authors Hardell and Nyberg  state that “In an appeal sent to the EU in September, 2017 currently >260 scientists and medical doctors requested for a moratorium on the deployment of 5G until the health risks associated with this new technology have been fully investigated by industry-independent scientists.” (Hardell L, Nyberg R. Appeals that matter or not on a moratorium on the deployment of the fifth generation, 5G, for microwave radiation. Mol Clin Oncol. 2020 Mar;12(3):247-257. ).
+
+ For further  documentation see: Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27;37(1):81-122 Levitt, B. & Lai, Henry & Manville, Albert. (2021). Effects of non-ionizing electromagnetic fields on flora and fauna, Part 2 impacts: How species interact with natural and man-made EMF. Rev Environ Health. 10.1515/reveh-2021-0050. and   https://ehtrust.org/in-historic-decision-federal-court-finds-fcc-failed-to-explain-why-it-ignored-scientific-evidence-showing-harm-from-wireless-radiation/
+
 
 
 
