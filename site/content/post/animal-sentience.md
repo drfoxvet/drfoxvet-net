@@ -94,13 +94,51 @@ Aside from some animal welfare, anti-cruelty and endangered species protection l
 
 Habeas corpus petitions have only been filed on behalf of humans being held against their will and this case will raise the issue as to whether Happy is a “thing” or “person” with certain rights and interests,, writes Julie Knopp with Compassionate action for Animals in Minnesota in her article “Happy the Elephant is Giving Animals Their Day in Court”, published in the Star Tribune, Dec 31st 2021. She underscores the fact that factory farmed animals live under worse conditions than this elephant and that their welfare needs to be addressed as well as their negative environmental impact of industrial animal agriculture and its risks to human health especially from zoonotic and food-borne illnesses.
 
+THE SENSE OF SELF IN NON-HUMAN ANIMALS
 
-SELF-AWARENESS IN ANIMALS
+Fifty- two years ago a psychologist developed a test which he claimed to be the cardinal indicator of self-awareness in animals.
+ 
+This experiment, reported by psychologist Gallup (1) involved chimpanzees responding to a mark on their faces when they saw their images in a mirror. It has since been widely cited as indicative, as he proposed, of self-awareness in animals.
 
-Some animal psychologists and others contend that the mirror-test, where animals recognize that a mark has been placed on their faces, is the cardinal sign of self-awareness. Species who do react to such changes in their mirror-image include humans and the great apes, dolphins, elephants and magpies. Ethologist Jonathan Balcombe in his book Super Fly cites research indicating that some ant species also pass the mirror test. 
+ Tests on other species in accord with this criterion of a sense of self that proved positive include the great apes, elephants, rays, cleaner wrasse, dolphins, orcas, the Eurasian magpies, and ants.(2). But a wide range of species has been reported to fail the test, including several species of monkeys, giant pandas, and sea lions. (3). From an ethological perspective these “failures” reveal the fallacy of psychologizing animals’ behaviour. (4). In many species, especially humans, positive responses to changes in self-image seen in a mirror may be no more than an indicator of narcissism.
 
 
-I have long contended that self-awareness in various species cannot be decided simply on the basis of this mirror-test. Many people living with cats and dogs will attest to the fact that after initially reacting to their mirror-image, often as though it were another animal, their animals simply ignore their reflections. This is evidence to me that they know it is not another animal but themselves that they are seeing. Some cats will play games, stalk their image and look behind the mirror. 
+ The Gallup mirror test, now being embraced in legal terms of animal “personhood” is an example of psychologism (5) and it is wrong to assume that those species who fail this test have no sense of self and, therefore, personhood to warrant equal consideration and protection. 
+Dogs will often bark or growl when they first see their image in a mirror; will not respond like chimpanzees or older children when a mark is put on their heads; and will ignore subsequent mirror encounters. Such ignoring surely indicates that they know it is not another dog. Other studies have shown dogs have body awareness (6) and self-awareness in recognition of their own versus other dogs’ scents. (7) 
+
+A better gauge of the sense of self in relation to objects is the demonstrated ability to count, evident in many animal species, Numerical abilities have been identified in gorillas, rhesus, capuchin, and squirrel monkeys, lemurs, dolphins, elephants, black bears, birds, salamanders, fish, as well as 3-day old chicks, ants and spiders. (8.9)
+
+Suddendorf and Butler conclude that the visual self-recognition skills evident in humans and great apes are a byproduct of a general capacity to collate representations, and need not index other aspects of self-awareness. (10). Therefore, in assessing animals’ self-awareness, we need to avoid psychologizing  and consider each species and its adaptive, cognitive abilities and related environmental, social and emotional needs to make informed, science-based decisions as to their optimal care and protection.
+
+REFERENCES AND END NOTES
+
+1.Gallup, Gordon G. Jr. Chimpanzees: Self-Recognition SCIENCE 2 Jan 1970 Vol 167, Issue 3914 pp. 86-87 DOI: 10.1126/science.167.3914.86
+
+
+2."List of Animals That Have Passed the Mirror Test". 15 April 2015 http://www.animalcognition.org/. Retrieved 2 September 2022
+
+
+3.Kohda, M. et al. If a fish can pass the mark test, what are the implications for consciousness and self-awareness testing in animals? PLoS Biol 17, e3000021 2019.
+
+
+4.To speculate in psychological terms or on psychological motivations https://www.merriam-webster.com/dictionary/psychologize
+
+
+5.Psychologism is the belief that psychology is the basis for all other natural and social sciences Collins English Dictionary. Copyright © HarperCollins Publishers
+
+
+6.Lenkei, R., Faragó, T., Zsilák, B. et al. Dogs (Canis familiaris) recognize their own body as a physical obstacle. Sci Rep 11, 2761 2021. https://doi.org/10.1038/s41598-021-82309-x
+
+
+7.Horowitz, A. Smelling themselves: Dogs investigate their own odours longer when modified in an “olfactory mirror” test. Behav. Proc. 143, 17–24 2017.
+
+8.Shane, Cari. Fish Can Count, Along with Other Animals: Researchers find that counting may be an evolutionary trait that helps fish and animals survive. Jun 2, 2022  https://www.discovermagazine.com/planet-earth/fish-can-count-along-with-other-animals
+
+9.Goldman, Jason G. While other species may not spend their time sweating over quadratic equations like we did at school, they can carry out some pretty impressive calculations. https://www.bbc.com/future/article/20121128-animals-that-can-count#27th November 2012
+
+10.Suddendorf, T. & Butler, D.L. The nature of visual self-recognition. Trends Cogn Sci. Mar;17(3):121-7. 2013. doi: 10.1016/j.tics.2013.01.004
+
+
 
 ANIMAL FEELINGS AND FEELING FOR ANIMALS
 
