@@ -108,7 +108,7 @@ Dogs will often bark or growl when they first see their image in a mirror; will 
 
 A better gauge of the sense of self in relation to objects is the demonstrated ability to count, evident in many animal species, Numerical abilities have been identified in gorillas, rhesus, capuchin, and squirrel monkeys, lemurs, dolphins, elephants, black bears, birds, salamanders, fish, as well as 3-day old chicks, ants and spiders. (8.9)
 
-Suddendorf and Butler conclude that the visual self-recognition skills evident in humans and great apes are a byproduct of a general capacity to collate representations, and need not index other aspects of self-awareness. (10). Therefore, in assessing animals’ self-awareness, we need to avoid psychologizing  and consider each species and its adaptive, cognitive abilities and related environmental, social and emotional needs to make informed, science-based decisions as to their optimal care and protection.
+Suddendorf and Butler conclude that the visual self-recognition skills evident in humans and great apes are a byproduct of a general capacity to collate representations, and need not index other aspects of self-awareness. (10). Therefore, in assessing animals’ self-awareness, we need to avoid psychologizing  and consider each species and its adaptive, cognitive abilities and related environmental, physical, social and emotional needs to make informed, science-based decisions as to their optimal care and protection.
 
 REFERENCES AND END NOTES
 
