@@ -89,6 +89,16 @@ I would add a note of concern with regard to the potential pandemic-potentiating
 
  For further  documentation see: Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27;37(1):81-122 Levitt, B. & Lai, Henry & Manville, Albert. (2021). Effects of non-ionizing electromagnetic fields on flora and fauna, Part 2 impacts: How species interact with natural and man-made EMF. Rev Environ Health. 10.1515/reveh-2021-0050. and   https://ehtrust.org/in-historic-decision-federal-court-finds-fcc-failed-to-explain-why-it-ignored-scientific-evidence-showing-harm-from-wireless-radiation/
 
+ WHY FAUCI’S LEGACY IS A FAILURE
+
+The article by Ari Schulman, Why Fauci's legacy is a failure (Star Tribune 9/1/22) underscores an essential flaw in the U.S. Public Health Service. As Schulman asserts, "A science that people will follow must lead."
+
+
+Science without ethics is hazardous: Ethics without science is vacuous. Science informs politics and ethics guide when politicians are committed to serve the common good and the good of the Commons.
+The science and bioethics of a One Health approach to pandemic prevention must be adopted by the U.S. Public Health Service. A One Health approach calls for informed public involvement linked with animal health (animals being the primary source of new and old pandemics) and environmental protection. Such an integrative approach to pandemic prevention rather than the marketing of ever more vaccines and pharmaceuticals is long overdue.
+
+
+
 
 
 
