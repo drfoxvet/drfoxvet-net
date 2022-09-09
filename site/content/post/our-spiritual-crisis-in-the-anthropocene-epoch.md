@@ -76,9 +76,19 @@ The rise and fall of past civilizations and empires and their nemesis-depletion 
 
 It is time for us all to step back, which is not a setback for the national GNP but the survival imperative of planetary CPR-conservation, restoration and protection- of the natural environment upon wich our lives and all life depend. Stepping back will facilitate the  economic and social transition to a post-industrial, post-fossil fuel era of mindful consumption. But only if we vote to secure the collective political will: An informed majority answering the call for personal responsibility, austerity/voluntary simplicity ( to minimize our carbon footprint and its collateral harms to the life community) and benevolence toward others be they human or non-human; all planetary citizens worthy of equal respect and consideration.
 
+UNDERSTANING OUR PLACE IN NATURE
+
+Through various religious, spiritual rituals, and our communion in Nature, we of the Earth community may gain the understanding needed to heal ourselves and the Earth, The wičháša wakȟáŋ ("medicine man, holy man") and eccentric shaman/ heyoka, of the Oglala Lakota people, Chief Black Elk, put it this way: “It is from understanding that power comes; and the power in the ceremony was in understanding what it meant; for nothing can live well except in a manner that is suited to the way the sacred Power of the World lives and moves.” https://bookroo.com/quotes/black-elk-speaks
+
+
+Black Elk witnessed and suffered the genocide of his people just as many people today are suffering as they witness the ecocide and speciecide of planetary life due to human incursion and mass-extermination. As he foresaw, we must either evolve or perish as a species unworthy of the self-anointed name of Homo sapiens, man the wise.
+
+
+As the late Albert Schweitzer, MD, advised, “Until he extends the circle of his compassion to all living things, man will not himself find peace.” Reverential respect for all life is the foundation of One Health in recognition of the interdependence of human and non-human, animal, plant and micro-orgasmic life;of a global democracy; of justice and rule of law; and of a viable and sustainable economy. 
+
+
 
 Existentially, dystopian and dysbiotic conditions will only intensify until we adopt the Seventh Generation Principle based on the ancient Haudenosaunee (Iroquois) philosophy that the decisions we make today should result in a sustainable world seven generations into the future. This is the basic principle of empathic consequentialism on which I elaborate in my book Bringing Life to Ethics: Global Bioethics for a Humane Society.
-
 
 As we embrace the beauty and wonder of intelligent, sentient life around us and within us we begin to understand and appreciate the myriad of sustaining and regenerating relationships we have and need for our physical and mental health and ultimate spiritual well-being.
 
