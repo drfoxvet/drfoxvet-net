@@ -54,6 +54,28 @@ Here are two relevant scientific reports: Expert perspectives on global biodiver
 
 We can all do something on the home-front such as buying Organically Certified foods; not using herbicides, insecticides on our property and pets; replacing UV-light, bug-attracting electronic bug zappers with citronella candles on our patios and rewilding our lawns with pollinator-friendly native plants. Also, visit www.emfsafetynetwork.org and https://www.americansforresponsibletech.org
 
+
+OUR FATE AND THE FATE OF THE FORESTS 
+
+
+Our forests are in peril by all accounts, from fires, high winds and droughts. An estimated 11–16% of US tree species are threatened with extinction, with the most common threat being invasive and problematic pests and diseases. We need the trees to hold the hills and mountainsides to prevent erosion; to sequester carbon emissions to reduce global warming and climate change; and, to produce the oxygen we and most other life-forms need to live. But still they are seen primarily as a resource to be harvested regardless.
+
+
+What is utterly absurd is that taxpayers subsidies for the federal logging program ranged from $1.6 to $1.8 billion per year in fiscal years 2013 through 2017. “The Forest Service attempts to justify these losses by hiding commercial timber sale projects within larger ecological restoration projects – a move that consistently lands the agency in court. Selling timber from federal lands below cost is a form of environmentally harmful subsidy that runs afoul of international agreements.” ( Quote from National Forest Economics - Tennessee Heartwood https://www.tennesseeheartwood.org › national-forest-eco..)
+
+
+Part of the problem for the trees is invasion by insect pests that have a free-range thanks to the spraying of insecticides to kill mosquitoes and the wholesale applications of pesticides by the agricultural and agroforestry industries and in the process, beneficial insects-pollinators and pest-controlling parasitic wasps and insectivorous reptiles, amphibians and birds are either poisoned or starve to death. In 2019, Biological Conservation reported that 40% of all insect species are declining globally and that a third of them are endangered.
+
+
+Like the Dust Bowl of the 1930s across millions of acres of Southern Plains, the fate of America’s trees and those of other nations may indeed culminate in the ancient prophetic warning that when the trees are gone, the sky will fall. "A nation that destroys its soils destroys itself. Forests are the lungs of our land, purifying the air and giving fresh strength to our people."― Franklin D. Roosevelt. A significant initiative would be for the Biden administration, if it is serious about climate change, to end the timber industry subsidies which should be diverted to reforestation and conservation. 
+
+
+Property owners can plant indigenous trees and engage in “rewilding” instead of wasting water, wasting energy mowing and applying harmful chemicals to lawns  and golf courses .As Chief Seattle advised, “Whatever befalls the earth befalls the sons of the earth. Man did not weave the web of life; he is merely a strand in it. Whatever he does to the web, he does to himself.”
+
+Every law student should have to read Christopher D. Stone’s 1972 book Should Trees Have Standing?
+Towards Legal Rights for Natural Objects. We might then, eventually, hae a Supreme Court that better serves the common good and the good of the Commons.
+I wish my species would acquire the wisdom and the means to live like trees, giving more to life than it takes.
+
 ANIMALS, NATURE AND THE ETHICS OF RESPECT AND CARE
 
    It is evident from the above United Nation’s report that we have yet to learn to share this planet with other intelligent life forms and consciousnesses. This would be for our own good which is bound to that of other beings who comprise and sustain the life community even if we do not respect and care for the least of them. Without the ethics of respect and care we are less than human and have become the most dangerous species on Earth. Inhumanity has no bounds ecologically, spiritually or ethically.
