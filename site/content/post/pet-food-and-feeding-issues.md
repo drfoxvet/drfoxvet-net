@@ -150,6 +150,83 @@ To estimate carbohydrates, subtract all of the above EXCEPT Fiber (Fiber is a ca
 This is only an estimate, but the standard method to calculate carbs in a pet food. Here is a post from friend Rodney Habib on this: https://www.planetpaws.ca/2015/07/05/how-to-calculate-how-many-carbs-are-in-a-bag-of-pet-food/
 ---From Susan Thixton ( www.truthaboutpetfood.com).
 
+MANUFACTURED CAT FOOD CONCERNS: CARBOHYDRATES AND MORE
+
+
+
+This letter was published in the Journal of the American Veterinary Medical Association, June 2022, Vol 260 No 9. P.986. It is to be noted that one of the authors of the article ‘Evidence does not support the controversy regarding carbohydrates in feline diets’ is with Hill’s Pet Nutrition, Topeka, Kansas.
+
+Letters to the Editor:
+
+The role of carbohydrates in feline diets In the Timely Topics in Nutrition review article “Evidence does not support the controversy regarding carbohydrates in feline diets,” The authors suggest that, for healthy cats, an upper limit of 50% of calories coming from carbohydrates in their diets is acceptable. But they also state that low-carbohydrate diets can help diabetic cats and achieve remission. (1 ).
+
+ How are we to know that a cat is diabetic until it has been fed a high-carbohydrate, diabetogenic diet, to which, admittedly, many cats adapt. But they can develop other health con-sequences, which these authors failed to address, their focus on dietary fat content and feline obesity being a distraction. 
+
+Many manufactured cat foods, especially dry kibble, contain phytates, which are present mainly in legumes (i.e, soy) and cereals. These reduce the digestibility of proteins and mineral absorption. (2)A net loss of body calcium, phosphorus, and magnesium during feeding of the fiber diet suggests that dietary inclusion of insoluble fiber could increase macro-mineral requirements of cats. Could this be a contributing factor to the widespread diagnosis of arthritis in cats? 
+
+
+Starch and fiber in diets potentially stimulate formation of struvite crystals. (3). Hence, reducing dietary carbohydrate is desirable to prevent struvite urolith formation. Considering the high incidence of hyperthyroidism in the cat population, the inclusion of soy as a cheap protein in many cat foods also needs to be questioned since soy does affect the thyroid gland. (4).
+
+ I am also concerned about irritable and inflammatory bowel conditions in cats and the immunological and behavioral consequences of intestinal dysbiosis, leaky gut syndrome, and autoimmune diseases possibly caused in part by lectins in the diet, as noted in human patients. (5). This may result in such cats being euthanized, abandoned, or left at an animal shelter for unlikely adoption.
+
+Michael W. Fox, BVetMed, PhD, DSc
+Animal Doctor syndicated column office
+Golden Valley, MN 
+
+
+1.Laflamme DP, Backus RC, Forrester SD, Hoenig M. Evidence does not support the controversy regarding carbohydrates in feline diets. J Am Vet Med Assoc. 2022;260(5):506–513
+
+
+2.Samtiya M, Aluko RE, Dhewa T. Plant food anti-nutritional factors and their reduction strategies: an overview. Food Prod Process Nutr. 2020;2(1):1–14.doi:10.1186/s43014-020-0020-53.
+ 
+3.Funaba M, Uchiyama A, Takahashi K, et al. Evaluation of effects of dietary carbohydrate on formation of struvite crystals in urine and macromineral balance in clinically normal cats. Am J Vet Res. 2004;65(2):138-42. doi:10.2460/ajvr.2004.65.1384.
+ 
+4.Tonstad S, Jaceldo-Siegl K, Messina M, et al. The association between soya consumption and serum thyroid-stimulating hormone concentrations in the Adventist Health Study-2. Public Health Nutr. 2016;19(8):1464–1470. doi:10.1017/S13689800150029435. 
+
+5.Morosi LG, Cutine AM, Cagnoni AJ, et al. Control of intestinal inflammation by glycosylation-dependent lectin-driven immunoregulatory circuits.  Sci Adv. 2021;7(25):eabf8630. doi:10.1126/sciadv.
+*****************************************
+
+The authors’ rebuttal following this published letter is an exercise in scientific obfuscation and evident conflict of interest.
+It should also be noted: Most dogs and cats are neutered today, generally for valid reasons. But this affects their metabolism, making them more prone to obesity and related adverse health consequences which correction of diets is imperative. The high carbohydrate diets widely marketed for dogs and especially vulnerable, obligate-carnivore cats are a matter of extreme veterinary concern: Possible grounds for class action law suits against manufacturers and promoters.
+
+
+Both simple and complex carbohydrates break down into glucose (aka blood sugar). A simple carb is one that's comprised of one or two sugar molecules, while a complex carb contains three or more sugar molecules. Fiber, on the other hand, is found in healthy carbs, but isn't digested or broken down.
+
+
+While spaying and neutering is advocated for virtually all dogs and cats, this intervention does have consequences. It is, in fact, the largest risk factor for obesity later in life for our pets. (1, 2). This happens primarily through a decrease in metabolic rate and an increase in desire for food intake. (3,4,5).A high protein and fiber diet provides nutrients, supports a healthier gut microbiome and relieves hunger by triggering satiety.(6)
+
+
+1.Kutzler MA. Possible Relationship between Long-Term Adverse Health Effects of Gonad-Removing Surgical Sterilization and Luteinizing Hormone in Dogs. Animals (Basel) 2020;10.
+
+2.Martin LJ, Siliart B, Dumon HJ, et al. Hormonal disturbances associated with obesity in dogs. J Anim Physiol Anim Nutr (Berl) 2006;90:355-360.
+
+
+3.Allaway D, Gilham M, Colyer A, et al. The impact of time of neutering on weight gain and energy intake in female kittens. J Nutr Sci 2017;6:e19.
+
+
+4.Phungviwatnikul T, Valentine H, de Godoy MRC, et al. Effects of diet on body weight, body composition, metabolic status, and physical activity levels of adult female dogs after spay surgery. J Anim Sci 2020;98.
+
+
+5.Schauf S, Salas-Mani A, Torre C, et al. Effect of sterilization and of dietary fat and carbohydrate content on food intake, activity level, and blood satiety-related hormones in female dogs. J Anim Sci 2016;94:4239-4250.
+
+
+6.Weber M, Bissot T, Servet E, et al. A high-protein, high-fiber diet designed for weight loss improves satiety in dogs. J Vet Intern Med 2007;21:1203-1208
+
+
+
+OBESITY AND THE METABOLIC SYNDROME
+
+Sugar in mouse diets promotes metabolic disease by upsetting the gut microbial balance and driving loss of the Th17 cells that regulate lipid absorption by the intestinal epithelium. — Yoshinaga Kawano et al, Microbiota imbalance induced by dietary sugar disrupts immune-mediated protection from metabolic syndrome, Cell (2022). DOI: 10.1016/j.cell.2022.08.005
+
+
+A calorie-reduced diet can not only delay the development of metabolic diseases, but also has a positive effect on the immune system. Researchers have now shown for the first time that this effect is mediated by an altered gut microbiome, which slows down the deterioration of the immune system in old age (immune senescence). - Julia Sbierski-Kind et al, Effects of caloric restriction on the gut microbiome are linked with immune senescence, Microbiome (2022). DOI: 10.1186/s40168-022-01249-4  
+
+
+Carbohydrates in pets’ diets convert into sugars, those with a high glycemic index being especially problematic. This may contribute to the metabolic syndrome, weakening of the immune system and accelerated ageing in dogs and cats.
+
+
+
+
 
 THE KINDS OF FOOD CONSUMED CAN CHANGE US AND OUR PETS
 
@@ -249,7 +326,7 @@ Cat and dog food manufacturers should cease and desist putting Red 40, a petroch
 
 Rosemary extract is used as a preservative and its use should be reconsidered since it too can cause seizures as you have experienced along with several internet postings, notably:
 ROSEMARY EXTRACT: PET FOOD NEUROTOXIN, SEIZURES
-www.thedogpress.com › dogfood › Rosemary-Neuroto...
+www.thedogpress.com › dogfood › Rosemary-Neuroto...
 Rosemary Extract & Seizures in Dogs - Labrador Retriever
 mmkennels.com › rosemary-extract-seizures-in-dogs
 In an earlier column I shared the story of a cat who developed seizures from being given a popular brand of cat treats and became so conditioned that she would have a seizure on hearing the bag of treats being opened! 
@@ -293,14 +370,17 @@ Consumers are becoming more health conscious as the obesity, diabetes and other 
 Beneficial supplements for companion animals include Brewer’s yeast, fish oil, or flax seed oil (only good for dogs), organic butter from grass-fed cows, and chondroitin, glucosamine, probiotics and prebiotics (like inulin). Some pet food manufacturers are touting these on their ingredient lists, thus indirectly acknowledging that supplements are of value and are not just hype or some consumer fad. They are key ingredients in prescription diets for various pet health problems. 
 
 PET FOODS AND CLIMATE CHANGE: AN ISSUE TO CONSIDER
+
 According to one evaluation of the environmental costs of feeding cats and dogs in the U.S., author G.S. Okin concludes: Dog and cat animal product consumption is responsible for release of up to 64 ± 16 million tons CO2-equivalent methane and nitrous oxide, two powerful greenhouse gasses (GHGs). Americans are the largest pet owners in the world, but the tradition of pet ownership in the US has considerable costs. As pet ownership increases in some developing countries, especially China, and trends continue in pet food toward higher content and quality of meat, globally, pet ownership will compound the environmental impacts of human dietary choices. Reducing the rate of dog and cat ownership, perhaps in favor of other pets that offer similar health and emotional benefits would considerably reduce these impacts. Simultaneous industry-wide efforts to reduce overfeeding, reduce waste, and find alternative sources of protein will also reduce these impacts.) Okin GS (2017) Environmental impacts of food consumption by dogs and cats. PLoS ONE 12(8): e0181301. https://doi.org/10.1371/journal.pone.0181301).
 
 Dr. Okin’s suggestion to reduce the rate of cat and dog ownership will offend many. My suggestion that cat owners, who should know that their cats are carnivores, should become vegetarian or vegan to offset their companion animals; contribution to climate change and other adverse environmental impacts, along with the suffering of factory farmed animals. 
 
 Dog owners, who should at least consider becoming vegetarian, should know that dogs are more omnivorous but need some good quality proteins and fats derived from animals in their daily food. This can follow the human vegetarian inclusion of ideally Organically Certified dairy products and eggs from free-range, uncaged hens.in their diets. Some farmed animals, including aquaculture fish, will always be available for consumption by people and their animal companions because they do play a vital role in recycling crop byproducts and in environmental health and biodiversity in ecological farming systems. Some visionaries are already including nutritious proteins and fats in pet foods derived from various sources including insect larvae, algae, various fungi and fermented foods. These are becoming part of the human diet as we evolve into a less harmful planetary species, phasing out cruel, wasteful and polluting animal factory farms that are also bad for our health, the economy and for the well-being of future generations.
 
-     To download the white paper "Sustainable Pet Food for the Future: Koji or Aspergillus oryzae makes protein affordable, nutritious and eco-friendly" written by Dr.Ward, Wild Earth chief science officer Ron Shigeta Ph.D., et al,  visit https://www.wildearthpets.com/koji-white-paper.
-     Another stellar initiative is by the Dutch company Yora that has invested over $23 million in 2019 to develop and market a highly nutritious dog food (kibble) with the main ingredient being insect larvae (grubs). Oats, potato and plants including kale, seaweed and chicory for their anti-inflammatory properties and to help improve digestion. 
+To download the white paper "Sustainable Pet Food for the Future: Koji or Aspergillus oryzae makes protein affordable, nutritious and eco-friendly" written by Dr.Ward, Wild Earth chief science officer Ron Shigeta Ph.D., et al,  visit https://www.wildearthpets.com/koji-white-paper.
+
+
+ Another stellar initiative is by the Dutch company Yora that has invested over $23 million in 2019 to develop and market a highly nutritious dog food (kibble) with the main ingredient being insect larvae (grubs). Oats, potato and plants including kale, seaweed and chicory for their anti-inflammatory properties and to help improve digestion. 
 
 While some cringed at the news of a popular candy bar manufactured and consumed in Russia that contains cow and pig blood (developed decades ago to provide iron for children during a time of food-shortages), we should not be aversive to providing our animal companions with insect, algal and fungus-enriched foods that are within the scope of being biologically appropriate for them and for ourselves.
 
@@ -315,6 +395,7 @@ Making informed choices in the market place for oneself and family, including co
 To find documented evidence of the nutritional superiority of organically certified foods and the prenatal (epigenetic) risks of poor nutrition and agrichemical contaminants, visit www.organic-center.org
 
 PET FOOD INDUSTRY PROTECTING THE STATUS QUO?
+
 The November 2019 Veterinary Record Supplement  “Obesity: Understanding a tackling a weighty problem”, published by the British Veterinary Association in association with MARS Petcare is a helpful guide for veterinarians dealing with this all too common problem in companion animals. As a former, frequent seminar presenter on cat care and behavior in Europe sponsored by Mars Inc, I feel duty-bound to respond to what I see as a serious omission in this publication.
 
 Mars, Incorporated is an American global manufacturer of confectionery, pet food, and other food products and a provider of animal care services, with US$33 billion in annual sales in 2015. It was ranked as the 6th largest privately held company in the United States. Mars Petcare U.S. markets popular dog and cat foods such as IAMS, Pedigree, Royal Canin, Sheba, Eukanuba, Cesar, Whiskas, Greenies, and Nutro and Temptations and Dreamies cat treats. 
@@ -334,12 +415,13 @@ Such widely advertised and marketed obesogenic and diabetogenic diets can trigge
 2 Fox, MW, Hodgkins, E and Smart, ME.  Not Fit for a Dog: The Truth About Manufactured Cat and Dog Food. Fresno CA Quill Driver Books, 2009.
 
 DOG FOOD KIBBLE PROBLEMS
+
 Dogs’ diets can influence inflammatory and immune system functions
 R.C.Anderson et al Effect of kibble and raw meat diets on peripheral blood mononuclear cell gene expression profile in dogs. The Veterinary Journal Volume 234, April 2018, Pages 7-10
 https://doi.org/10.1016/j.tvjl.2018.01.005Get rights and content
 Canine peripheral blood mononuclear cell (PBMC) gene expression was altered by changing diets. Differences in PBMC gene profiles were observed between dogs fed raw red meat and kibble diets .Microarray analysis of PBMCs provides a non-invasive approach to study the effects of diet on gene expression in dogs.In this study, PBMC gene expression was determined in dogs fed kibble or raw red meat diets for 9 weeks to test the hypothesis that diet influences canine immune cell gene expression profiles. The two diets were associated with differences in PBMC gene expression profiles, which corresponded with changes in plasma IgA concentrations. Dogs fed 100 per cent raw red meat developed a decrease in cytokine gene and receptor expression compared to those fed a kibble diet. Dogs on kibble had increased expression of immune-related genes and plasma immunoglobulin concentrations (IgA). The practical implications of this research is that it is highly ill -advised to feed dogs a diet of only regular dog kibble which continues to be a widely condoned practice both in the U.S. and abroad.
 
-MANUFACTURED PET FOOD CONCERNS.
+MORE MANUFACTURED PET FOOD CONCERNS.
 
 Veterinarian Dr. Karen Shaw Beker has posted an alert to all pet owners with international ramifications, stating that “The World Small Animal Veterinary Association's (WSAVA) mission, according to the organization's website, is "To advance the health and welfare of companion animals worldwide through an educated, committed and collaborative global community of veterinary peers."1 WSAVA has 113 member associations and over 200,000 member veterinarians worldwide. WSAVA has a Global Nutrition Committee that provides recommendations for selecting pet foods, and recently, Ryan Yamka, PhD, founder of Luna Science and Nutrition and also the Guardian Pet Food Co. took an in-depth look at WSAVA's recommendations and found them lacking. He determined they provide a false sense of security to anyone offering pet food advice based on the association's criteria.” 
 For more details go to https://healthypets.mercola.com/sites/healthypets/archive/2020/11/22/wsava-recommendations-on-selecting-pet-foods.aspx?
