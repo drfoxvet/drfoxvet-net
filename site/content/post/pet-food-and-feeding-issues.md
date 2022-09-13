@@ -212,6 +212,44 @@ While spaying and neutering is advocated for virtually all dogs and cats, this i
 
 6.Weber M, Bissot T, Servet E, et al. A high-protein, high-fiber diet designed for weight loss improves satiety in dogs. J Vet Intern Med 2007;21:1203-1208
 
+LETTER FROM A FELINE SPECIALIST VETERINARIAN Received 9/11/22
+
+DEAR DR.FOX, I was completely exasperated to see how defensively the authors of the "carbs are fine for cats" article in the Journal of the American Veterinary Medical Association attempted to refute you.  Carbs are not “fine” for cats.  What they are is “cheap,” “plentiful,” and “very profitable.”  The pet food industry, because of its extreme profitability, has a huge incentive to justify the use of such ingredients and the financial means to do so, through a frightening number of channels.
+
+
+The pet food industry has a ridiculous and highly unethical amount of influence on veterinarians.  The pet food industry exists these days largely to commoditize foodstuffs not qualified for human ingestion, as well as the trash from human food production, which makes the industry extremely profitable.  They can afford some of the most effective (and most misleading) marketing in the world.  They can also afford to “support nutritional research” (read:  they can control the questions that are asked, and they can gate the answers that are allowed to be published). 
+ 
+A number of veterinary researchers who were developing data that would support the concept of a prey-model diet have, in the past few years, begun to receive funding from pet food.  Some subsequently stopped work on prey-model diets, and some began to promote a nutritional approach exactly opposite to the one they had been developing.
+
+Most (if not all) nutrition courses in vet schools are underwritten by the pet food industry, with the clear and sole goal of enforcing the perceived “necessity” for so-called “prescription diets.”  How is this acceptable?
+
+
+The pet food industry currently owns a substantial portion of the veterinary industry worldwide. One need only follow the money to understand why.  Veterinary hospitals are not profitable.  Prescription diets are.  If a pet food company manufactures a specific brand of prescription diet AND owns a veterinary hospital corporation, they can control which prescription diets are sold or recommended.  
+
+ I wish it would have been possible for you to write more about the important relationship of the GI microbiome and the near pandemic of IBD in domestic cats. Microbiome research is turning human medical paradigms upside down.  It seems clear that there is an “evolutionarily normal” biome for every species, and that if a member of a species eats an “evolutionarily normal” diet for that species, he or she is more likely to have an evolutionarily normal biome.
+
+ A diet unnatural to the species would induce dysbiosis.  Simplistically, dysbiosis induces inflammatory bowel disease, which leads to leaky gut syndrome, which in turn leads to upregulation of systemic inflammation.  The result is not just gut disease; it’s a host of systemic disorders.  There is no reason to think this would be any different in non-human species.  The diet that is “evolutionarily normal” may be different for different species, but the effects are probably very much the same.
+
+
+Most commercial cat foods are made mostly or entirely out of plants.  Plants are not an evolutionarily normal diet for a cat.  The domino effect seems obvious. Since my hospital opened 5 years ago, and began teaching people to feed prey-model diets, our experience has been amazing.  We do not have a single diabetic patient in the practice.  Very few overweight cats.  Minimal gut disease. 
+ I've learned what normal fur quality and normal healthy pads look like, and that dandruff is not normal.  Neither is abdominal guarding.  Of course, neither is vomiting three times a week, but that addresses social perceptions of what is normal, versus veterinary perceptions.
+
+After five years of very lab-heavy work, our patient population has a "reference range" for total white blood cell counts from 2.5K to 10K, as opposed to the approx 4K - 19K that both Idexx and Antech show.  It is probably not coincidental that the small population of cats they use to calculate those ranges are being fed "standard cat food," meaning mostly probably kibble, and if the microbiome / IBD connection is real, most of those cats probably have undiagnosed IBD.
+
+Vets seem to remain blind to the ethical failings of the pet food industry for the simple reason that nearly all hospitals sell food.  This creates a significant income stream, which is a direct conflict of interest.  A much larger and much more insidious conflict of interest is created when the very foods sold by vets create disease states that bring the pets back into the hospital for more diagnoses and treatments; this is a much, much larger income stream.  You emphasize this very clearly in your book Not Fit For A Dog: The Truth About Manufactured Cat and Dog Food.
+
+
+Our hospital has never sold any food, not even the very few brands we believe to be good, since our opening, in order to avoid this exact conflict of interest.
+ 
+I can attest to the difficulty inherent in even considering that our care recommendations may have caused harm.  No one becomes a vet with the goal of hurting animals.  We all do the best we can with the information we are given.  It is not our fault that we are force-fed propaganda.  It does, however, become our responsibility to recognize when such conflicts of interest create dynamics that result in harm to our patients.  Even if we think that only “might” be the case, we are, as doctors, ethically obliged to investigate the possibility with an open mind, regardless of whatever we may feel as a result.  
+
+Fern B. Slack, DVM
+
+Medical Director
+Uniquely Cats Veterinary Center
+Boulder CO
+
+
 
 
 OBESITY AND THE METABOLIC SYNDROME
