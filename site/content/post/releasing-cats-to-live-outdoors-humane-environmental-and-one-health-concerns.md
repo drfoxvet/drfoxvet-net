@@ -2,7 +2,9 @@
 title: 'Releasing Cats To Live Outdoors: Humane, Environmental And One Health Concerns'
 date: 2019-02-26T17:23:22.990Z
 tags:
+  - Cats
   - Public Health
+  - Environment
 ---
                            SYNOPSIS
 In essence, cat TNR (trap-neuter-vaccinate (against rabies) and release) programs are good in theory only: The theory being that over time the cat population will decline. With rare exception in small, isolated populations where there is no incursion of non-neutered cats, this is possible. But in reality, with people allowing their un-neutered cats to roam free or escaping from their homes and getting lost and an elusive population of feral, breeding cats that are extremely difficult to trap, most community condoned cat TNR programs, no matter how well intended, are a total failure. 
