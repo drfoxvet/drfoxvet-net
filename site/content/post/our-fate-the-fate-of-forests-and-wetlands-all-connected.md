@@ -2,7 +2,7 @@
 title: 'Our Fate, the Fate of Forests and Wetlands, All Connected'
 date: 2022-10-07T13:57:55.204Z
 tags:
-  - Environment
+  - Social Issues
 ---
 OUR FATE, THE FATE OF FORESTS AND WETLANDS, ALL CONNECTED
                                                          By Dr. Michael W. Fox 
