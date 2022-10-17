@@ -4,7 +4,7 @@ date: 2022-10-17T18:51:39.857Z
 tags:
   - Wolves
 ---
-Wolves and All Wildlife Belong in Our Democracy: And their Protectors.
+Wolves and All Wildlife Belong in Our Democracy: And Their Protectors.
 
                                      By Dr. Michael W. Fox
 Wolves lived for generations long before us in Nature’s economic democracy as a family, pack and clan-centered and supported species, much like the indigenous Anishinaabe peoples who came into North America millennia later. They came to know and regarded the wolf as a kindred spirit sharing many valued human traits of kinship, cooperation and survival skills worthy of reverential respect.
