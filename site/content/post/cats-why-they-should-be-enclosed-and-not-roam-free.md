@@ -89,6 +89,8 @@ Feline parvovirus, which has a high incidence in unvaccinated cat populations, c
 
  Feline scabies (Notoedres cati and Sarcoptes scabiei  )  are a parasitic skin infestation which can decimate wolf packs and infect foxes, coyotes, bobcats and other wildlife as well as humans and can be spread by free-roaming cats infested by these mites.  ( See Error! Hyperlink reference not valid.Jul 19, 2019 — A dedicated TNR advocate struggles to find help for the feral cats).
 
+CATS KILLING SONGIRDS AT RISK FROM “SONGBIRD FEVER”
+Birds can carry Salmonella bacteria which can make cats ill and even die from this bacterial infection which can also be passed on from the cats to humans in the home.
 
 Cats can play a role in the spread of other emerging diseases like Q fever (Meredith AL, Cleaveland SC, Denwood MJ, et al.  Coxiella burnetii (Q-Fever) Seroprevalence in Prey and Predators in the United Kingdom: Evaluation of Infection in Wild Rodents, Foxes and Domestic Cats Using a Modified ELISA. Transbound Emerg Dis. 2015 Dec;62(6):639-49. doi: 10.1111/tbed.12211. Epub 2014 Jan 31. PMID: 24479951.) 
 
