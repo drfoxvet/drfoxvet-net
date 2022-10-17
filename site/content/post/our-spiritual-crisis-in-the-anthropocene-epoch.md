@@ -76,6 +76,34 @@ The rise and fall of past civilizations and empires and their nemesis-depletion 
 
 It is time for us all to step back, which is not a setback for the national GNP but the survival imperative of planetary CPR-conservation, restoration and protection- of the natural environment upon which our lives and all life depend. Stepping back will facilitate the  economic and social transition to a post-industrial, post-fossil fuel era of mindful consumption. But only if we vote to secure the collective political will: An informed majority answering the call for personal responsibility, austerity/voluntary simplicity ( to minimize our carbon footprint and its collateral harms to the life community) and benevolence toward others be they human or non-human; all planetary citizens worthy of equal respect and consideration.
 
+CHRISTIANITY EVOLVING TO EMBRACE ALL LIFE
+
+
+The late James Morton, Dean of the Episcopal Cathedral of St. John the Divine in Harlem, NY, sees ecology “as the body of Christ, through which we of the earth community learn our sacred connections.” 
+
+For Catholics, the June 18th 2015 environmental encyclical Laudato Si’ by Pope Francis is an antidote to what he calls “the tyranny of anthropocentrism,” ending with the closing payer “Awaken our praise and thankfulness for every being that you have made. Give us the grace to feel profoundly joined to everything that is,” In this encyclical letter, Pope Francis has incorporated much of the philosophy and terms of the animal liberation and “deep” ecology movements to which I and others contributed. He asserts:
+
+•	“The misuse of creation begins when we no longer recognize any higher instance than ourselves, when we see nothing else but ourselves.”
+•	“Because all creatures are connected, each must be cherished with love and respect, for all of us as living creatures are dependent on one another.”
+•	“It is contrary to human dignity to cause animals to suffer or die needlessly.”
+
+It is notable that The Ark, the outstanding magazine of Catholic Concern for Animals was first published in the U.K. in 1937! https://catholic-animals.com › magazine
+
+
+In religious terms I see the apprehension of panentheism (meaning God in all and all in God, as distinct from pantheism) through empathy and boundless compassion in secular terms of the science and ethics-based movement toward One Health: And thus, One Economy for One Earth which all who believe in One God (or many or none) cannot deny.
+
+
+According to a 2015 Pew research survey, views about climate change vary by religious affiliation and level of religious observance. Hispanic Catholics (77%), like Hispanics overall (70%), are particularly likely to say the Earth is warming due to human activity. Most of the religiously unaffiliated (64%) and 56% of black Protestants say climate change is mostly due to human activity. By comparison, fewer white mainline Protestants (41%) view climate change as primarily due to human activity. White evangelical Protestants are least likely to hold this view; 28% among this group say the Earth is warming primarily due to human activity, 33% say the Earth’s warming is mostly due to natural patterns, and 37% say there is no solid evidence that climate change is occurring. 
+(https://www.pewresearch.org/science/2015/10/22/religion-and-views-on-climate-and-energy-issues/).
+
+
+Now it seems evangelical Protestants are seeking the light. The interview on PBS, Amanpour and Company, with Walter Kim, President of the National Association of Evangelists on September 16th 2022, urging Christians to combat climate change as a spiritual challenge that especially harms the poor with floods, droughts, pollution, disease and famine, creating millions of environmental refugees is a call long overdue. ( https://www.pbs.org › amanpour-and-company › guests). 
+
+ According to the Pew Research Center, 54 percent of White evangelicals now say that human activity, such as the burning of fossil fuels, contributes to global climate change.
+
+
+It is evident that the Climate Crisis is awakening environmental awareness with ecocentrism transcending the anthropocentrism that has limited progress, which some might call a significant step in our evolution at both religious and secular levels and the influence on public policy and how we chose to live as our numbers and appetites increase on a planet of finite resources. 
+
 UNDERSTANING OUR PLACE IN NATURE
 
 Through various religious, spiritual rituals, and our communion in Nature, we of the Earth community may gain the understanding needed to heal ourselves and the Earth, The wičháša wakȟáŋ ("medicine man, holy man") and eccentric shaman/ heyoka, of the Oglala Lakota people, Chief Black Elk, put it this way: “It is from understanding that power comes; and the power in the ceremony was in understanding what it meant; for nothing can live well except in a manner that is suited to the way the sacred Power of the World lives and moves.” https://bookroo.com/quotes/black-elk-speaks
