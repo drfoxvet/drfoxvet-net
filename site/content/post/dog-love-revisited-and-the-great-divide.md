@@ -2,7 +2,7 @@
 title: 'Dog Love Revisited: And The Great Divide'
 date: 2022-08-23T15:32:30.263Z
 tags:
-  - Dogs
+  - Spiritual issues
 ---
 DOG LOVE REVISITED: AND THE GREAT DIVIDE
 
