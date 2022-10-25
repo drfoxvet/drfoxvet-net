@@ -60,4 +60,25 @@ Well before this Declaration, and in spite of the paranoid pontifications of Bud
 
 For evidence of homologous and analogous human emotional responses in other animals including insects, crabs and lobsters, read the article ‘The question of animal emotions’ by Frans B.M.deWall and Kristin Andrews, published in Science https://www.science.org on March 24,2022: 1351-1352.
 
-When we liberate animals from all forms of cruel exploitation and incarceration we may yet recover our humanity
+When we liberate animals from all forms of cruel exploitation and incarceration we may yet recover our humanity.
+
+
+We do not need to look far in our lives to experience the miraculous when we open our hearts and feel touched by a soaring tree in her living presence; or look into the eyes of a loving dog whom we have rescued and adopted into our families. Bearing witness and sharing with the lives around us, human and non-human, the joys and travails of mortal existence and extending loving care and respect to all sentient beings can bring Heaven down to where Earth abides. 
+
+This empathic realm of illimitable and ineffable experience and healing is beyond words. As poet laureate Alfred, Lord Tennyson wrote:
+
+“For words, like Nature, half reveal
+
+And half conceal the Soul within.” 
+
+
+In the narrative poem in my book The New Eden: For People, Animals & Nature, illustrated by the late Susan Seddon Boulet, these words came to me:
+
+”The first people knew
+
+The One Soul in many
+
+And the many in the One.”
+
+
+I was one of the pioneers in what has become a recognized specialty in my profession, namely veterinary behavioral medicine: And it has taken decades for the recognition of emotional distress and behavioral disorders in companion animals and those confined in zoos and farms and how they are best prevented and treated. For an inspiring and reflective read on this subject all should enjoy and appreciate the book The Soul of All Living Creatures: What Animals Can Tell Us About Being Human by veterinary behavioral medicine specialist Vint Varga, DVM. (Broadway Books NY, 2013).
