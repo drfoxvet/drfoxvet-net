@@ -2,7 +2,7 @@
 title: Poop-Eating Pooches and Pups and Pica in Dogs and Cats
 date: 2022-10-27T16:26:48.105Z
 tags:
-  - Dogs
+  - Cats
 ---
 Poop -Eating Pooches and Pups and Pica in Dogs (& Cats)
 
