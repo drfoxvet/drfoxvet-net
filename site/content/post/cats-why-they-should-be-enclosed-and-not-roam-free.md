@@ -87,7 +87,13 @@ Feline calicivirus can be passed on from infected cats to other wildlife accordi
 Feline parvovirus, which has a high incidence in unvaccinated cat populations, can also be passed on to raccoons and foxes .( PARVOVIRUSES (PARVOVIRIDAE) | Cats, Dogs and Mink Colin R. Parrish, in Encyclopedia of Virology (Second Edition), 1999)
 
 
- Feline scabies (Notoedres cati and Sarcoptes scabiei  )  are a parasitic skin infestation which can decimate wolf packs and infect foxes, coyotes, bobcats and other wildlife as well as humans and can be spread by free-roaming cats infested by these mites. 
+ Feline scabies (Notoedres cati and Sarcoptes scabiei  )  are a parasitic skin infestation which can decimate wolf packs and infect foxes, coyotes, bobcats and other wildlife as well as humans and can be spread by free-roaming cats infested by these mites.
+ 
+EAR MITE INFESTATION
+
+Ear mites (Otodectes cynotis) are a common cause of  chronic ear infection, a condition called otitis externa with itching/ pruritus, in cats and dogs worldwide. The mites cause much suffering and even loss of hearing if untreated, and scratching and head-shaking can result in hematomas ( blood clots) in the ears which eventually cruple into ‘cauliflower ears”. Some cats with ectopic mites present with generalized alopecia and pruritus similar to flea allergy dermatitis.
+
+This common parasite, which can be transmitted to and from other wildlife such as foxes and coyotes, calls for all TNR cat colonies and indoor-outdoor cats to be regularly examined and treated as needed since it is such a prevalent parasite.(Akucewich LH, Philman K, Clark A, et al. Prevalence of ectoparasites in a population of feral cats from north central Florida during the summer. Vet Parasitol. 2002;109(1-2):129-139.Thomas JE, Staubus L, Goolsby JL, Reichard MV. Ectoparasites of free-roaming domestic cats in the central United States. Vet Parasitol. 2016;228:17-22.).
 
 CATS KILLING SONGIRDS AT RISK FROM “SONGBIRD FEVER”
 Birds can carry Salmonella bacteria which can make cats ill and even die from this bacterial infection which can also be passed on from the cats to humans in the home.
