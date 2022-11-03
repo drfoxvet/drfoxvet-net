@@ -109,6 +109,29 @@ While we do not yet know if other animals have any sensibility of what we may ca
 
 \[For further reading, see my book The Boundless Circle: Caring for Creatures and Creation.(1996) Quest Books, Wheaton IL]
 
+PRO-LIFE FROM A ONE-HEALTH PERSPECTIVE
+
+There are millions of yet not fully counted forms of intelligent life around us and within us which we continue to harm in many ways; and harm ourselves in the process. Two examples: the proliferation of antibiotic-resistant bacteria and invasive herbicide-resistant “superweeds”.
+
+
+Our intellectual understanding and empathy leading to respect for all life is falling short and we are suffering the consequences as are other species, be they microorganisms, plants or other animals. Even our treatment of warm- blooded mammals like ourselves, such as pigs who have saved many human lives with their “donated” heart valves, is deplorable as any visit to a factory farm from China to Iowa would confirm.
+
+
+The pro-life sentiment today takes many forms ranging from concerns for the unborn human to opposing the euthanasia of terminally ill and suffering people; of crippled, spent and suffering “sacred” cows in India who are put in shelters out of the public eye to die “naturally”, and of unadopted cats in the U.S. who are released from shelters to fend for themselves.
+
+
+Most prevailing pro-life beliefs need to be examined because they are moral/ethical positions which can be polarizing and divisive; and need to be revised from a One Health perspective, which embodies the science and bioethics of environmental, animal, plant and public health for the common good and the good of the Commons. Being primarily human-centered, the pro-life “protect human life at all costs” continues to do more harm than good, profit incentives aside, as exemplified by the deliberate and indiscriminate killing of intelligent life forms around us and within us by various means. These include antibiotics, insecticides, herbicides, fungicides, rodenticides and predator extermination ( with poison baits, traps and guns to eliminate large predators whose ecological role, like other species, is vital to ecological integrity and health): And incidental harming and killing with pollutants, including the latest,---plastics and electropollution. Against the background of global warming and climate change there is much for civil society to address and rectify.
+
+
+Any pro-life movement that does not advocate, from a One Health perspective, global ecological stewardship, organic and humane food production and holistic health care education but submits to Big Ag and Big Pharm and sacrifices the environment for “economic growth” is illegitimate. Nutrient deficient, disease and pest-susceptible crops, (many being genetically engineered with biologically anomalous and potentially harmful qualities) grown on life-depleted soils and the human epidemic of obesity/metabolic syndrome with gut microbial dysbiosis and immunological disorders are all connected.
+
+
+We cannot continue to disrupt the delicate, co-evolved relationships between microorganisms, plants and animals that comprise and sustain the regenerative life-community on planet Earth with whom we must learn to share and, along with them, adapt to environmental changes or become extinct. All ecosystems are dynamic networks of stability, transformation and change. Protecting natural biodiversity should be a pro-life priority since natural biodiversity helps contain and prevent diseases, invasive species and the collapse of ecosystems aquatic and terrestrial which scientist are now documenting. The reported 69% decline in wildlife populations world-wide since 1970 is especially alarming.
+
+
+For further discussion see Bringing Life to Ethics: Global Bioethics for a Humane Society, State University of New York Press by Dr. Michael W. Fox 
+
+
 ## A Thought for the Day & Every Day
 
 Let us embrace our gift of life and then give more than we take to live in balance and harmony in a world of takers so that our legacy honors who we were and all whom we embraced.
