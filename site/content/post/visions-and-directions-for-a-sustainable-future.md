@@ -2,7 +2,7 @@
 title: Visions and Directions for a Sustainable Future
 date: 2022-03-19T13:25:34.943Z
 tags:
-  - Environment
+  - Public Health
 ---
          Visions and Directions for a Sustainable Future
 
