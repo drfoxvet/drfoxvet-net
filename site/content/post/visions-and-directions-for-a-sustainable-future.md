@@ -22,6 +22,24 @@ More and more people, however, are now questioning the means and ends of industr
     
 In some public and political circles, opposition to these movements is increasing.  These people feel that eating less meat, finding alternatives to using animals to find cures for human diseases, and protecting an old forest for the spotted owl and timber wolf are threats to the economy, to progress, and to the rights and interests of the populace.  This attitude, I believe, is ultimately suicidal, for if we harm the planet, we harm the person; and if we harm other sentient beings, we harm ourselves.  But to be pro-animal rights and environmental protection, in the eyes of many, is to put animals and nature before people.  Such is the ignorance and cupidity of the times.
 
+MAKING THE NATIONAL AND GLOBAL ECONOMY SUSTAINABLE
+
+
+It is evident that the main driver of the  2022 Mid-term elections in the U.S.was concern over the economy/inflation, rather than the environment/climate change,  human rights, poverty and crime. “Economism”-making the economy the ethos of society in the service of Mammon- cannot continue to sacrifice the environment, biodiversity animal protection---and public health---for profit. It is the main driver of Climate Change. The Trump administration’s gutting of the Environmental Protection Agency’s regulatory authority and rollback of environmental and animal protection laws in support of various vested interests may some day be seen as crimes against Nature and humanity. 
+
+
+Ehan Masood writes “If the world continues on its current track, it will fall well short of achieving almost all of the 17 Sustainable Development Goals (SDGs) that the United Nations set to protect the environment and end poverty and inequality by 2030. World leaders are converging on the idea that it’s time to stop using gross domestic product (GDP) as the world’s main measure of prosperity. Instead, we could complement it with a dashboard of indicators on the economy, health, ecosystems, climate and more. If this happens, it would be the biggest shift in how economies are measured since nations first started using GDP in 1953, almost 70 years ago. “Absurdly, GDP rises when there is overfishing, cutting of forests or burning of fossil fuels,” wrote UN secretary-general António Guterres in 2021. “We are destroying nature, but we count it as an increase in wealth.”( E. Masood, GDP is getting a makeover — what it means for economies, health and the planet. Nature, Nov. 8th 2022).
+
+
+I voiced these concerns over 20 years ago in my book Bringing Life to Ethics: Global Bioethics for a Humane Society, emphasizing that the GDP ( or GNP-Gross National Product) will be non-sustainable and that “we clearly need better indices of progress that incorporate bioethical principles and address such interconnected concerns as environmental quality, biodiversity, social well-being and the effectiveness of animal protection and human rights legislation.” 
+
+
+ I was far from alone voicing such prescient warnings decades ago and was often dismissed for “crying wolf”, and even called a Communist bent on overthrowing American agriculture when I exposed the suffering of factory farmed animals. These ironies endures as I continue to oppose the sport hunting and trapping of wolves and other wildlife, and decry the mistreatment of most animals raised for human consumption, all of which fills me with shame and disgust.
+
+
+The Climate Crisis and COVID-19 pandemic, of which more are predicted, seem to be catalyzing the U.N. to become a UEN—a United Environmental Nations for which I have long advocated, that recognizes the connections between One Earth, One Economy and One Health: One Earth of finite resources; One Economy of sustainability that is socially just; One Health of people, plants, ecosystems aquatic and terrestrial, and of animals wild and domesticated.
+
+
 
 It is quite wrong to conclude that animal rights and deep ecology are anti-progress, anti-science, anti-business and anti-industry, and contrary to the best interests of society.  But there is  a curious twist to this.  I recall a luncheon meeting with the CEO of one of the world's fastest growing agribusiness corporations, and he said he felt that "The humane treatment of animals -- farm animal welfare -- isn't a moral or ethical issue."  From his perspective, and for many executives in the business world, animal welfare, rights and environmental/ecological issues are primarily of economic concern.  It is to be hoped that such a narrow vision of economic concern will be broadened by the concept of sustainability, i.e., steady-state economics rather than illimitable economic "growth" and "development." 
 
