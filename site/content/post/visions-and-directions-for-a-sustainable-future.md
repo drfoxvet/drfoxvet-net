@@ -51,3 +51,30 @@ One of the worst plagues afflicting the world today is consumerism.  It controls
 
   Time and life are running out for planet Earth.  This has not yet become a wholly irreversible process in most human communities.  But for the majority of the human species it very soon will be if we fail to collectively begin to cooperate for the good of the planet, for wildlife and natural ecosystems, for ourselves and for our descendants.  If we do not, then we will be naturally constrained by the consequences of our own violence, greed, ignorance and indifference.  We should then not wonder why half the world's population is at or on the verge of war while the other half suffers and dies from malnutrition and disease.
 
+PRO-LIFE FROM A ONE HEALTH PERSPECTIVE
+
+
+There are millions of yet not fully counted forms of intelligent life around us and within us which we continue to harm in many ways; and harm ourselves in the process. Two examples: the proliferation of antibiotic-resistant bacteria and invasive herbicide-resistant “superweeds”.
+
+
+Our intellectual understanding and empathy leading to respect for all life is falling short and we are suffering the consequences as are other species, be they microorganisms, plants or other animals. Even our treatment of warm- blooded mammals like ourselves, such as pigs who have saved many human lives with their “donated” heart valves, is deplorable as any visit to a factory farm from China to Iowa would confirm.
+
+
+The Pro-Life sentiment today takes many forms ranging from concerns for the unborn human to opposing the euthanasia of terminally ill and suffering people; of crippled, spent and suffering “sacred” cows in India who are put in shelters out of the public eye to die “naturally”, and of un-adopted cats in the U.S. who are released from shelters to fend for themselves outdoors. This means a slow death for many and their escalating killing-to-survive of remnant wildlife species in suburban and rural communities; and now a recognized public health issue because cats carry more diseases transmissible to humans than do rats.
+
+
+Most prevailing Pro-Life beliefs should be examined because they are moral/ethical positions which can be polarizing and divisive; and need to be revised from a One Health perspective, which embodies the science and bioethics of environmental, animal, plant and public health for the common good and the good of the Commons.
+
+ Being primarily human-centered, the Pro-Life “protect human life at all costs” appeal continues to do more harm than good, profit incentives aside, as exemplified by the deliberate and indiscriminate killing of intelligent life forms around us and within us by various means. These include antibiotics, insecticides, herbicides, fungicides, rodenticides and predator extermination (with poison baits, traps and guns to eliminate large predators whose ecological role, like other species, is vital to ecological integrity and health): And incidental harming and killing with pollutants, including the latest,---plastics and electropollution. Against the background of global warming and climate change there is much for civil society to address and rectify.
+
+
+Any Pro-Life movement that does not advocate, from a One Health perspective, global ecological stewardship, organic and humane food production and holistic health care education but submits to Big Ag and Big Pharm and sacrifices the environment for “economic growth” is illegitimate. Nutrient deficient, disease and pest-susceptible crops, (many being genetically engineered with biologically anomalous and potentially harmful qualities) grown on life-depleted soils and the human epidemic of obesity/metabolic syndrome with gut microbial dysbiosis and immunological disorders are all connected. The benefits of probiotics are an outcome of a broader, Pro-Life, One Health perspective.
+
+
+We cannot continue to disrupt the delicate, co-evolved relationships between microorganisms, plants and animals that comprise and sustain the regenerative life-community on planet Earth with whom we must learn to share and, along with them, adapt to environmental changes or become extinct. All ecosystems are dynamic networks of stability, transformation and change. Protecting natural biodiversity should be a Pro-Life priority since natural biodiversity helps contain and prevent diseases, invasive species and the collapse of ecosystems aquatic and terrestrial which scientists are now documenting. The reported 69% decline in wildlife populations world-wide since 1970 is especially alarming.
+
+
+In sum, to be Pro-Life exclusively for humans in the face of growing populations and rising poverty, or for some other species such as the domestic cat too numerous in many communities for willing home-owners to accommodate, and to oppose their euthanasia or group-colony housing/containment and release them outdoors, cause more harm than good. Reason, bioethics and compassion should prevail over morally and sentimentally limited Pro-Life beliefs, politics and advocacy.
+
+
+
