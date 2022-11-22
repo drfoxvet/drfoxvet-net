@@ -24,4 +24,19 @@ We have read about this behavior in dogs with dementia, but are not sure if this
 
 Thank you.
 
-DS, Ann Arbor MI
+D.S., Ann Arbor MI
+
+DEAR D.S., From what you describe it seems quite apparent that your dog is showing clear signs of dementia. It is encouraging that his blood readings show he is in relatively good physical health.
+
+ I have advised many owners whose dogs have begun to behave like yours and find that giving 3-6 mg of melatonin one-half hour before bedtime can help all get a good night's sleep. Melatonin is also an excellent antioxidant which may help "detox" the brain. 
+
+I would add additional antioxidants to your dog's daily diet such as a teaspoon each of raw grated carrot and crushed blueberries plus a few drops of fish oil and 100 mg magnesium which can benefit both the brain and heart.
+Two supplements which also benefit people and have a calming effect are L-Theanine (from green tea) and Tryptophan (high in turkey meat). So I would substitute turkey for the cooked chicken you give your dog and give your dog 50-100 mg of L-Theanine and Tryptophan daily with food.
+
+
+If these measures do not result in significant improvements within 10-14 days discuss with your veterinarian putting your dog on anti-anxiety medication beginning with a low dose while continuing with the treatment I have suggested.
+
+ Also, giving your dog a slow and deep, relaxing massage before bedtime, as per my book The Healing Touch for Dogs, may prove beneficial. Human patients spending some time hospital can develop a disorienting "hospitalization dementia" which daily massage therapy has been shown to significantly ameliorate.
+
+
+
