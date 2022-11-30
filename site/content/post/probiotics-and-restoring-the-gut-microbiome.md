@@ -2,7 +2,7 @@
 title: Probiotics and Restoring the Gut Microbiome
 date: 2022-11-30T18:56:42.641Z
 tags:
-  - Dogs
+  - Cats
 ---
 RESTORING THE GUT MICROBIOME GAINING GREATER RECOGNITION IN THE TREATMENT OF MANY CONDITIONS
 
