@@ -2,7 +2,7 @@
 title: Restoring the Gut Microbiome to Treat and Prevent Many Health Problems
 date: 2022-12-06T22:07:28.206Z
 tags:
-  - Dogs
+  - Cats
 ---
 RESTORING THE GUT MICROBIOME TO TRAT AND PREVENT  MANY HEALTH PROBLEMS
 
