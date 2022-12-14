@@ -198,6 +198,8 @@ All breed clubs with dogs having health and quality of life limiting physical tr
 
 
 In contrast, the American Kennel Club’s Breed Health Testing Requirements ( https://www.akc.org/breeder-programs/breed-health-testing-requirements)  are clearly deficient, the entry for Dachshund—"Recommended Health Tests from the National Breed Club: Patella Evaluation. Cardiac Exam. Read the Official Breed Club Health Statement.” Breeders completing these tests can gain the AKC Breeder of Merit Program Certification!
+
+
 And for the French and English Bulldog Breed Clubs there is no mention of  evaluating dogs’ ability to breathe and tolerate some physical activity! The AKC’s Bred with H.E.A.R.T. program “requires health testing of breeding stock in accordance with recommendations of their breed’s parent club. Breeders who meet the requirements of the Bred with H.E.A.R.T. program are eligible for many benefits, including a 10% discount on insurance for their puppies through AKC Pet Insurance.” All of this I see as window-dressing nonsense and advise all who are seeking some particular purebred to visit the breeding facility, never buy on-line: Or go to a breed rescue website and adopt. All commercial puppy mills should be closed down.
 
 
