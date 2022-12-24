@@ -937,6 +937,7 @@ March 1975
 
 LAMENTATION OF THE LARKS
 
+
 Where have all the meadow larks gone?
 They filled my childhood’s soul
 When they spiraled and trilled above me
@@ -959,11 +960,15 @@ For which there is no redress.
 Bodies, minds and spirits harmed
 Spawn profitable drugs and services
 As the Earth dissolves and humanity devolves.
+
  Dec 2013
                                                     
-                                                      MAN EATING DOG
+                                                   
+   MAN EATING DOG
 
-                                                   One must be very hungry,
+
+
+ One must be very hungry,
                                                     Or really like the taste
                                                     To kill and eat a dog.
                                                     It might be out of dire necessity,
@@ -974,6 +979,7 @@ As the Earth dissolves and humanity devolves.
 
                                                  
                                                             DOGS TO ME
+
 
                                           As an infant, I found every dog
                                           A source of wonder and delight;
@@ -990,11 +996,14 @@ As the Earth dissolves and humanity devolves.
                                           An open mind to an open heart;
                                           A kindred spirit in canine form.
 
-                                                      Sept. 2010
+                                                     
+ Sept. 2010
+
 
 
 
 MY DOG BATMAN
+
 You were my clock and pacemaker
 Giving canine cadence to my every day. 
 For fifteen years you got me up and out.
