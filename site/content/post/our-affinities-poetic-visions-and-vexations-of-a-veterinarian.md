@@ -193,6 +193,8 @@ Of our kind and fish kind
 And all kind great and small.
  Aug 1986 Published in The Animals Agenda magazine
 
+
+
                The Panther
 Just before my thirteenth birthday
 I joined the spirit of a captive panther
@@ -243,9 +245,13 @@ Suffering the severance of living souls
 From all wildness, being, purpose,
 I find such zoos, like the animal circus
 Make me alien to my species, and ashamed.
+
 Aug 2004
 
+
+
 Bovine Ruminations
+
 I remember that sweet vision
 Of cows quietly grazing
 When I was deep thinking
@@ -277,6 +283,7 @@ Bloody the noble bull
 Dying in the ring
 And bellowing heaven’s rage.
 Let us pray.
+
 Feb 1987. First published in In Newer Veins: An Anthology of Poetry Written by Veterinary Surgeons.  A.R.Mitchell & E. Boden, (eds), 1998.
 
 
@@ -288,6 +295,8 @@ Feb 1987. First published in In Newer Veins: An Anthology of Poetry Written by V
  
 
 THEY CAME DOWN FROM THE TREES
+
+
 Complete in themselves,
 Safe and secure, the monkeys
 Kept to the trees, wanting no more.
@@ -305,10 +314,14 @@ So clever indeed,
 Playing god with atoms and genes
 Laying waste to the old world
 To make way for the new.
+
  Sept. 2008
 
 
+
+
  I KNEW A CHILD
+
  I knew a child who looked
  Into the eyes of animals,
  And saw the self in others:
@@ -336,10 +349,12 @@ So too the animals.
     In grace and wonder,
    Innocent and selflessness,
    This child is parent to us all.
+
  Feb. 2007
                                   
 
  GOD RIGHT, GOD WRONG
+
 Have you found the God of little things?
 Felt divinity around, within
 The awe inspiring miracle of life
@@ -373,7 +388,9 @@ Sept. 2008
 
 
 
+
    NEW-YEAR RE-FLECTIONS
+
 When love, suffering, service
 Are one, there is grace within;
 Arrogance and fear are gone.
