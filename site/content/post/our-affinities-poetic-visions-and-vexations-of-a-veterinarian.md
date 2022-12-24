@@ -553,11 +553,14 @@ Our finer feelings, like the wind, we must trust
 to inform and guide our own emergence
 into the Light of wisdom, beauty and gratitude.
 
+
   Spring, 2005
 
 
 
+
 THE BEAST WITHIN
+
 
 Thinly veiled as civilized
 The beast within remains contained.
@@ -586,10 +589,13 @@ Of saving face and civic pride.
 No place to hide from naked truth
 The beast within consumes itself
 And men are broken, empty shells.
+
  July 2007   
                             
 
                              IN WILDNESS
+
+
  In wildness we find the sum of all our fears and longing
 Where feral hearts beat Earth drums into ecstatic revelation
 Through dance and song, and trance of Light
@@ -605,15 +611,18 @@ Because they share no feeling ,vision, understanding.
 One destroys while the other nurtures and sustains. 
 One species of two minds cuts a whole world into two.
  
- Now wildness is defiled, domesticated, civilized, commercialized
-By mammonists deluded by self- righteousness and entitlement.
+ Now wildness is defiled, domesticated, civilized, commercialized By mammonists deluded by self- righteousness and entitlement.
 But with the authority of empathic wisdom we could make
 A world where beauty and justice are incorruptible twins,
-For the plight and suffering of one is felt and shared by all. 
+For the plight and suffering of one is felt and shared by all.
+ 
+
  Oct. 2005 
            
 
                       BECOMING
+
+
 An eagle’s first flight is into freedom from fear 
 Where resistance and supplication resonate
 Like lovers elemental, ancient and wise
@@ -638,10 +647,14 @@ Not pinioned by fear and self-doubt,
 To become the wind, the rain, a tree, a wolf.
 In the sanctity all these beings of our becoming
 We rediscover our humanity and sanity.
+
+
  May 2014
 
 
+
                  A PRAYER FOR MY SPECIES
+
 Where there is discord, let there be concord.
 Where there is chaos and insanity, let there be equanimity.
 Where there is hatred and rage, let there be reason.
@@ -695,13 +708,17 @@ Where there is neglect, let there be admonishment and instruction.
 Where there is non-human life, let there be reverential respect.
 Where there is beauty, let there be contemplation and celebration.
 Where there is sentience, let there be communion.
+
 March 2015
 
 
 
-                                                 AN ODE TO CHRISTMAS TREES
+                                                 
+           AN ODE TO CHRISTMAS TREES
 
-                                             Who mourns with me the little Evergreens
+
+
+                                Who mourns with me the little Evergreens
                                              By the millions severed
                                              From their roots, so soon to die?
 
@@ -770,10 +787,14 @@ But blood we spill and few dare care.
 Green people and their wolves may soon be gone
 
 So who then to remember all were one?
+
 Sept 2013
 
 
+
 FOR THE LOVE OF WOLVES
+
+
 For some the wolf is brother,
 Sacred other, she-wolf dear,
 Perfect mother, wolf song
@@ -824,14 +845,19 @@ Carnivorous predator, biological specimen,
 Renewable resource, harvested furbearer,
 Hunter’s trophy, trapper’s challenge,
 Icon of wilderness, endangered species.
-But for the First people, the Anishiaabe,
+But for the First people, the Anishinaabe,
 Ma’iingan, the wolf is of the heart
 And spirit shared before all words, 
 One Soul, one Earth, one Truth revered.
+
  Oct 2012
 
 
+
+
 Advice to Brother Wolf
+
+
 In fear and frenzy
 You try to bite the stars;
 My brother, bite away
@@ -848,9 +874,13 @@ It was for you my brother---
 Go away from here
 And in your dreams eat out
 The sadness in my heart.
+
 March 1974
 
+
+
 The Kill
+
 Soft grey wolf dawn
 Glides over the hill,
 In silence spills
@@ -867,9 +897,13 @@ Like daybreak is not felt
 As the fawn falls softly
  Into sunlight
 Where wolf eats and rests.
+
 April 1975
 
+
+
 Hunters of the North
+
 We are always on the move
 Loping easily
 From space to space
@@ -895,10 +929,14 @@ If only all of us could rest together
 Feast on sunlight,
 There would be no need to kill,
 To always be moving into winter.
+
 March 1975
 
 
+
+
 LAMENTATION OF THE LARKS
+
 Where have all the meadow larks gone?
 They filled my childhood’s soul
 When they spiraled and trilled above me
