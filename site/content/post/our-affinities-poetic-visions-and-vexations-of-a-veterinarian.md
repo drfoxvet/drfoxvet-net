@@ -383,6 +383,7 @@ To heal and to make whole
 Through our sense of the sacred, 
 In the sacraments of silent oaks
 And standing stones.
+
 Sept. 2008
 
 
@@ -390,6 +391,7 @@ Sept. 2008
 
 
    NEW-YEAR RE-FLECTIONS
+
 
 When love, suffering, service
 Are one, there is grace within;
@@ -434,10 +436,14 @@ Is in simple acts of loving kindness
 To all beings great and small
 Whom we embrace in reverence
 And suffer all to come to us.
+
 Jan 2008
 
 
+
+
 COMING TO SOIUX FALLS, S. DAKOTA
+
  Prairie, plains, all torn;
 The blight of cattle, corn.
  Poisoned streams.
@@ -454,10 +460,12 @@ Not worth a tinker’s cuss.
 Renunciation a distant call
 To hallow all,
 So glad coyotes sing.
+
 Sept 2007
                                                       
 
                 AUGUST EVENING
+
 Reaching out now, this soft summer eve,
 as tree frogs and crickets symphonize
 to call up storms, or peace, in the voice
@@ -472,10 +480,12 @@ Shamans’ journeys into ancestral realms
 as well the boundless source of all wisdom
 that inspires our art, informs our science:
 And illumes all life. 
+
   Aug. 2006
  
 
   FLYING NOT AWAY
+
 Oozing out into unintelligible realms
 where the mind is jangled into mush,
 the wandering soul is set adrift,
@@ -505,10 +515,15 @@ the Snow geese sing antiphonal anthems
 as they pass above me in this vibrant night
 into some new day where I am waiting
 beyond the curve of light
-to welcome them in silent gratitude. 
+to welcome them in silent gratitude.
+ 
  Dec. 2005
 
+
+
  HEALING THE RAIN
+
+
 Everywhere the rain burns into soft skins of self and soil
 and tender leaves and wings, poisoning all 
 once nurtured and sustained. Nothing is immune, 
@@ -537,10 +552,13 @@ When we harm the skies we harm ourselves.
 Our finer feelings, like the wind, we must trust
 to inform and guide our own emergence
 into the Light of wisdom, beauty and gratitude.
+
   Spring, 2005
 
 
+
 THE BEAST WITHIN
+
 Thinly veiled as civilized
 The beast within remains contained.
 Outsiders think it tame.
