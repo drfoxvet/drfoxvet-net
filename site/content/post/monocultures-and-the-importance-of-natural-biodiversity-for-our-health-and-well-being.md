@@ -151,6 +151,18 @@ Past human civilizations had their plagues and pestilences. These will continue 
 
 The first correctives and preventives---reduction in population and consumption---would be better taken by ourselves, voluntarily, and with less suffering that is inevitable with nature’s correctives of pestilence, plagues, droughts, floods and famine.
 
+Humans are the most invasive of all species. The U.N. Biodiversity Conference in Montreal December 2022 succeeded in securing non-binding agreements from close to 200 countries to protect 30% of terrestrial and aquatic ecosystems by 2030. The main environmentally destructive drivers identified reducing biodiversity and accelerating species extinction were agriculture, overfishing, logging, mining, climate change, invasive species and pollution. But there were no media reports to my knowledge of any substantial discussion about the issue of population growth, our numbers now being estimated at 8 billion.
+
+
+Perhaps this omission was a combination of amnesia, denial and politics, but the fact remains: humans are the most invasive and destructive of all species. Many U.N. delegates and conferees were not even born when this issue was first raised by the Club of Rome’s first report, The Limits to Growth. published in 1972. Widely publicized to world leaders and governments, the report showed that economic growth could not continue indefinitely because of resource depletion. It underscored as self-evident that economic growth meant greater environmental impacts and the main way to environmental gains was reduced population and consumption.
+
+
+But now we face what scientists and conservationists call the sixth mass extinction, the Anthropocene apocalypse, the severity of which we may be able to minimize given the will and the means. Climate change and loss of biodiversity go hand-in-hand and will be the “natural” population and consumption correctives, along with associated famines, plagues and pestilences, if we fail to act now. For some excellent details go to Newsletter - Sentient Media https://sentientmedia.org › newsletter.
+
+
+  The U.S. government and the Vatican declined to sign the agreement at the COP15 conference to stop the global loss of biodiversity by 2030, and representatives from Cameroon, the Democratic Republic of Congo and Uganda expressed disagreement. Signatories agreed to take steps to halt species extinctions, protect 30% of the planet for nature, restore 30% of degraded ecosystems and reform $500 billion in subsidies that encourage environmental damage. Full Story: CNN (12/19),  The Guardian (London) (12/19). The non-signing by the Vatican reminds me of their centuries-long opposition to all forms of contraception other than abstinence which certainly helped increase family size as cultural norms in Catholic communities around the world.
+
+
 RELIGION, ANIMALS & THE ENVIRONMENTAL CRISIS 
 
 For most of human history we humans were gatherer-hunters with an intimate knowledge of the natural world. This knowledge was the basis of our animistic religious sensibility that felt and respected the life force in all things, as in ourselves, which gave us a sense of kinship with all life. 
