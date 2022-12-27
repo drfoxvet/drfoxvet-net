@@ -132,6 +132,16 @@ We cannot continue to disrupt the delicate, co-evolved relationships between mic
 For further discussion see Bringing Life to Ethics: Global Bioethics for a Humane Society, State University of New York Press by Dr. Michael W. Fox 
 
 
+GOOD NEWS FOR 2023: ONE HEALTH LEGISLATION PASSES CONGRESS
+
+As a long-time advocate of One Health, as per my 2011 book Healing Animals and the Vision of One Health, I am very encouraged by this posting from Colin MacCarthy, Media Relations Specialist, American Veterinary Medical Association:  
+ (WASHINGTON, DC) December 23, 2022 — A provision directing the development of a One Health Framework across the federal government was included in the final spending bill of the year. The legislation passed derives from the AVMA-championed Advancing Emergency Preparedness Through One Health Act that was introduced at the beginning of the 117th Congress. With passage, Congress will now direct federal agencies to develop and submit a national One Health Framework to collaboratively address zoonotic diseases and advance public health preparedness.
+
+
+
+
+
+
 ## A Thought for the Day & Every Day
 
 Let us embrace our gift of life and then give more than we take to live in balance and harmony in a world of takers so that our legacy honors who we were and all whom we embraced.
