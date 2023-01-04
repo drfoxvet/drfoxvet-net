@@ -2,7 +2,7 @@
 title: 'Our Affinities: Poetic Visions and vexations of a Veterinarian'
 date: 2022-12-24T15:15:03.031Z
 tags:
-  - Spiritual Issues
+  - Poetry
 ---
 OUR AFFINITIES: POETIC VISIONS & VEXATIONS OF A VETERINARIAN
                                           
@@ -466,6 +466,7 @@ Sept 2007
 
                 AUGUST EVENING
 
+
 Reaching out now, this soft summer eve,
 as tree frogs and crickets symphonize
 to call up storms, or peace, in the voice
@@ -485,6 +486,7 @@ And illumes all life.
  
 
   FLYING NOT AWAY
+
 
 Oozing out into unintelligible realms
 where the mind is jangled into mush,
@@ -742,6 +744,7 @@ March 2015
 
                                              
   GOING FISHING
+
 Before you go fishing or eat a fish
 Take a swim in their schools and shoals.
 As their shimmering sides and colors
@@ -768,7 +771,10 @@ Or let every glimmering being sing.
 May 2014
 
 
+
+
 THE GREEN PEOPLE
+
 
 Our blood is red from the air we share
 
@@ -789,6 +795,7 @@ Green people and their wolves may soon be gone
 So who then to remember all were one?
 
 Sept 2013
+
 
 
 
@@ -881,6 +888,7 @@ March 1974
 
 The Kill
 
+
 Soft grey wolf dawn
 Glides over the hill,
 In silence spills
@@ -903,6 +911,7 @@ April 1975
 
 
 Hunters of the North
+
 
 We are always on the move
 Loping easily
@@ -981,6 +990,7 @@ As the Earth dissolves and humanity devolves.
                                                             DOGS TO ME
 
 
+
                                           As an infant, I found every dog
                                           A source of wonder and delight;
                                           Responsive presence, a joy
@@ -1002,7 +1012,9 @@ As the Earth dissolves and humanity devolves.
 
 
 
+
 MY DOG BATMAN
+
 
 You were my clock and pacemaker
 Giving canine cadence to my every day. 
@@ -1093,7 +1105,11 @@ In memory of Batman who left this life on July 19th, 2011.
 Aug. 2011
 
 
+
+
    MY RE-TIREMENT
+
+
 Time to disengage
 To let go of all 
 That the heart cannot
@@ -1120,6 +1136,8 @@ June 2013
 
 
            SACRED ELEPHANTS
+
+
 In the racial memory of elephants
 Long before the dawn of human consciousness,
 Perhaps they, like us much later,
@@ -1147,10 +1165,15 @@ And all that makes us human,
 Giving loving kindness to them all
 And every creature great and small.
 July, 2011
+
 (Poem published in the book Giant Hearts: Travels in the World of Elephants, J.-P. Puryavaud & P. Davidar, 2015.) Inspired by Heathcote William’s book, Sacred Elephant.
 
 
+
+
 CONSUMING INNOCENSE & ANIMALS
+
+
 Our collective taste for animals,
 For their flesh and roasted fat,
 Decorative skins and furs,
@@ -1173,7 +1196,11 @@ But a renunciation before communion
 And the healing of all our relations.
 July 2013
 
+
+
 WHAT WE CARE TO EAT
+
+
 Where are the meadow larks,
 The dancing hares?
 Gone the way of wolves and bears, 
@@ -1217,10 +1244,14 @@ Kitchen anarchists, caring farmers unite!
 Our plates reflect the power of place,
 With local foods, organic, whole
 To mirror, nurture our humanity.
- Oct. 2009 Quotation from the Mahatma, Gandhi.
+ Oct. 2009 Quotation from the Mahatma, Gandhi
+.
+
 
 
   FOR DEANNA---AN ODE TO STONES
+
+
 I had forgotten the songs of stones
 Until you stilled my mind 
 And opened my heart’s ear
@@ -1250,7 +1281,11 @@ And with Thou in all.
  Oct. 2009
 
 
+
+
    THE WAY OF REVERENCE
+
+
 There are many ways of looking.
 Those who look in reverence
 See in a sacred way.
@@ -1271,7 +1306,11 @@ Is love’s gift to a world made sane.
  Oct. 2006
 
 
+
+
       NATURE’S HIDDEN TRUTHS
+
+
 Victim, victor, opposing wills,
 Predator, prey, survival of the fittest,
 Nature raw, ‘red in tooth and claw’,
@@ -1301,7 +1340,7 @@ Of all beginnings and ends.
 They connect our souls and minds
 With the unseen between
 And within the seen. The Peace
-‘Which passeth all understanding’
+‘Which passes all understanding’
 Then comes to Earth through us.
 
 Weather, like our emotions,
@@ -1331,8 +1370,14 @@ As Shiva dances this cosmic cycle
 And Pan still plays his pipes.
  Oct. 2009
 
+
+
              FOR WILLIAM BLAKE
+
+
 (Who raged against my homeland England’s ‘satanic mills.’)
+
+
 
 'William Blake was no flake or fake.
 He journeyed into the minds of men
@@ -1361,7 +1406,11 @@ Of ancient trees and Monarch butterflies!
  Sept. 2009
 
 
+
+
 THE FALLING TOWERS
+
+
 I have seen how your towers
 Of glass and steel,
 Ephemeral, unreal, so transient,
@@ -1463,6 +1512,8 @@ A consummation devoutly to be wished.
       
                                                   
 THE WAY TO PEACE
+
+
 We speak in many tongues,
  but from what heart?
  Hearts of love bring joy and peace;
@@ -1494,7 +1545,11 @@ And all our slaughtering end.
 July 2007
 
 
+
+
        EVERY HEALER KNOWS
+
+
 Every healer knows the Medicine Wheel
 Is the Sacred Hoop the Hopis dance.
 The drum-beat heart of Earth
@@ -1518,7 +1573,11 @@ As well the air we share.
 March 2010
 
 
+
+
  FOR EVER HEALED
+
+
 Come join the Sun dance,
 Call up the ancestors-
 Beloveds gone, mothers---
@@ -1548,7 +1607,11 @@ Jan 2007
 
 
                   THE HOLARCHY
+
+
             ( Where holarchists unite!)
+
+
 
 The ethos of the natural world,
 The law of Nature, creation’s code,
@@ -1619,7 +1682,11 @@ In nascent galaxies near and far.
  July, 2009
 Dedicated to the late Thomas Berry who saw that “The universe is not a collection of objects but a communion of subjects.”
 
+
+
 THE END OF THE RACE
+
+
 Be of good cheer;
 The end of the race is near;
 The end of the human race.
@@ -1665,7 +1732,11 @@ Inherent in us all.
  Oct 2009
 
 
+
+
 EVOLVE OR PERISH: A PARADIGM SHIFT
+
+
  ‘Physician, first heal thyself,
 And do no harm’,
  Hippocrates advised;
@@ -1699,9 +1770,10 @@ And songs of stars and whales.
 
 
 
- 
-ADDENDUM
+ 
                    One Pilgrim’s Way
+
+
 Going to the ponds to explore their inner lives 
 Contained within their steep and muddy banks
 The child found conscious life in a myriad forms
@@ -1783,8 +1855,12 @@ By hallowing every living place
 And all who dwell therein.
 April 2015
 
+
+
 FOR MY MOTHER-In Memoriam
+
       (Minnie Elizabeth Wilson Fox)
+
 In my attentive father’s shadow
 I remember how you helped me
 Stand, walk, speak and spell;
