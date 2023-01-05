@@ -2,7 +2,7 @@
 title: 'Dogs Kisses, Licks and Saliva that Heals'
 date: 2022-05-08T14:59:36.663Z
 tags:
-  - Public Health
+  - Dogs
 ---
 DOGS’ KISSES, LICKS AND SALIVA THAT HEALS
 
