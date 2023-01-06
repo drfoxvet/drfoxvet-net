@@ -1,6 +1,8 @@
 ---
-title: 'cats and Toxoplasmosis: The Parasite of Parasites Among Us.'
+title: 'Cats and Toxoplasmosis: The Parasite of Parasites Among Us.'
 date: 2023-01-06T15:12:47.593Z
+tags:
+  - Cats
 ---
 CATS AND TOXOPLASMOSIS:THE PARASITE OF PARASITES AMONG US
 
