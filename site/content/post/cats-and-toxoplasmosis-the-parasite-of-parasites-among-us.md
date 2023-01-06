@@ -2,7 +2,7 @@
 title: 'Cats and Toxoplasmosis: The Parasite of Parasites Among Us.'
 date: 2023-01-06T15:12:47.593Z
 tags:
-  - Cats
+  - Public Health
 ---
 CATS AND TOXOPLASMOSIS:THE PARASITE OF PARASITES AMONG US
 
@@ -22,6 +22,7 @@ Horses in stables and zoo animals are also at risk of Toxoplasmosis when cats ar
 
 There are many more other diseases that cats can transmit, more so than rats, to people. It is therefore a public duty of all health authorities, state veterinary associations, animal control agencies and those involved in municipal legislation to address the free-roaming cat issue and responsible cat care.
 Imagine a parasite evolving over millennia to be able to influence the behavior of whatever animal it infects so that its continuation by transmission to other animals is insured. Domestic cats are the primary host for this super-parasite which they shed in their feces and the eggs then infect other animals, especially small rodents. Inside the rodents they alter the brains of their new hosts, making them attracted to the urine and other odors of cats and reducing their instinctual fear so they are more likely to be killed and eaten by cats who then become infected.
+********************************************************
 
 
 Toxoplasmosis in humans is summarized by the CDC as follows: (https://www.cdc.gov/parasites/toxoplasmosis/epi.html)
