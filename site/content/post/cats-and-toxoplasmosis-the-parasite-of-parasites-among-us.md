@@ -2,7 +2,7 @@
 title: 'Cats and Toxoplasmosis: The Parasite of Parasites Among Us.'
 date: 2023-01-06T15:12:47.593Z
 tags:
-  - Public Health
+  - Veterinary Matters
 ---
 CATS AND TOXOPLASMOSIS:THE PARASITE OF PARASITES AMONG US
 
