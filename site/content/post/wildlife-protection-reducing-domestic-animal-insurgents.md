@@ -2,7 +2,7 @@
 title: 'Wildlife Protection: Reducing Domestic Animal Insurgents'
 date: 2023-01-06T15:00:55.150Z
 tags:
-  - Conservation
+  - Environment
 ---
 WILDLIFE PROTECTION: REDUCING DOMESTIC ANIMAL INSURGENTS
 
