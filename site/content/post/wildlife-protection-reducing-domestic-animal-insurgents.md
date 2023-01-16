@@ -20,6 +20,7 @@ There is also a feral dog problem. Feral dogs have been documented in all 50 sta
 
 
 Feral dogs spread diseases such as distemper and parvovirus that put endangered and protected species like the wolf at risk as well as other wild canids, - the various fox species and coyotes. 
+While rabid dogs continue to put people and other animals at risk in many countries, feral dog packs in several countries, including the U.S., have attacked and killed people.
 
 
 The feral cat problem is also a major factor in the loss of song birds and small mammals. They spread diseases to wild felids such as the Florida panther and the Northern Lynx and Bobcat; also, Toxoplasmosis which infects many species including humans.
