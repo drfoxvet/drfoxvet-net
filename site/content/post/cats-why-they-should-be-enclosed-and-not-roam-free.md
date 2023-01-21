@@ -30,6 +30,16 @@ Few municipalities have any effective ordinances mandating keeping cats indoors 
 
 NOTE: Two people in Delaware tested positive in Oct. 2021 for West Nile virus, and an unvaccinated horse with WNV was euthanized Oct. 5 after the animal became unable to stand. Both West Nile virus and Eastern equine encephalitis can be fatal to equids, and owners should "work with their veterinarian to set up a routine vaccination protocol," said Deputy State Veterinarian Karen Lopez .Full Story: WBOC-TV (Salisbury, Md.) (10/8/21) 
 
+TIME TO RETIRE THE “WORKING CAT”
+
+For centuries we have used cats especially around our properties and farms, warehouses and docks to control rodents. Such cultural tradition and acceptance needs to be questioned from cat cat health and welfare perspective and from the perspective of public health. The common situation down on the family farm was litter after litter of kittens from non-neutered resident cats most of whom died from infections or were put in a gunny sack and drowned or smashed against a wall or rock, which I have witnessed.
+
+
+A full reassessment from the public health perspective would call an end to “Working Cats” who can pick up fleas from rats and other wildlife and spread plague into our communities: and a much more prevalent infection: Toxoplasmosis. This disease circulates between cats, the primary host, and rodents who become infected by the cats and in turn, infect other cats ( and wild predators) when they are consumed. It also spills over to other species, not only wildlife but to farm animals when infective cat feces contaminate their feed and where they graze. They, in turn, infect people, as do in-home, and often outdoor-indoor infected cats. Toxoplasmosis is a disease infecting 11% of the U.S. population and some 60% worldwide. Several countries find pork, beef, poultry, dairy products and rabbit meat testing positive for this ubiquitous parasite putting consumers at risk. It is notable that the decline in pigs testing positive in the U.S. is attributed by the U.S.D.A. to hog factory operators keeping cats away from their farms.
+ 
+The logical solution is to make it mandatory to keep cats away from farmed animals ( also those in zoos) and to make all animal feed-storage areas rodent-proof without the use of rodenticides which poisoned rodents can transfer to wild predators-snkaes, foxes, raptors, who consume them and become poisoned. 
+
+
 CATS, TNVR & RABIES
 
 
