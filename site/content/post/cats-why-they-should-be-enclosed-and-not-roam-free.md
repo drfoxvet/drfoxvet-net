@@ -111,6 +111,17 @@ Outdoor cats who are not treated for bot and other fly maggot infections develop
 
  According to a posting on this subject,  (https://vcahospitals.com/know-your-pet/cuterebra-or-warbles-in-cats) “Cats are accidental hosts of Cuterebra larvae. They are most commonly infected when they are hunting rodents or rabbits and encounter the botfly larvae near the entryway to a rodent's burrow. The adult botfly deposits its eggs near or in the opening of rodent and rabbit burrows. After hatching, the botfly larvae, which typically infect rodents and rabbits, enters the host's body through an opening such as the nose or mouth or through a skin wound. After several days, the botfly larvae migrate to the tissues beneath the skin where they encyst and continue their development. Most cases of warbles in cats occur around the head and neck. Most cats will develop a deep abscess or skin infection at the infection site after the warble has left the skin. How can I prevent my cat from getting warbles? The best prevention is to keep your cat from hunting rodents."
 
+CAT FIGHT INJURIES
+
+Several sources estimate that the life expectancy of an outdoor cat is only 2–5 years. By contrast, the life expectancy of an indoor-only cat is nearer 12–18 years (even up to 20 years!). One major reason for the shorter lives of cats allowed outdoors is because when they enter another cat’s territory-which could be a feral cat’s or a no -less irresponsible neighbor’s, cat, bite wounds can transmit FIV-the usually fatal feline immunodeficiency virus. Aside from being hit by vehicles, the other major cause of considerable suffering and expensive veterinary treatment is for cat fight injuries from claw-puncture wounds to deep bites transmitting bacterial infection into underlying tissues, muscles, tendons and joints. These wounds can be crippling and lead to septicemia---blood poisoning---and a slow death if the cat is not immediately treated.
+
+Every veterinary hospital will attest to the fact that many of their feline patents come in with bite and scratch wounds, usually from other cats and on occasion from wildlife such as foxes, raccoons and coyotes .
+Some of these poor cats had no defense since their owners had them declawed. Other owners let their cats out “because they wanted out.” Neutering and the company of another cat indoors generally prevents this desire.
+
+
+I am especially concerned about TNR “Community Cat” programs that do not provide any protective enclosure for their cats which means that any free-roaming and wide-ranging stray, feral or outdoor-indoor Tom cat could encounter and injurious fighting occur. Catching TNR cats with fight injuries would be challenging and probably too little too late if the injured and suffering animal is actually caught. “Working Cats” with infected bites and scratches are likely to die slowly from a combination of infection and starvation, being too ill or crippled to hunt. For more details go to https://www.petshed.com/petcyclopedia/cat-fights.html
+
+
 CATS OUTDOORS AT RISK FROM CRYPTOCOCCOSIS AND HISTOPLASMOSIS
 
 Often under-diagnosed when cats go blind or develop a fever, become lethargic, anorexic, lameness, skin nodules and respiratory distress, histoplasmosis is a fungal disease in the soil. It is the second most commonly reported fungal infection in cats, following cryptococcosis. 
