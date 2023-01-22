@@ -2,7 +2,7 @@
 title: 'Animal-Free Food revolution: End to Factory Farms?'
 date: 2023-01-22T21:09:25.773Z
 tags:
-  - Agriculture
+  - Food
 ---
 ANIMAL-FREE FOOD REVOLUTION: AN END TO FACTORY FARMS?
 
