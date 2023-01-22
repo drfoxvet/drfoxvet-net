@@ -10,8 +10,7 @@ Maryclaire M. Farrington
 704-202-6080
 mcfarrington@outlook.com
 
-Introduction
-  
+
 
 
 Most Americans have seen the ASPCA commercial:  Sarah McLachlan’s singing as flashes of dirty, dejected, skeleton-like dogs stare at you through the television.   Animal abuse in its most obvious form—horrified by all Americans.  But there is a more invidious threat hiding behind the “picture-perfect” and heavily papered bulldog in the pet store window.  Pedigree breeding and America’s obsession with the purebred dog has resulted in Frankenstein-like animals who suffer from the moment they are born, simply because they were born.
