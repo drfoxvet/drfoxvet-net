@@ -116,3 +116,169 @@ V. Conclusion
 There is a pedigree problem in the United States.  The health and welfare of American dogs have become a secondary consideration to aesthetics—largely at the hand of the AKC.  The AKC makes millions of dollars annually due to the American obsession with the purebred dog and outwardly opposes legislation that would curtail their money-making ventures.  Thus, one solution is the AKC shifting its focus to protecting the animals it profits from—hiring more inspectors and raising the bar for affiliated breeder status.  Alternatively, a more realistic solution is to educate consumers—and allow them to recognize that AKC affiliation is not a hard-earned status, but rather a paid-for gold star.  
 
 Encouraging the adoption of paperless shelter dogs is a valiant alternative to a puppy mill purchase.  However, as discussed, the preference for purebred is not a flashy fad, but a deeply-engrained human attraction to “perfect creatures.”  At the minimum, consumers should investigate their breeders, request genetic testing, and visit breeding facilities before bringing home their new puppy.   And perhaps, one day, pet owners will hold the AKC accountable for the dark shadow they have cast on the doggy in the window.
+
+
+  Benoit Denizet-Lewis, Can the Bulldog Be Saved?, N.Y. TIMES (Nov. 22, 2011), https://www.nytimes.com/2011/11/27/magazine/can-the-bulldog-be-saved.html.
+  Id.
+  Id.
+  See Kat Eschner, The Evolution of Petface, SMITHSONIAN MAGAZINE (Jan. 31, 2018), https://www.smithsonianmag.com/science-nature/evolution-petface-180967987/.  French bulldogs are 14-70 times more likely to die due to respiratory problems than other breeds.  Id.
+  Koharik Arman, Animal Welfare, 48 CANADA VETERINARY J. 953, 953 (2007).
+  Michael D. Lemonick, A Terrible Beauty, TIME (Dec. 12, 1994), https://content.time.com/time/subscriber/article/0,33009,981964,00.html.
+  Id.
+  Id.
+  See, e.g., Nick Watt, Best of Breed? Pedigree Dogs Face Disease, ABC NEWS (Mar. 11, 2009), https://abcnews.go.com/Nightline/story?id=7055788&page=1 (“That dog I kept, out of the brother-sister breeding, . . . was one of the best stud dogs I've ever owned and produced over 80 champions.").
+  Michael Brandow, Why Breeding Pedigree Dogs is Just Eugenics by Another Name, GIZMODO (Mar. 17, 2015), https://gizmodo.com/why-breeding-pedigree-dogs-is-just-eugenics-by-another-1692030738.
+  Ruth Schuster, Vets Urge Action on Bulldogs:  Stop Breeding for Extreme Features, HAARETZ DAILY NEWSPAPER, June 19, 2022.
+  Lemonick, supra note 7.
+  Walter R. Fletcher, A Brief History of the Dog Show, N.Y. TIMES, Mar. 20 1975, at 52.
+  Olivia B. Waxman, The Dark Origins of Dog Breeding, TIME (Feb. 16, 2017, 5:42 AM), https://time.com/4672972/the-dark-origins-of-dog-breeding/.
+  “Origin of Species” is Published, HISTORY (Nov. 22, 2021), https://www.history.com/this-day-in-history/origin-of-species-is-published-2.
+  Daniel Kevles, In the Name of Darwin, PBS, https://www.pbs.org/wgbh/evolution/darwin/nameof/ (last visited Dec. 10, 2022) (internal quotations omitted).  See also Waxman, supra note 15.
+  Brandow, supra note 11.
+  Id. (citing Freeman Lloyd, What Is 'Correct' Conformation?, AKC GAZETTE, July 1943).
+  Harriet Ritvo, Pride and Pedigree:  The Evolution of the Victorian Dog Fancy, 29 VICTORIAN STUDIES 227, 227 (1986).
+  Eschner, supra note 5. 
+  Ritvo, supra note 20, at 241.
+  A Stud Book is “the recorded ancestry of every AKC registered dog and bitch, . . . almost a ‘dictionary’ for a breed.”  The Importance of a Stud Book, NAT’L PUREBRED DOG DAY (July 1, 2017), https://nationalpurebreddogday.com/importance-stud-book/.
+  Ritvo, supra note 20, at 241.
+  Id. at 229–30, 239–40.
+  Mark Derr, The Politics of Dogs, THE ATLANTIC (Mar. 1990), https://www.theatlantic.com/magazine/archive/1990/03/the-politics-of-dogs/670217/.
+  AKC Facts and Stats, AM. KENNEL CLUB, https://www.akc.org/press-center/articles-resources/facts-and-stats/becoming-recognized/ (last visited Dec. 18, 2022).
+  Lemonick, supra note 7 (internal quotations omitted).
+  Id.
+  Id.
+  Id.
+  Id.  See also infra text accompanying notes 147–50.
+  D&B HOOVERS, THE AMERICAN KENNEL CLUB PROFILE 1 (2022). 
+  How to Form a Club, AM. KENNEL CLUB, https://www.akc.org/clubs-delegates/clubs/forming-a-club/ (last visited Dec. 12, 2022).
+  D&B HOOVERS, THE AMERICAN KENNEL CLUB PROFILE 1 (2022).
+  Id. at 3.
+  Registration Fee Schedules, AM. KENNEL CLUB, https://www.akc.org/register/information/fee-schedule/ (last visited Dec. 12, 2022).
+  Mary Pilon & Susanne Craig, Safety Concerns Stoke Criticism of Kennel Club, N.Y. TIMES (Feb. 9, 2013) https://www.nytimes.com/2013/02/10/sports/many-animal-lovers-now-see-american-kennel-club-as-an-outlier.html (“Critics say a significant part of that includes revenue from questionable . . . or so-called puppy mills, which breed dogs en masse with little regard for basic living standards.”).
+  How to Complete an AKC Dog Show Entry Form, AM. KENNEL CLUB, https://www.akc.org/sports/conformation/resources/how-to-complete-an-akc-dog-show-entry-form/ (last visited Dec. 11 2022).
+  D&B HOOVERS, THE AMERICAN KENNEL CLUB PROFILE 1 (2022).
+  Derr, supra note 26.
+  Id.
+  Id.
+  Søren Stig Andersen et al., Regulating Companion Dog Welfare:  A Comparative Study of Legal Frameworks in Western Countries, 11 ANIMALS 1, 2 (June 2, 2021).
+  What Animal Welfare Problems are Associated with Dog Breeding?, RSPCA (June 24, 2021), https://kb.rspca.org.au/knowledge-base/what-animal-welfare-problems-are-associated-with-dog-breeding/ [hereinafter Animal Welfare Problems].
+  Id.
+  See, e.g., id.
+  Animal Welfare Problems, supra note 45.
+  Id.
+  Id.
+  Id.
+  Andersen et al., supra note 44, at 5–6 (“Welfare problems can arise for large numbers of dogs in breeds with extreme phenotypes (e.g., brachycephalic breeds) or a high incidence of hereditary disease.”).
+  The study included Austria, Denmark, England, Germany, Italy, Netherlands, Norway, New South Wales, New Zealand, Sweden, and the United states.  Id. at 5.
+  Andersen et al., supra note 44, at 6 (“Most legislation targets hereditary diseases in the offspring.”).
+  Id.
+  Id.
+  Michael W. Fox, Dog Mutilations, DR. FOX ONE HEALTH, https://drfoxonehealth.com/post/dog-mutilations/ (last visited Dec. 12, 2022).
+  Canine Tail Docking FAQ, AVMA, https://www.avma.org/about/canine-tail-docking.aspx/canine-tail-docking-faq (last visited Dec. 12, 2022) (explaining that reasonable medical justification for tail amputation may include an irreparable traumatic injury of the tail, tail deformities, or precautionary removal if there is “compelling evidence” that the animal is at a high risk of tail trauma based on defect, breed, or working activity).
+  Id.
+  Id.
+  Fox, supra note 57.
+  See, e.g., AM. KENNEL CLUB, OFFICIAL STANDARD FOR THE CLUMBER SPANIEL (2001), https://images.akc.org/pdf/breeds/standards/ClumberSpaniel.pdf; AM. KENNEL CLUB, OFFICIAL STANDARD OF THE SCHIPPERKE (1990), https://images.akc.org/pdf/breeds/standards/Schipperke.pdf; AM. KENNEL CLUB, OFFICIAL STANDARD OF THE SIBERIAN HUSKY (2021), https://images.akc.org/pdf/breeds/standards/SiberianHusky.pdf.
+  Fox, supra note 57.
+  Id.
+  Id.; Telephone Interview with Michael W. Fox, (Dec. 3, 2022).
+  Telephone Interview with Michael W. Fox, (Dec. 3, 2022).
+  Fox, supra note 57.
+  Michael W. Fox, Dogs Need Their Whiskers, DR. FOX ONE HEALTH, https://drfoxonehealth.com/post/dogs-need-their-whiskers/ (last visited Dec. 12, 2022).
+  What to do if You See a Dog with Cropped Ears or a Docked Tail, STROUD DIST. COUNCIL (June 16, 2021), https://www.stroud.gov.uk/news-archive/what-to-do-if-you-see-a-dog-with-cropped-ears-or-a-docked-tail.
+  Id.
+  Kim Kavin, Want Your Dog to Win at Westminster? You Might Need to Cut off its Ears or Tail., WASH. POST (Feb. 11, 2019, 10:57 AM), https://www.washingtonpost.com/science/2019/02/11/want-your-dog-win-westminster-you-might-need-cut-off-its-ears-or-tail/.
+  Id.
+  AKC Statement on AVMA Crop and Dock Policy, AM. KENNEL CLUB (Nov. 26, 2008), https://www.akc.org/press-releases/akc-statement-on-avma-crop-and-dock-policy/.
+  Conformation:  Frequently Asked Questions, AM. KENNEL CLUB, https://www.akc.org/sports/conformation/resources/faq/ (last visited Dec. 9, 2022).
+  History of UKC, UNITED KENNEL CLUB, https://www.ukcdogs.com/history (last visited Dec. 9, 2022).
+  Total Dog, UNITED KENNEL CLUB, https://www.ukcdogs.com/total-dog (last visited Dec. 9, 2022).
+  Id.
+  Cryptorchidism is an inherited medical condition that occurs when one or both testicles do not descend into the scrotum.  Krista Williams, Robin Downing, & Ernest Ward, Retained Testicle (Cryptorchidism) in Dogs, VCA ANIMAL HOSPITALS, https://vcahospitals.com/know-your-pet/retained-testicle-cryptorchidism-in-dogs (last visited Dec. 18, 2022). 
+  UNITED KENNEL CLUB, ENGLISH BULLDOG 1 (2012), https://www.ukcdogs.com/docs/breeds/english-bulldog-breed-standard.pdf.  The AKC considers unilateral or bilateral cryptorchidic males a disqualifying feature in very few breeds.  See, e.g., AM. KENNEL CLUB, WORKING GROUP BREED STANDARDS 5 (2022), https://images.akc.org/pdf/judges/groups/Working_Group.pdf (Rottweiler is the only breed with cryptorchidism as a disqualifying feature in the working group); AM. KENNEL CLUB, SPORTING GROUP BREED STANDARDS (2022), https://images.akc.org/pdf/judges/groups/Sporting_Group.pdf (cryptorchidism is not a disqualifying feature for any breed in the sporting group); AM. KENNEL CLUB, TOY GROUP BREED STANDARDS (2022), https://images.akc.org/pdf/judges/groups/Toy_Group.pdf (cryptorchidism is not a disqualifying feature for any breed in the toy group); AM. KENNEL CLUB, NON-SPORTING GROUP BREED STANDARDS (2022), https://images.akc.org/pdf/judges/groups/Non-Sporting_Group.pdf (cryptorchidism is not a disqualifying feature for any breed in the non-sporting group).
+  Disqualification Details, AM. KENNEL CLUB, https://www.akc.org/sports/conformation/resources/disqualification-reinstatement/ (last visited Dec. 10, 2022).  Notably, the AKC’s Disqualification Details explain that “if three separate judges disqualify the dog for the same reason, the dog is ineligible for AKC conformation competition or for reinstatement.”  Id.
+  UNITED KENNEL CLUB, ENGLISH BULLDOG 2 (2012), https://www.ukcdogs.com/docs/breeds/english-bulldog-breed-standard.pdf.  “A dog with an Eliminating Fault is not to be considered for placement in a conformation event, nor are they to be reported to UKC.”  Id. at 4.
+  AM. KENNEL CLUB, OFFICIAL STANDARD OF THE BULLDOG 1 (2016), https://images.akc.org/pdf/breeds/standards/Bulldog.pdf.
+  UNITED KENNEL CLUB, ENGLISH BULLDOG 4 (2012), https://www.ukcdogs.com/docs/breeds/english-bulldog-breed-standard.pdf.
+  AM. KENNEL CLUB, OFFICIAL STANDARD OF THE BULLDOG 2 (2016), https://images.akc.org/pdf/breeds/standards/Bulldog.pdf.
+  Telephone Interview with American Kennel Club Customer Service Representative Amy, American Kennel Club (Nov. 29, 2022); Breed Health Testing Requirements, AM. KENNEL CLUB https://www.akc.org/breeder-programs/breed-health-testing-requirements/ (last visited Nov. 29, 2022).
+  Breed Health Testing Requirements, AM. KENNEL CLUB, https://www.akc.org/breeder-programs/breed-health-testing-requirements/ (last visited Nov. 29, 2022).  But see infra text accompanying notes 127–39.
+  Telephone Interview with American Kennel Club Canine Health Foundation Representative, AKC Canine Health Foundation (Nov. 29, 2022).  When asked what the Canine Health Foundation’s relationship was with the parent clubs, the representative simply responded:  “They are our donors.”  Id.  Despite being the AKC’s in-house research group focused on canine disease research, the Canine Health Foundation “does not have any say” on what tests the breeds should undergo and do not inform the parent clubs on breed standards.  Id.  The Canine Health Foundation’s representative told me that the AKC believes that the parent clubs are the most knowledge about their respective breeds, and thus the breed standards and health tests are determined pursuant to the parent club’s “subjective self-selected excellence.”  Id.
+  Derr, supra note 26.
+  MICHELLE ANDERSON, PUG DOG CLUB OF AMERICA HEALTH STATEMENT (2021), https://s3.amazonaws.com/cdn-origin-etr.akc.org/wp-content/uploads/2021/08/25113255/Pug-Health-Statement.pdf.
+  BONNIE PRATO, AMERICAN SHIH TZU CLUB HEALTH STATEMENT (2015), http://cdn.akc.org/Marketplace/Health-Statement/Shih-Tzu.pdf.
+  PATRICIA G. METZGER, PEKINGESE CLUB OF AMERICA HEALTH STATEMENT (2017), http://cdn.akc.org/Marketplace/Health-Statement/Pekingese.pdf.
+  DONALD E. SCHWARTZ, AMERICAN LHASA APSO CLUB HEALTH STATEMENT, http://cdn.akc.org/Marketplace/Health-Statement/Lhasa-Apso.pdf (last visited Dec. 10, 2022) (“The Lhasa Apso is a very healthy, hardy, long-lived and ancient breed.”).
+  Damien Gayle, Vets Ask Prospective Dog Owners to Avoid Pugs and other Flat-Faced Breeds, THE GUARDIAN (Sept. 21, 2016, 12:52 PM), https://www.theguardian.com/lifeandstyle/2016/sep/21/vets-ask-prospective-dog-owners-to-avoid-pugs-and-other-flat-faced-breeds.
+  Pugs are Anatomical Disasters. Vets Must Speak Out – Even if it’s Bad for Business, THE GUARDIAN (Sept. 22, 2016, 9:23 AM), https://www.theguardian.com/commentisfree/2016/sep/22/pugs-anatomical-disasters-vets-must-speak-out-even-bad-business.
+  Breeder’s Code of Ethics, UNITED KENNEL CLUB, https://www.ukcdogs.com/breeders-code-of-ethics (last visited Dec. 9, 2022).
+  Id.
+  Id.
+  Id.
+  Notice of Suspension, UNITED KENNEL CLUB, https://www.ukcdogs.com/suspension (last visited Dec. 9, 2022).
+  “Although the [UKC’s] Code of Ethics is not specifically enforced and no penalties are imposed for failing to comply, it does at least remind breeders to think about genetic disease when they breed their dogs . . . .  It clearly shows the UKC knows and admits genetic problems exist.”  George A. Padgett, Canine Genetic Disease, DOG WORLD, Apr. 1997, at 36. 
+  Derr, supra note 26 (“[T]he AKC defines quality in a dog primarily on the basis of appearance, paying scant heed to such other canine characteristics as health, temperament, and habits of work.”).
+  Id.
+  See supra text accompanying notes 26–32.  
+  See generally Andersen et al., supra note 44.
+  Years of Tradition Behind 2 Kennel Clubs’ Differences, CHI. TRIBUNE, June 8, 1986, at 21.
+  Id.
+  Lemonick, supra note 7.
+  AKC’s Guide to Responsible Dog Breeding, AM. KENNEL CLUB, https://www.akc.org/breeder-programs/breeder-education/akcs-guide-responsible-dog-breeding/ (last visited Dec. 11, 2022).
+  Id.; Telephone Interview with American Kennel Club Customer Service Representative Amy, American Kennel Club (Nov. 29, 2022) (explaining that there is no health testing requirements for breeders).
+  Inspections & Compliance, AM. KENNEL CLUB, https://www.akc.org/inspections-and-compliance/ (last visited Dec. 11, 2022).
+  Id.
+  D&B HOOVERS, THE AMERICAN KENNEL CLUB PROFILE 3 (2022).
+  HUMANE SOCIETY OF THE UNITED STATES, THE HORRIBLE HUNDRED 2022 1 (2022).
+  See generally id.
+  Margaret “Molly” Graf has appeared on the “Horrible Hundred” list five times.  Id. at 66–67.  Despite her appearance on the list this year, she is still formally listed on the AKC Marketplace.  Margaret Graf, AKC MARKETPLACE, https://marketplace.akc.org/breeder/margaret-graf-61500 (last visited Dec. 16, 2022).  The AKC Marketplace is the AKC’s “trusted resource” that “exclusively lists puppies from AKC-Registered litters, so you can choose a breeder with confidence.” AKC MARKETPLACE, https://marketplace.akc.org (last visited Dec. 16, 2022).
+  HUMANE SOCIETY OF THE UNITED STATES, THE HORRIBLE HUNDRED 2022 47 (2022).
+  Nicole Meyer, Feds Find Dogs Neglected at Local Puppy Mill; PETA Seeks Criminal Probe, PETA (June 27, 2022), https://www.peta.org/media/news-releases/feds-find-dogs-neglected-at-local-puppy-mill-peta-seeks-criminal-probe/.
+  HUMANE SOCIETY OF THE UNITED STATES, THE HORRIBLE HUNDRED 2022 47 (2022).
+  Meyer, supra note 117.
+  Id.
+  HUMANE SOCIETY OF THE UNITED STATES, THE HORRIBLE HUNDRED 2022 47 (2022).
+  Id.
+  AM. KENNEL CLUB, SECRETARY’S PAGES 2 (2019), https://images.akc.org/pdf/March_2019_SecyPages_lettersize.pdf.
+  Our Guarantee, ROCKY TOP K9S, http://rockytopk9s.com/our-guarantee/ (last visited Dec. 16, 2022).
+  Boxer Puppies, ROCKY TOP K9S, https://rockytopk9s.com/missouri-boxer-puppies/ (last visited Dec. 16, 2022).
+  HUMANE SOCIETY OF THE UNITED STATES, THE HORRIBLE HUNDRED 2022 48 (2022).
+  See Amy Worden, Report:  AKC Opposes Efforts to Curb Puppy Mills, Combat Pet Cruelty, THE PHILADELPHIA INQUIRER (Jul. 10, 2012), https://www.inquirer.com/philly/blogs/pets/Report-AKC-opposes-efforts-to-curb-puppy-mills-combat-pet-cruelty.html (“[T]he hobby breeder who raises puppies in their home will be impacted in the same way as the large scale commercial internet puppy seller.”).
+  There are many individuals with similar stories to Joan Huber.  Id.  A Pennsylvania woman, Mimi Winkler, had lost her kennel license when she was found guilty of animal cruelty—she moved to New York and continued to judge AKC shows after her conviction.  Id.
+  AM. KENNEL CLUB, ANNUAL REPORT 7 (2016), http://images.akc.org/pdf/about/annual_report/AnnualReport2016.pdf; Kim Kavin, ‘It’s a War’:  Dog Breeders Rally Behind an 81-Year-Old Convicted of Animal Cruelty, WASHINGTON POST (Dec. 18, 2017, 7:30 AM), https://www.washingtonpost.com/news/animalia/wp/2017/12/18/its-a-war-dog-breeders-rally-behind-an-81-year-old-convicted-of-animal-cruelty/.
+  Seven Breeding Programs Named as 2016 American Kennel Club Breeder of the Year Group Honorees, AM. KENNEL CLUB (Sept. 6, 2016), https://www.akc.org/press-releases/2016-breeder-of-the-year-group-honorees/.
+  Kavin, supra note 129.
+  Daniel Walmer, Palmyra Woman Who Clipped Ears of Puppies Pleads Guilty to Torture of Miniature Schnauzers, ID NEWS, https://www.ldnews.com/story/news/local/2019/03/25/woman-pleads-guilty-torture-miniature-schnauzers-palmyra-joan-huber-spca/3266726002/ (last visited Dec. 16, 2022).
+  Seven Breeding Programs Named as 2016 American Kennel Club Breeder of the Year Group Honorees, AM. KENNEL CLUB (Sept. 6, 2016), https://www.akc.org/press-releases/2016-breeder-of-the-year-group-honorees/; Kavin, supra note 129.
+  Kavin, supra note 129.  Huber told a Washington Post journalist, “[I]t’s an art form, my dear, knowing how puppies grow and develop, how to make the ear the best, to fit the dog and the breed.”  Id.
+  2016 AKC National Championship Results, AM. KENNEL CLUB, https://www.akc.org/sports/conformation/national-championship/past-events/2016-akc-national-championship-results/search-dog-entries/ (search “Reg. Name” field for “Blythewood”) (last visited Dec. 18, 2022).
+  AMERICAN KENNEL CLUB BOARD OF DIRECTORS, JULY 9-10, 2018 1 (2018), http://images.akc.org/pdf/board_minutes/Board_Minutes_July_2018_PUBLISHED_1.pdf.
+  Post-conviction inspections of Huber’s facility in October 2017 revealed she was in violation of her probation terms.  Kavin, supra note 129.
+  2020 AKC National Championship Results, AM. KENNEL CLUB, https://www.akc.org/sports/conformation/national-championship/2020-akc-national-championship-results/search-dog-entries/ (search “Reg. Name” field for “Blythewood”) (last visited Dec. 18, 2022).
+  Id. (search “Reg. Name” field for “Blythewood” and follow “GCH CH Blythewood Ernhart Magic Moment” hyperlink).  The information page of Blythewood Ernhart Magic Moment lists “Shawne Imler/Joan L Huber” as its “[b]reeder(s)” and features a blue banner above the names and at the bottom of the page with the text “AKC Breeder of Merit Participant.”  Id.  
+  See, e.g., Pilon & Craig, supra note 38; Katherine C. Tushaus, Don’t Buy the Doggy in the Window: Ending the Cycle that Perpetuates Commercial Breeding with Regulation of the Retail Pet Industry, 14 DRAKE J. AG. L. 501, 509 (2009).
+  Tushaus, supra note 140, at 509; Pilon & Craig, supra note 38.
+  Tushaus, supra note 140, at 516.
+  Pilon & Craig, supra note 38 (“The AKC opposed the bill because it featured language that was far more burdensome than just regarding tethering and confinement.”).
+  Id. (“AKC is critical of proposals that attempt to permanently take dogs away from their owner-defendants who have not been found guilty of any crime.”).
+  Id. (“Crates or other cage-type enclosures are commonly stacked in a safe and sanitary manner in veterinary offices, kennels, sporting events, homes, shows and during transportation.”).
+  Id.
+  Lemonick, supra note 7.
+  AM. KENNEL CLUB, THE ECONOMIC BENEFITS OF AKC DOG EVENTS, https://s3.amazonaws.com/cdn-origin-etr.akc.org/wp-content/uploads/2021/11/10104752/Economic_Benefits_AKC_Dog_Events060922.pdf. 
+  Id.
+  Id.
+  Stephen Clark, Long Beach May Lift Ban on Dog Breeding, LOS ANGELES TIMES (Dec. 24, 2005, 12:00 AM), https://www.latimes.com/archives/la-xpm-2005-dec-24-me-breed24-story.html.
+  Id.
+  Id.
+  Id.
+  Documents Show American Kennel Club Indicated Reversing LB’s Dog Breeding Ban Might Help Make LB Permanent Site for AKC Nat’l Shows Beyond 06-07, LBREPORT.COM (Jan. 5, 2006), https://www.lbreport.com/news/jan06/anieuth.htm.
+  Id.
+  Long Beach Lifts Breeding Ban, AM. KENNEL CLUB (Mar. 10, 2006), https://www.akc.org/legislative-alerts/long-beach-lifts-breeding-ban/.
+  Id.
+  Telephone Interview with American Kennel Club Customer Service Representative Amy, American Kennel Club (Nov. 29, 2022).
+  Client Profile: American Kennel Club, OPEN SECRETS, https://www.opensecrets.org/federal-lobbying/clients/summary?cycle=2021&id=D000023977 (last visited Dec. 18, 2022).
+  AM. KENNEL CLUB, SUMMARY POSITION STATEMENTS (2022), https://s3.amazonaws.com/cdn-origin-etr.akc.org/wp-content/uploads/2022/09/15102653/Canine-Legislation-Summary-Position-Statement-_FINAL.pdf.
+  UKC Position Statements, UNITED KENNEL CLUB, https://www.ukcdogs.com/position-statements (last visited Dec. 18, 2022).
+  Compare AM. KENNEL CLUB, SUMMARY POSITION STATEMENTS 1 (2022), https://s3.amazonaws.com/cdn-origin-etr.akc.org/wp-content/uploads/2022/09/15102653/Canine-Legislation-Summary-Position-Statement-_FINAL.pdf (“The AKC strongly opposes any legislation that determines a dog to be “dangerous” based on specific breeds or phenotypic classes of dogs.”) with UNITED KENNEL CLUB, UNITED KENNEL CLUB POSITION STATEMENT BREED SPECIFIC LEGISLATION, https://www.ukcdogs.com/docs/legal/breed-standard-for-bsl.pdf (“United Kennel Club believes that breed specific legislation is highly ineffective in decreasing dog bites.”).
+  AM. KENNEL CLUB, SUMMARY POSITION STATEMENTS 1–2 (2022), https://s3.amazonaws.com/cdn-origin-etr.akc.org/wp-content/uploads/2022/09/15102653/Canine-Legislation-Summary-Position-Statement-_FINAL.pdf.
+  See Michael W. Fox, Should the AKC Stay in the Doghouse? (Dec. 13, 2022) (forthcoming 2023) (on file with author).
