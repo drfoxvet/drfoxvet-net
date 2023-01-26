@@ -2,7 +2,7 @@
 title: Dental Problems In Companion Animals
 date: 2019-02-27T18:13:36.311Z
 tags:
-  - Dogs
+  - Cats
 ---
 Many dogs and cats suffer from halitosis, and with their strong sense of smell this must be very disturbing to them and is one reason why afflicted cats stop grooming themselves. Halitosis, often coupled with excessive drooling and difficulty eating, are cardinal signs of oral disease estimated to affect, in varying degrees of severity, some 80% of dogs and over 70% of cats in the U.S.
 
