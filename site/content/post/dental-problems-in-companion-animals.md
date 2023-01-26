@@ -20,9 +20,15 @@ It is critically important, especially for older pets and toy breeds, to feed a 
 
  Cats and dogs with serious oral health issues may benefit from daily treatments of a few drops of various essential oils (which variously have anti-viral, anti-bacterial, anti-fungal, analgesic and anti-inflammatory properties)  diluted approximately 1 drop in 50 drops of a “carrier” oil such as olive oil, ( or a 50:50 mixture of salmon and olive oil) or aloe vera gel. These essential oils include clove, myrrh, thyme, oregano and helichrysum.  Propolis, the remarkable product from bees, may also be beneficial in both treatment and preventive regimens with these oils. More research and clinical trials are called for as well as caution for cats because of their inherent deficiency of certain detoxifying liver enzymes, and especially for cats and dogs with liver and kidney disease. 
 
- Safe and effective dental health care products like PetzLife Oral Care products are the missing link in holistic pet health care, where good nutrition and safe chew-toys go hand in hand with dental health. Together, dental problems and those related to what pets are fed, account for most of the serious diseases of cats and dogs today.
+BEST ORAL/DENTAL CARE PRODUCT FOR DOGS AND CATS NOW AVAILABLE
+
+In my professional opinion the all-natural-ingredient Core dental and oral health care spray and gel for dogs and cats is the missing-link in owner-provided companion animal health and well-being. 
+
+Core dental care products are an integrating element of holistic companion animal health care and disease prevention when followed as a routine application to the animals’ gums and teeth: And as a prophylaxis applied for 3-4 days prior to any appointment for dental cleaning and extractions, helping reduce the likelihood of complications and speeding recovery/healing. For details and to place orders go to  Natural Pet Products | Core Pet (core-pet.com)
 
  Safe chew-toys made of ideally organic rubber (most plastics contain toxic phthalates), knotted cotton ropes, raw beef marrow bones (some dogs chew too hard and damage teeth so only allow short 5-10 min chewings per day!), and organic US certified rawhide strips, are good tooth cleaners, along with strips of scalded beef heart, shank beef, and chicken wing tips. Some pet supply stores have stopped stocking hard dog chews like antlers and horns after veterinarians expressed concern over large numbers of dogs that had fractured their carnassial teeth on the treats, sometimes requiring extraction of the tooth or a root canal. Chews are too hard if a fingernail dug into the chew does not make an impression and if it hurts to whack your knee with the chew, says veterinary oral surgeon Rachel Perry. ([The Bark online](https://thebark.com/content/hard-dog-chews) (3/3) )
+
+Topping my list for safe and enjoyable dog chews are the No-Hide Dog Chews, in various sizes and flavors from earthanimal.com
 
   Cats enjoy chewing on chicken wing tips, chicken or turkey gizzard strips or beef shank or heart slivers.
 
