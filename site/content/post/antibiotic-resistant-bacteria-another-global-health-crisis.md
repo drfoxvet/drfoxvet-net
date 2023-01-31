@@ -2,7 +2,7 @@
 title: 'Antibiotic Resistant Bacteria: Another Global Health Crisis'
 date: 2023-01-31T15:17:50.523Z
 tags:
-  - Farmed Animals
+  - Public Health
 ---
 ANTIBIOTIC RESISTANT BACTERIA: ANOTHER GLOBAL HEALTH CRISIS
 
