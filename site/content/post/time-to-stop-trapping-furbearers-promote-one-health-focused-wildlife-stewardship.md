@@ -4,7 +4,7 @@ title: >-
   Stewardship
 date: 2023-01-31T14:22:14.784Z
 tags:
-  - Public Health
+  - Environment
 ---
 TIME TO STOP TRAPPING “FURBEARERS”:
                         PROMOTE ONE HEALTH-FOCUSED WILDLIFE STEWARDSHIP
