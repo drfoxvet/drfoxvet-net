@@ -2,7 +2,7 @@
 title: 'Caring for Wildlife: Reducing Feral Animal Insurgence'
 date: 2023-01-31T14:31:16.148Z
 tags:
-  - Environment
+  - Ethical Issues
 ---
 CARING FOR WILDLIFE: REDUCING FERAL ANIMAL INSURGENCE
 
