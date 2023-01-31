@@ -46,11 +46,24 @@ Considering the above findings with regard to skeletal maturation and cumulative
 
 ADDENDUM
 
+
 TIME TO STOP DRUGGING RACE HORSES
 
 It is shocking that the drugging of race horses with furosemide (Salix, Lasix) is done routinely to help prevent bleeding in horses suffering from EIPH (Exercise Induced Pulmonary Hemorrhage). Their extreme and sustained exertion causes them to literally burst their lungs and even suffocate in their own blood. Horses given this diuretic medication, which can cause dehydration and electrolyte imbalances, along with decreased levels of blood potassium and calcium, may simply collapse, often fracturing one or more bones in the process-and be slaughtered. Both of these electrolytes are important in normal functioning of heart and skeletal musculature. 
 
+In a posting from https://veterinarypartner.vin.com/ Phenylbutazone and Fatal Injuries in Thoroughbred RacehorsesBob Judd, DVM, DABVP (Equine Medicine), DABVP (Canine and Feline Practice) Courtesy of Texas Farm Bureau Radio Network Date Published: 06/17/2021
+
+ “A recent paper out of Argentina examined the use of phenylbutazone, commonly called bute, and the risk of musculoskeletal and fatal injuries in thoroughbred racehorses.  Phenylbutazone is an anti-inflammatory medication that reduces pain and inflammation in horses, and at this point it is not a prohibited substance in the horse’s blood while racing in the United States. 
+
+ However, the last dose of bute can be given no less than 48 hours before the race and a maximum small amount of the drug is allowed in the horse’s system after a race. In a study recently published in the AVMA Journal out of Argentina on almost 300,000 race starts, horses that recently received bute were identified as being at a significantly increased risk of musculoskeletal injuries leading to fatalities. 
+
+ The fatalities occurred not from the drug but from injuries received while racing that required euthanasia, and horses given bute before the race were twice as likely to have an injury that led to euthanasia.  The study’s authors believe that many horses given bute are older ones with chronic disease that may increase their chances of injury.  Also, the horses given bute are painful and lame to some degree as this is the reason they need bute to compete.  Bute decreases pain and allows the horses to potentially run faster and increases the chance they can hurt themselves by taking away the pain.” 
+
+For more details on the drug use by the racehorse industry see  https://www.nationalgeographic.com/animals/article/racehorse-doping-explained
+along with efforts to “regulate.”
+
 A new study of data from the Equine Injury Database has revealed that horses medicated with furosemide (Lasix) on race day were at 62 percent increased odds of sudden death compared to horses that were not racing on furosemide. (https://doi.org/10.2460/javma.22.08.0358).
+
 
 REFERENCES
 
