@@ -1,5 +1,5 @@
 ---
-title: Race Horse Welfare reforms Long Overdue
+title: Race Horse Welfare Reforms Long Overdue
 date: 2023-01-31T15:01:33.503Z
 tags:
   - Ethical issues
