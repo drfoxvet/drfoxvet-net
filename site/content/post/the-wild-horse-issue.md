@@ -2,7 +2,7 @@
 title: The "Wild" Horse Issue
 date: 2023-02-01T19:13:04.796Z
 tags:
-  - Conservation
+  - Environment
 ---
         The “Wild” Horse Issue
 
