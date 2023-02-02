@@ -2,7 +2,7 @@
 title: The "Wild" Horse Issue
 date: 2023-02-02T15:01:05.619Z
 tags:
-  - Ethical issues
+  - Conservation
 ---
 The “Wild” Horse Issue
 
