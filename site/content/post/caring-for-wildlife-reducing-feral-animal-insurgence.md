@@ -35,3 +35,14 @@ The World Economic Forum lists biodiversity loss as one of the top three global 
 The issue of invasive species, plant and animals wild and feral, and free-roaming livestock cannot be ignored: nor can the land and natural resource use, along with pesticides and various pharmaceuticals in the intensive production of animal-derived foods (eggs, poultry, meat, fish and dairy) from inhumane and polluting factory farms and feedlots. We must make fundamental changes in how we treat domesticated animals for food, as pets and for other purposes, and those who become feral at home and abroad.
 
 
+
+
+POSTSCRIPT: HUMAN INCURSIONS
+
+The multiple use concept allowing noisy and polluting all-terrain vehicles, dirt bikes and snow mobiles into wildlife-inhabited areas may be “democratic”. The appeals by hikers, naturalists, wildlife photographers and other lovers of nature undisturbed and undefiled, to prohibit such vehicular traffic are generally ignored by state wildlife “management” authorities.
+
+ But an “ecocratic”, non-anthropocentric stewardship of lands belonging to wildlife would be just and enlightened self-interest because our ultimate well-being is dependent upon restoring and protecting natural biodiversity.
+
+
+Limiting the numbers of visitors to wildlife habitats as well as times and seasons will help reduce wildlife disturbances, disruptions in feeding, breeding, care of young and associated stress increasing susceptibility to disease. Human hikers create a “landscape of fear” that chases other animals into hiding, a new study has found. Even when hikers are unarmed and using the landscape peacefully, they can cause disruption on par with that of apex predators, according to the study published in Scientific Reports.Jan 19, 2023. For details see Anderson, A.K., Waller, J.S. & Thornton, D.H. Partial COVID-19 closure of a national park reveals negative influence of low-impact recreation on wildlife spatiotemporal ecology. Sci Rep 13, 687 (2023). https://doi.org/10.1038/s41598-023-27670-9
+
