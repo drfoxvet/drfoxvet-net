@@ -31,6 +31,20 @@ Animal suffering matters because it is a matter of conscience. Deliberate cruelt
 
 Becoming desensitized to animal suffering and then treating animals as mere things, as objects devoid of sentience, is part of the same currency as treating fellow humans as objects rather than as subjects. Such dehumanization, coupled with demonization, can lead to genocide, and more commonly to ‘speciesicide.’ This is the annihilation of animal species and their communities that are perceived as a threat. Our attitudes toward other animals, degree of ethical concern and moral consideration can mirror our regard for each other, for better or for worse. When collectively, our hearts and minds are open to the tragedy of reality and we really see and feel all that is going on around us, empathizing fully with other’s suffering, times will begin to change for the better.
 
+EXAMINING OUR ANIMAL RELATIONSHIPS
+                                    
+Children may wonder and ask why most wild animals flee when they see us and are obviously fearful. We should be honest and tell them that it is an instinctual reaction because we humans, and our human-like ancestors before us, have been killing animals or driving them away for close to 3 million years.
+
+
+Those animals taken from the wild who are captured such as wild horses and elephants have their spirits broken before they will serve us. But many animal species when taken soon after they are born will become emotionally attached to us, dependent and trusting. Such trust enabled our ancestors to begin to domesticate them for various purposes, beginning about 10,000 years ago such as dogs, sheep, cattle and horses. In many instances and relationships, we betrayed that trust.
+
+
+All these purposes and our relationships with other animals, including wildlife being “harvested” by hunters, trappers and fishers, need to be examined by all who feel affection and concern for animals and enjoy being out in Nature which would not exist without the animals. Nor would we. Fortunately, there are individuals and organizations dedicated to improving the care and welfare of animals domesticated and wild, and advocating for their rights and interests, protection and conservation.
+
+
+Gratitude toward all creatures great and small is the end of the beginning of our breaking away from our ancestral past as animal exploiters and killers; a carnivorous primate species. This will enable the blossoming of our humanity, of compassion, empathy and respect for all living beings.
+
+
 ## ANTIDOTES AND SPONTANEOUS EMPATHY
 
 The antidotes are many. Those in Richard Louv’s book should be coupled with meaningful contact with companion and other animals, with parental supervision and humane instruction to foster respect, self-restraint, gentleness, patient observation, and understanding.
