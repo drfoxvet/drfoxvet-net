@@ -345,6 +345,7 @@ But raw meats, including poultry, carry the risk of bacterial contamination, peo
 While the science of nutrition and developing alternatives for animal fat and protein needed in formulating cat foods for felines that are obligate carnivores have not yet been established, diets for more omnivorous and adaptable dogs that can thrive on plant-based proteins and fats have been developed. Check out all the press in the pet food industry that this new study of  plant-based diets for dogs is getting.
 https://www.petfoodindustry.com/articles/12079-dogs-healthy-after-one-year-of-plant-based-diets
  https://www.petfoodprocessing.net/articles/16700-new-study-supports-nutritional-efficacy-of-vegan-dog-food
+
  Here is the link to the Facebook discussion on plant-based dogs and the book by Diana Laverdure-Dunetz, The Plant-Powered Dog: Unleash the healing powers of a whole-food plant-based diet to help your canine companion enjoy a healthier, longer life,  Dogwise Publishing. 2023. ISBN: 9781617812873 https://fb.watch/jeaeM1WyDZ/
 
 
