@@ -331,6 +331,28 @@ According to one informing source ( https://www.hsph.harvard.edu/nutritionsource
 Lectins may also play a role in coronary artery disease in humans. ( See Steven R. Grundy, Abstract 412: Dietary Lectins Cause Coronary Artery Disease via an Autoimmune Endothelial Attack Mediated by Interleukin 16 Originally published12 Mar 2019https://doi.org/10.1161/atvb.38.suppl_1.412Arteriosclerosis, Thrombosis, and Vascular Biology. 2018;38:A412).. An autoimmune cause of coronary artery disease at the endothelial level via T cell activation and attraction in patients with gluten and lectin sensitivity or known autoimmune disease is proposed in this report.
 “Grain free” cat and dog foods and vegan dog foods include high protein pulses as do most manufactured kibble dry dog and cat foods that also have a high corn and cereal content, notably “Brewer’s grains”. This means that these pet foods have high levels of lectins and gliadins, putting animals at risk from developing inflammatory conditions and contributing to the increasing incidence of various bowel disorders and cardiomyopathy in companion animals, as well as arthritis and diabetes.
 
+PLANT-BASED DOG FOODS TAKING ROOT AND BLOSSOMING
+
+General Mill’s Blue Wilderness dog food is now advertising that it has 20% more meat. This is after a lawsuit in 2020 claiming that they were engaging in false advertising equating this dog food with what wolves in the wild eat, which was absurd because of the high cereal content. But is this the right direction to go? 
+
+
+The market for raw dog and cat foods expanded because of concerns that high heat processing of cereals, especially in regular kibble ,causes the so-called Maillard reaction, creating acrylamide, a potential cancer-causing compound. Also, another byproduct found in highly processed food, especially meat, is "advance glycation end products" or AGEs.  AGEs are created when protein or fat are exposed to sugar and combines with it. These end products can build up in the body, causing oxidative stress and chronic inflammation. This is thought to increase the risk of many diseases including diabetes, heart and liver disease, high blood pressure, kidney failure, and Alzheimer’s, as well as premature aging.
+
+
+But raw meats, including poultry, carry the risk of bacterial contamination, people becoming infected from handling bacteria -carrying raw pet foods. Consumers are becoming more aware of the suffering behind most such animal produce from factory farmed animals and of the contribution of this sector of agribusiness to climate change and loss of biodiversity: the extinction crisis. 
+
+
+While the science of nutrition and developing alternatives for animal fat and protein needed in formulating cat foods for felines that are obligate carnivores have not yet been established, diets for more omnivorous and adaptable dogs that can thrive on plant-based proteins and fats have been developed. Check out all the press in the pet food industry that this new study of  plant-based diets for dogs is getting.
+https://www.petfoodindustry.com/articles/12079-dogs-healthy-after-one-year-of-plant-based-diets
+ https://www.petfoodprocessing.net/articles/16700-new-study-supports-nutritional-efficacy-of-vegan-dog-food
+ Here is the link to the Facebook discussion on plant-based dogs and the book by Diana Laverdure-Dunetz, The Plant-Powered Dog: Unleash the healing powers of a whole-food plant-based diet to help your canine companion enjoy a healthier, longer life,  Dogwise Publishing. 2023. ISBN: 9781617812873 https://fb.watch/jeaeM1WyDZ/
+
+
+The meat alternatives industry is projected to be worth $15.8 billion in 2028, growing by over $8 billion from 2021 despite reports of the market’s demise. 
+ALDI grocery chain is now betting on the popularity of the plant-sourced products, expanding to more than 1,000 offerings by the end of 2024.
+The Breakthrough Institute makes the case for a longer view on the future of alternative proteins.
+
+
 CHEMICAL ADDTIVES IN PET FOODS AND TREATS CAN CAUSE SEIZURES. 
 
   ( From the author’s Animal Doctor syndicated newspaper column April 27th 2021)
