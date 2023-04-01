@@ -2,7 +2,7 @@
 title: 'Farmed Animal Slaughter: Ritual and Conventional'
 date: 2022-05-03T13:33:23.729Z
 tags:
-  - Ethical Issues
+  - Farmed Animals
 ---
  FARMED ANIMAL SLAUGHTER: RUTUAL AND CONVENTIONAL
                                                   
