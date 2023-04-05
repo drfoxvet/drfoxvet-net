@@ -61,14 +61,23 @@ The instinctual intelligence evident in the behavior of Hutton’s turkeys speak
 As a curious naturalist in childhood and elected Fellow of the U.K.’s Royal Entomological Society in my late teens I never doubted that insects were highly sentient and had emotional reactions. Now scientists are confirming this and elevating our understanding and appreciation for this class of animal life as documented in the excellent review posted Nov. 28th 2021 by Zaria Gorvett, who writes “ For decades, the idea that insects have feelings was considered a heretical joke – but as the evidence piles up, scientists are rapidly reconsidering.”    https://www.bbc.com/future/article/20211126-why-insects-are-more-sensitive-than-they-seem
 
 Zebrafish (Danio rerio) become afraid when they see other members of their species in distress. This fear mirroring is regulated by oxytocin: fish that lack the genes to produce and absorb the hormone fail to detect others’ anxiety but regain the ability when they receive an oxytocin injection. Oxytocin has the same effect in mice, and is known to affect humans’ social responses, meaning it’s likely that this empathy mechanism evolved many millions of years ago, before fish and mammals diverged on the tree of life. 
-Reference: IBUKUN AKINRINADE et al  Evolutionarily conserved role of oxytocin in social fear contagion in zebrafish SCIENCE 23 Mar 2023 Vol 379, Issue 6638 pp. 1232-1237
+Reference: IBUKUN AKINRINADE et al  Evolutionarily conserved role of oxytocin in social fear contagion in zebrafish SCIENCE 23 Mar 2023 Vol 379, Issue 6638 pp. 1232-1237
 
+
+For more insights about fish and helping in their conservation visit www.fishfeel.org
+This is ground-breaking research advancing our understanding of animal sentience. But I am not an advocate of such genetic engineering to selectively knock out specific genes in animals. 
+I have always felt that catching fish on a hook is cruel and that there is no ‘nobility’ in catch-and-release fishing. Like earthworms, fish have opiate pain responsive neurochemistry when injured. Many such fish die from the stress and hook-injuries. Why make any animal suffer in the name of sport? And what of the live bait skewered on the hooks?
+Oxytocin is the “bonding” hormone we humans associate with the subjective feeling of love toward others and is elevated when we hug our dogs; and in our dogs too! (Marshall-Pescini S et al. The Role of Oxytocin in the Dog-Owner Relationship. Animals (Basel). 2019 Oct 12;9(10):792.)
+
+
 BEES PLAY: MORE EVIDENCE OF INSECT SENTIENCE
 Bumble bees play, according to new research led by Queen Mary University of London published in Animal Behaviour. It is the first time that object play behaviour has been shown in an insect, adding to mounting evidence that bees may experience positive ‘feelings’. Professor Lars Chittka, Professor of Sensory and Behavioural Ecology at Queen Mary University of London, head of the lab and author of the recent book ‘The Mind of a Bee’, said: “This research provides a strong indication that insect minds are far more sophisticated than we might imagine. There are lots of animals who play just for the purposes of enjoyment, but most examples come from young mammals and birds. “We are producing ever-increasing amounts of evidence backing up the need to do all we can to protect insects that are a million miles from the mindless, unfeeling creatures they are traditionally believed to be.” - Queen Mary University of London (qmul.ac.uk).
 
+Entomologist Stephen Buchmann’s book, What a Bee Knows: Exploring the Thoughts, Memories and Personalities shows that bees have sophisticated emotions resembling optimism, frustration, fear and playfulness. Experiments have demonstrated bees can experience PTSD-like symptoms. Also, they can recognize different human faces, process long-term memories while sleeping, and maybe even dream. Young bees, through observation, learn how to dance from older bees to convey where to go to collect pollen, and the buzz of bees makes some flowers open for them.
+
 
 Researchers have found that the fuzz that covers bees’ bodies helps them sense flowers’ natural electric fields, allowing them to home in on their favorite plants. Bees leave an electric trace on pollinated flowers, telling other bees the flower is tapped out. A study found fertilizers change that electric field and put bumblebees off from fertilizing. (Ellard R Hunting, et al Synthetic fertilizers alter floral biophysical cues and bumblebee foraging behavior, PNAS Nexus, Vol. 1, Issue 5, November 2022, pgac230, https://doi.org/10.1093/pnasnexus/pgac230).
-The whiskers ( vibrissae) on many mammals and some birds, like the antennae on insects, may also be functional bioelectrical sensors
+The whiskers ( vibrissae) on many mammals and some birds, like the antennae on insects, may also be functional bioelectrical sensors.
 
 
 
