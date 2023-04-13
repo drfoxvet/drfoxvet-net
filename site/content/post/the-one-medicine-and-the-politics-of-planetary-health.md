@@ -1,5 +1,5 @@
 ---
-title: The 'One Medicine' and the Politics of Planetary Health
+title: 'The One Medicine and the Politics of One Earth,One Health'
 date: 2019-02-27T19:27:37.127Z
 tags:
   - Ethical Issues
