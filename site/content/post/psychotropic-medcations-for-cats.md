@@ -1,5 +1,5 @@
 ---
-title: Psychotropic Medcations for cats
+title: Psychotropic Medications for cats
 date: 2023-04-20T13:26:39.522Z
 tags:
   - Cats
