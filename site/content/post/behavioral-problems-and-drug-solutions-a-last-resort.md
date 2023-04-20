@@ -36,3 +36,35 @@ Another often overlooked factor that can affect behavior is diet. Nutritionists 
 Many veterinarians prescribe herbal and nutraceutical supplements for companion animals with behavioral and emotional problems including Valerian, Passion flower, Hops, Lavender, Kava Kava, Chamomile, and Melatonin.
 
 The need for companionship for a dog alone at home all day should also be considered, another compatible dog, or a cat or two being the most natural remedy, and negating the need for pysychotropic drugs to help an animal cope with loneliness and a deprived, un-stimulating environment.
+
+Psychotropic medications prescribed for dogs and cats
+From: Jennifer Coates DVM https://www.petmd.com/dog/behavior/10-medications-dog-anxiety
+
+
+“Alprazolam (Xanax) Alprazolam is often prescribed to help dogs who become anxious during thunderstorms, but it may also be used for other types of situational anxiety. It is a member of the benzodiazepine class of sedatives.
+
+Amitryptylene tricyclic antidepressant medication that works, in part, by increasing the levels of the neurotransmitters serotonin and norepinephrine, given to help dogs with separation anxiety or more generalized anxious tendencies. It should not be used with pets that have diabetes.
+
+
+ Buspirone- prescribed to help dogs who become anxious in social situations—for instance, in their interactions with other dogs. Buspirone is a member of the azaperone class of anxiolytics. This medication requires continued use to be effective, 
+ Clomipramine ( Clomicalm) Clomipramine is the first FDA-approved treatment for separation anxiety in dogs. It can also be prescribed for other types of anxiety. It is a tricyclic antidepressant medication that works in the same way as amitriptyline. Several weeks of use are needed for a therapeutic effect to be seen—up to two months is needed to determine whether it is beneficial or helpful for a dog.
+
+
+Dexmedetomidine ( Sileo) Situational anxiety (noise phobias and aversions). Sileo has been approved by the FDA to help dogs with noise aversion. It is an alpha-2 adrenoceptor agonist that works, in part, by depressing activity in certain parts of the brain, which results in reduced anxiety levels, among other effects.
+
+Diazepam (Valium) a benzodiazepine, has a variety of uses in dogs, but it is most effective as an anti-anxiety medication, muscle relaxant, appetite stimulant and seizure-control drug. For anxiety, diazepam is used to help with panic disorders like severe noise aversion or phobia. 
+
+
+Fluoxetine ( Reconcile or Prozac) for the treatment of separation anxiety in dogs. It can also be prescribed for other types of anxiety and behavior issues (compulsive chewing, circling and self-mutilation, and even aggression). Fluoxetine is a member of the selective serotonin-reuptake inhibitor (SSRI) class of medications, which work by increasing the amount of the neurotransmitter serotonin in the brain.
+
+
+Lorazepam (Ativan) should be given to dogs in advance of an event that is known to cause anxiety. The drug can also be given at the earliest sign that a dog is becoming anxious. It is a member of the benzodiazepine class of sedatives.
+
+ Paroxetine ( Paxil) prescribed for a variety of anxiety-related behaviors, including aggression, fear of noises, and self-mutilation (pulling fur out or licking skin compulsively). It is a member of the SSRI class of medications.
+
+
+ Sertraline ( Zoloft) prescribed for a variety of anxiety-related issues, like separation anxiety, thunderstorm phobia and fear-based aggression. It is a member of the SSRI class of medications.”
+
+
+Trazodone (brand name Desyrel Oleptrol) is a serotonin antagonist/reuptake inhibitor (SARI) antidepressant that is used to treat behavioral disorders, especially anxiety- or phobia-related in dogs (e.g., separation anxiety, noise phobia such as fireworks or thunderstorms, veterinary visits, hospitalization, and travel). Trazodone is a short-acting drug. Side effects in dogs are not well documented but are generally mild if present. Possible side effects include dilated pupils, sedation, lethargy, vomiting or gagging, colitis (inflammation of the colon), ataxia (loss of muscle control), priapism (persistent and painful erection of the penis), arrhythmias, increased anxiety, increased appetite, and aggression. When trazodone is used with other serotonergic drugs, serotonin syndrome is possible. This includes signs such as vomiting, diarrhea, seizures, hyperthermia (elevated body temperature), sensitivity of the skin, depression, dilation of pupils, vocalization, blindness, excessive salivation, difficulty breathing, loss of control of movements, paralysis, disorientation, coma, and death. This medication should be used with caution in pets with severe heart disease or liver or kidney impairment. Pets with angle-closure glaucoma should not use this medication.
+
