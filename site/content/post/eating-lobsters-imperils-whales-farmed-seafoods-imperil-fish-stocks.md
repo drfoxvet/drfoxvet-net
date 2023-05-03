@@ -2,7 +2,7 @@
 title: 'Eating Lobsters Imperils Whales: Farmed Seafoods Imperil Fish Stocks'
 date: 2022-12-05T21:15:21.299Z
 tags:
-  - Environment
+  - Conservation
 ---
 EATING LOBSTERS IMPERILS WHALES: FARMED SEAFOODS IMPERIL GLOBAL FISH STOCKS
 
