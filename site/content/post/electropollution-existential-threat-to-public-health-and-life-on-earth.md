@@ -204,6 +204,23 @@ This report clearly recognizes human risks of this technology calling for protec
 23. Karam, P.A., Gamma and neutrino radiation dose from gamma ray bursts and nearby supernovae. Health Phys. 2002 Apr;82(4):491-9 
 24. Teilhard de Chardin, .P. The Divine Milieu: An Essay on the Interior Life. New York: Harper & Row, 1965 p. 59-60.
 
+ADDITIONAL REFERNCES
+
+Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27;37(1):81-122. doi: 10.1515/reveh-2021-0026. PMID: 34047144.
+
+
+Levitt, B. Blake, Lai, Henry C. and Manville, Albert M.. "Effects of non-ionizing electromagnetic fields on flora and fauna, Part 3. Exposure standards, public policy, laws, and future directions" Reviews on Environmental Health, vol. 37, no. 4, 2022, pp. 531-558. https://doi.org/10.1515/reveh-2021-0083
+
+
+Erica Rosenberg (2022) Environmental Procedures at the FCC: A Case Study in Corporate Capture, Environment: Science and Policy for Sustainable Development, 64:5-6, 17-27, DOI: 10.1080/00139157.2022.2131190
+
+
+Cornelia Waldmann-Selsam, Alfonso Balmori-de la Puente, Helmut Breunig, Alfonso Balmori,
+Radiofrequency radiation injures trees around mobile phone base stations,
+Science of The Total Environment Volume 572, 2016, Pages 554-569, ISSN 0048-9697,
+https://doi.org/10.1016/j.scitotenv.2016.08.045.
+
+
 UPDATES
 
 Historic Win’: CHD Wins Case Against FCC on Safety Guidelines for 5G and Wireless
