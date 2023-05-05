@@ -37,6 +37,8 @@ Acepromazine A phenothiazine neuroleptic that functions as a tranquilizer rather
 
 Traditionally used for chronic and neuropathic pain, gabapentin lessens stress in cats when given at a dose of 100 mg per cat (dose range is 50-200 mg/cat) 90 minutes prior to an anxiety-provoking event, such as placement into a carrier.
 
+The use of calming pheromones such as Feliway, delivered via a room diffuser, can help calm cats and reduce conflict.
+
 
 It is a regrettable fact that too many veterinarians have no formal training in ethology/animal behavior. According to a 2015 letter from veterinarians with the American College of Veterinary Behaviorists: “ of the 30 veterinary schools on the mainland U.S., only 12 have a board-certified behaviorist on staff? Also, the same number of schools offer an introductory behavior course although only a few have it as part of the required curriculum. Those numbers tell us that less than half of our veterinary schools offer training in behavior at all. Considering that behavior problems lead to euthanasia and relinquishment to shelters at staggering numbers and can directly affect patient care in the hospital, veterinary students today are still left unprepared to prevent, diagnose and manage these cases in practice.” 
 
