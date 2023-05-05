@@ -204,7 +204,7 @@ This report clearly recognizes human risks of this technology calling for protec
 23. Karam, P.A., Gamma and neutrino radiation dose from gamma ray bursts and nearby supernovae. Health Phys. 2002 Apr;82(4):491-9 
 24. Teilhard de Chardin, .P. The Divine Milieu: An Essay on the Interior Life. New York: Harper & Row, 1965 p. 59-60.
 
-ADDITIONAL REFERNCES
+ADDITIONAL REFERENCES
 
 Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27;37(1):81-122. doi: 10.1515/reveh-2021-0026. PMID: 34047144.
 
