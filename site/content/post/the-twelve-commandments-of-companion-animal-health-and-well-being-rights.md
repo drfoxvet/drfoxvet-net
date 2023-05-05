@@ -2,7 +2,7 @@
 title: The Twelve Commandments of Companion Animal Health and Well-being Rights
 date: 2023-04-22T12:51:53.791Z
 tags:
-  - Dogs
+  - Cats
 ---
 THE TWELVE COMMMANDMENTS OF COMPANION ANIMAL
                          HEALTH AND WELL-BEING RIGHTS
