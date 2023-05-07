@@ -64,6 +64,16 @@ along with efforts to “regulate.”
 
 A new study of data from the Equine Injury Database has revealed that horses medicated with furosemide (Lasix) on race day were at 62 percent increased odds of sudden death compared to horses that were not racing on furosemide. (https://doi.org/10.2460/javma.22.08.0358).
 
+ADDENDUM
+
+MORE TRAGIC AND AVOIDABLE RACE HORSE DEATHS
+
+The Horseracing Integrity and Safety Act (HISA) has been in effect since July, 2022 but the start date for the act's Antidoping and Medication Control program has been delayed repeatedly and is now scheduled for May 22/23. The HISA has two major components: racetrack safety and antidoping and medication control. However, the National Horsemen's Benevolent and Protective Association continues to challenge the HISA, and Eric Hamelback, the organization's CEO, vowed to take the case to the Supreme Court if it is not overturned by a lower court. Full Story: The Associated Press (5/4/23).
+
+
+Now in the span of five days four horses died in five days at Churchill Downs in the days leading up to the Kentucky Derby on Saturday May 6th 2023 that has overshadowed preparations for the Kentucky Derby. This kind of horse racing of equines, selectively bred to be highly muscular at a young age that can do damage to their skeletal structures when driven hard and fast, should be prohibited. 
+
+
 
 REFERENCES
 
