@@ -75,6 +75,22 @@ Preliminary results of a study in Yellowstone National Park suggest that the par
 10 deer at Minn. farm had CWD
 The National Veterinary Services Laboratories found chronic wasting disease in five does and four bucks from a Houston County, Minn., white-tailed deer farm that was depopulated when CWD was found in another deer in October. The farm had been double-fenced since 2017 and the owner was in compliance with regulations, which shows how difficult it is to detect and control CWD, says Minnesota Board of Animal Health Assistant Director Linda Glaser.
  Full Story: KSTP-TV (Minneapolis) (2/22/2021) 
+
+Here are some additional supportive references and the complex issue of the genesis of prion diseases now prevalent in White tailed deer across the U.S. whose exposure to glyphosate is well documented.
+
+ Lafon, PA. et al. Low doses of bioherbicide favour prion aggregation and propagation in vivo. Sci Rep 8, 8023 (2018). https://doi.org/10.1038/s41598-018-25966-9
+
+Purdey, M. The UK epidemic of BSE: slow virus or chronic pesticide-initiated modification of the prion protein? Part 2: An epidemiological perspective. Med. Hypotheses 46, 445–454 (1996).
+
+
+Chin-Chan, M., Navarro-Yepes, J. & Quintanilla-Vega, B. Environmental pollutants as risk factors for neurodegenerative disorders: Alzheimer and Parkinson diseases. Front. Cell. Neurosci. 9, 124 (2015).
+
+The conclusions of this controversial review have been dismissed by many, but in my opinion there are valid concerns: Samsel A, Seneff S. Glyphosate, pathways to modern diseases III: Manganese, neurological diseases, and associated pathologies. Surg Neurol Int. 2015 Mar 24;6:45. doi: 10.4103/2152-7806.153876. PMID: 25883837; PMCID: PMC4392553.
+
+
+SUMMARY: Manganese (Mn) is an often overlooked but important nutrient, required in small amounts for multiple essential functions in the body. A recent study on cows fed genetically modified Roundup®-Ready feed revealed a severe depletion of serum Mn. Glyphosate, the active ingredient in Roundup®, has also been shown to severely deplete Mn levels in plants. Here, we investigate the impact of Mn on physiology, and its association with gut dysbiosis as well as neuropathologies such as autism, Alzheimer's disease (AD), depression, anxiety syndrome, Parkinson's disease (PD), and prion diseases.
+
+
  
 References
 1. Khasnis A.A, Nettleman M.D. Global warming and infectious disease. Arch. Med. Res.2005; 36: 689–96
