@@ -238,8 +238,58 @@ The first medicine and principle of One Health is prevention. This responsibilit
  Veterinarians in private practice, in contrast to those in public health, may not wish to alienate their clients by insisting them to keep cats indoors and providing educational materials. This money-driven lapse in professional responsibility needs to be rectified along with educating those veterinarians who contend that letting owned cats become indoor-outdoor animal companions is best for their overall health and welfare. For more details see the 2019 American Association of Feline Practitioners report Feline Zoonoses Guidelines available at catvets.com/guidelines.
 
 
-Local veterinarians and their State Associations need to engage with community animal control and shelter/rescue organizations to more effectively educate and appropriately legislate responsible care of owned cats who should never be allowed to roam off their care-givers’ property. This is not allowed for owned dogs and the same should be applied for owned cats
+Local veterinarians and their State Associations need to engage with community animal control and shelter/rescue organizations to more effectively educate and appropriately legislate responsible care of owned cats who should never be allowed to roam off their care-givers’ property. This is not allowed for owned dogs and the same should be applied for owned cats.
 
 A science based policy for managing free roaming cats by Christopher A. Lepczyk  · David C. Dufy · David M. Bird · Michael Calver · Dmitry Cherkassky · Linda Cherkassky · Christopher R. Dickman · David Hunter · David Jessup · Travis Longcore · Scott R. Loss · Kerrie Anne T. Loyd · Peter P. Marra · John M. Marzluf · Reed F. Noss · Daniel Simberlof · Grant C. Sizemore · Stanley A. Temple · Yolanda van HeezikBiol Invasions https://doi.org/10.1007/s10530-022-02888-2 Abstract:
 
-“ Free-roaming domestic cats (i.e., cats that are owned or unowned and are considered ‘at large’) are globally distributed non-native species that have marked impacts on biodiversity and human health. Despite clear scientific evidence of these impacts, free-roaming cats are either unmanaged or man aged using scientifically unsupported and ineffective approaches (e.g., trap-neuter-release [TNR]) in many jurisdictions around the world. A critical first initiative for effective, science-driven management of cats must be broader political and legislative recognition of free-roaming cats as a non-native, invasive species. Designating cats as invasive is important for developing and implementing science-based management plans, which should include efforts to prevent cats from becoming free-roaming, policies focused on responsible pet ownership and banning outdoor cat feeding, and better enforcement of existing laws.”
+“ Free-roaming domestic cats (i.e., cats that are owned or unowned and are considered ‘at large’) are globally distributed non-native species that have marked impacts on biodiversity and human health. Despite clear scientific evidence of these impacts, free-roaming cats are either unmanaged or managed using scientifically unsupported and ineffective approaches (e.g., trap-neuter-release [TNR]) in many jurisdictions around the world. A critical first initiative for effective, science-driven management of cats must be broader political and legislative recognition of free-roaming cats as a non-native, invasive species. Designating cats as invasive is important for developing and implementing science-based management plans, which should include efforts to prevent cats from becoming free-roaming, policies focused on responsible pet ownership and banning outdoor cat feeding, and better enforcement of existing laws.”
+
+FROM Dr. Fox's Animal Doctor syndicated newspaper column, July 2023:
+
+The American Association of Feline Practitioners (AAFP) Position Statement Supports Health and Wellbeing of Free-Roaming Cats
+
+
+ DEAR READERS, If you have been reading this column you will know that I question the humanness, effectiveness in cat population control as well as the harm to wildlife and public health risks of the widespread practice of TNVR: trap, neuter, vaccinate and release, of unadopted cats.
+This position statement from the AAFP (sent by jpane@association-partners.com) gives unqualified endorsement of TNVR is a call-out from me calling for all concerned to contact the AAFP to stipulate proper care-feeding, shelter, veterinary care as needed and isolation by enclosure if not in areas inaccessible to other free-roaming cats and wildlife. 
+ 
+ BRIDGEWATER, NJ; JUNE 08, 2023 – The American Association of Feline Practitioners (AAFP), the trusted leader in feline health and wellbeing for the veterinary community and cat caregivers, announced a new position statement that addresses the growing complexities of managing free-roaming cats. (This is the full statement is from  the AAFP website.)
+
+“The American Association of Feline Practitioners (AAFP) supports the humane management of free-roaming cats. A free-roaming cat is any cat not confined to a house or other type of enclosure; this includes owned cats with outdoor access, owned cats that have become lost outdoors (strays) and unowned neighborhood cats that are often supported by caregivers but are not claimed as personal pets or property. Any of these populations may include cats on a socialization spectrum towards people from friendly to feral.
+
+The AAFP supports the humane management of free-roaming cats with the overarching goals of:
+✜ sustained reductions of unowned free-roaming cat populations over time;
+✜ improved cat health and wellbeing;
+✜ mitigating negative impacts on the environment, wildlife, public health and neighborhoods; and
+✜ supporting free-roaming cat caregivers and their human-animal bond.
+
+The AAFP supports reducing the number of free-roaming cats through humane capture, sterilization and appropriate homing based on the spectrum of socialization to people and lifestyle that characterizes Felis catus with adoption into homes, where appropriate, and return to the original or appropriate location (eg, barn, community) once sterilized.1 The AAFP supports non-lethal programs for controlling free-roaming populations. Outdoor access for companion cats should focus on methods that address the goals listed above, including leash-walking and fenced yards or other enclosures when possible.2
+
+
+The AAFP recognizes that the management of free-roaming cats is complex. The AAFP encourages collaboration between humane groups, conservationists, animal control authorities, caregivers and other stakeholders. The AAFP encourages more interdisciplinary research to increase evidence-based management practices.
+
+
+References
+1.	International Cat Care. Cat friendly decision-making: managing cat populations based on an understanding of cat lifestyle and population dynamics. https://icatcare.org/app/uploads/2020/02/final-populations-decision-doc.pdf (2022, accessed 21 April 2023).
+2.	 American Association of Feline Practitioners. 2016 Impact of lifestyle choice on the companion cat - indoor vs. outdoor. https://catvets.com/guidelines/position-statements/lifestyle-choice-position-statement (2016, accessed 21 April 2023).”
+
+I sent this email on June 9th 2023 to Jeff Pane, Marketing and Communications Manager, AAFP:  I appreciate you sending me this posting. I have looked over the new statement that condones trap, neuter, vaccinate and release (TNVR) of feral and unadoptable cats but find no details as to how such colonies should be cared for by those involved. Should they be fed? Should they be restricted to contained areas to protect wildlife? What reference citations support the implicit belief of the AAFP that TNVR reduces overall cat numbers in various communities?
+I would like answers at your earliest to post in my nationally syndicated Animal Doctor weekly newspaper column.
+
+
+J.P. Replies: The AAFP does not currently have a Position Statement developed on how cat colonies should be cared for; as noted in the Statement – “The AAFP recognizes that the management of free-roaming cats is complex. The AAFP encourages collaboration between humane groups, conservationists, animal control authorities, caregivers and other stakeholders. The AAFP encourages more interdisciplinary research to increase evidence-based management practices.” However, in the Position Statement there is a link to the International Cat Care’s resource – Cat Friendly decision-making: Managing cat populations based on an understanding of cat lifestyle and population dynamics.
+
+My Response: All involved and concerned should consider the excellent advice and initiatives posted by International Cat Care ( website referenced above) and to involve the AAFP in reaching out to make TNVR more than a slow death sentence and life of suffering for unadopted cats being released in many communities across the U.S., harming wildlife and putting public health at risk as I document on my website www.drfoxonehealth .com.  It is surely incumbent upon the AAFP to develop a Position Statement on how cat colonies should be cared for. 
+
+
+There is no “freedom” for the domestic cat in having to live as a predator, killing in order to survive.
+
+
+
+GENE THERAPY MAY HELP WITH CAT, DOG (AND HUMAN) POPULATION CONTROL
+
+A single injection of an experimental gene therapy that spurs production of anti-Mullerian hormone (AMH) prevented pregnancy in six female cats in a study published in Nature Communications. (Vansant, L.M., Meinsohn, M.C., Godin, P. et al. Durable contraception in the female domestic cat using viral-vectored delivery of a feline anti-Müllerian hormone transgene. Nat Commun 14, 3140 (2023). https://doi.org/10.1038/s41467-023-38721-0). 
+ If proven safe and effective in larger studies, the gene therapy could offer a nonsurgical alternative for controlling feral cat and dog populations, particularly in under-resourced regions, and reproductive biologist David Pepin is also studying AMH as a human contraceptive. Six of the cats who received a single intramuscular injection of a AMH that prevents ovulation by curtailing the growth process of ovarian follicles, over a two-year follow-up period none of the six that received the gene therapy shot became pregnant. 
+
+
+
+
