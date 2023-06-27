@@ -2,11 +2,11 @@
 title: The Anthropocene Extinction Crisis
 date: 2023-06-27T20:15:16.903Z
 tags:
-  - Ethical Issues
+  - Social Issues
 ---
      THE ANTHROPOCENE EXTINCTION CRISIS
 
-             By Dr. Michael W. Fox* 
+             By Dr. Michael W. Fox 
 Scientists have documented five prior mass-extinctions of life on planet Earth and are now ringing the alarm bells about the sixth extinction which is now gaining momentum. This is not alarmist eco-panic but a reality that is being reported worldwide and communities experiencing as they suffer increasingly severe, and frequent extreme climatic events. 
 
 
