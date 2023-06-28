@@ -12,6 +12,21 @@ Scientists have documented five prior mass-extinctions of life on planet Earth a
 
 This Anthropocene extinction crisis cannot be averted by the technofix brinkmanship of atmospheric geoengineering to shade the earth from sunlight to reduce global warming; by creating flood, drought, insect and salt-resistant varieties of genetically engineered crops along with more vaccines to protect us and factory farmed animals from pandemics which natural biodiversity help contain; and costly biopharmaceuticals to treat cancer and other diseases due largely to our contamination of the environment and our food, water and air.
 
+The mythic quest for infinite economic growth and the reality of an ever-increasing population have combined to trigger and accelerate climate change and the annihilation of the Earth’s biodiversity and metabolic, ecologic and other natural systems and processes. Yet it is precisely and only upon the functional integrity and interdependence of these natural, organic systems and our consonance with them that the health of our economy and species are secured along with that of other animal and plant species.
+
+My colleague the late Dr. Barry Commoner, who invited me to join his Center for the Biology of Natural Systems while I was at Washington University St. Louis as a tenured associate professor of psychology in the late 1960’s, sought to make this symbiotic consonance a reality. 
+One of Commoner's lasting legacies is his four laws of ecology, as written in The Closing Circle in 1971. The four laws are:
+1.	Everything is connected to everything else. There is one ecosphere for all living organisms and what affects one, affects all.
+2.	Everything must go somewhere. There is no "waste" in nature and there is no "away" to which things can be thrown.
+3.	Nature knows best. Humankind has fashioned technology to improve upon nature, but such change in a natural system is, says Commoner, "likely to be detrimental to that system"
+4.	There is no such thing as a free lunch. Exploitation of nature will inevitably involve the conversion of resources from useful to useless forms. 
+
+
+When our politics and economics, health care, education, agriculture and all other commercial and industrial activities are designed to be integrated mindfully in concord with natural organic systems, we may yet save us from ourselves and the nemesis of socio-economic and ecological collapse. Responsible self-governance in harmony with natural systems is a keystone bioethical (science-based ethics) principle for a viable future. 
+
+The climate and plant and animal extinction crises are a consequence of our collectively ignorant, harmful and destructive existence. The looming food, public health and economic security crises are also a consequence of our non-sustainable numbers and appetites. This must all change if we are to evolve rather than continue to devolve and possibly perish or see ever more millions die in wars, famines, pandemics, floods, fires, droughts and unlivable temperatures.
+
+
 Here are some recent reports documenting the precipitous loss of biodiversity which involves many species who together make for a healthy environment and our own security and ultimate well-being:
 
 The IPCC’s 2023 report (1) now indicates that we must prepare for the worst-extreme weather events, famines, pandemics and environmental/economic refugees- stop subsidizing the fossil fuel industry and eliminate carbon emissions by 2040. This report calls on all nations to phase out coal, oil, and gas responsible for more than three-quarters of global greenhouse gas emissions. To stop warming from crossing a dangerous threshold, industrialized nations will need to cut greenhouse-gas emissions in half by 2030 and achieve net zero by the early 2050s. Cost-effective ways of doing this, such as solar and wind energy, already exist. The report also suggests that large-scale carbon dioxide removal will be needed, which has raised doubt among some scientists because the technology still barely exists. In yet another ominous climate change warning, atmospheric levels of the three main greenhouse gases - carbon dioxide, methane, and nitrous oxide all reached new record highs in 2021, according to a report from the World Meteorological Organization (2).
@@ -54,6 +69,10 @@ A full 90 per cent of the Earth’s precious topsoil is likely to be at risk by 
 
 FINDING AND IMPLEMENTING SOLUTIONS
 
+Some climate changes - warming and destructive weather - happen naturally from alterations in Earth's solar orbit, and the extent of Earth's axis tilt. But anthropogenic factors compound the severity and duration of such climatic events. Climate change deniers need a reality check and I commend all concerned to read the book by David Wallace-Wells, The Uninhabitable Earth: Life After Warming. The Dugan Books NY 2019. The existential, if not evolutionary call for global collaboration to address the climate crisis, as through a United Environmental Nations, is louder than ever. As Wallace-Wells asserts, “we have all the tools we need, today, to stop it all: a carbon tax and the political apparatus to phase out dirty energy; a new approach to agriculture and a shift away from beef and dairy (I would add pigs!) in the global diet; and public investment in green energy and carbon capture.” 
+
+
+
 While some strive to protect the status quo of business as usual and deny the reality of the Anthropocene extinction, analysts such as George Monbiot, recently interviewed by Stephen Sackur on BBC TV Hard Talk, support what I have long contended: Intensive animal farming is one of the greatest drivers of climate change. He contends that the global corporate hegemony of the agribusiness industry ( Henry Kissinger once quipping “If you want to control the people control the food”) is anti-democratic, supported by paid-off political shills. (24).
 
 Four corporations now control the world’s grain trade, just as a handful of corporations control the pharmaceutical, beef and fossil fuel industries. There are sustainable alternatives that are in accord with social justice and eco-justice as well as food security, reducing carbon emissions contributing to global warming and climate change and with “rewilding”-restoring natural habitat. Organic horticulture and arboriculture, and protein and fat rich nutrient production from bio fermentation supplanting most animal farming systems, are taking hold. We should all change our diets for animals’ sakes and for our own well-being and the future of life on Earth!
@@ -74,7 +93,24 @@ Protecting wildlife and ending the trapping and trophy hunting of carnivores wil
 
 The current global, fossil-fuel based economy, agriculture and other industries and their harmful carbon footprint, compounded by over-population, are not sustainable. People of all ages around the world are joining the Extinction Rebellion (31) and calling for a United Environmental Nations under the banners of Equalitarianism- justice for all peoples and all sentient beings- and of One Health, One Economy, and One Earth.
 
-The Nature Conservancy is one of several organizations providing information to help assess and reduce our carbon footprint and to find out where and how one can help protect biodiversity. (32). To reason why bother to do anything to reduce one’s carbon footprint and harming other animals because one’s neighbors are doing nothing is like Nero fiddling while Rome burns .
+The Nature Conservancy is one of several organizations providing information to help assess and reduce our carbon footprint and to find out where and how one can help protect biodiversity. (32). To reason why bother to do anything to reduce one’s carbon footprint and harming other animals because one’s neighbors are doing nothing is like Nero fiddling while Rome burns.
+
+The late James Morton, Dean of the Episcopal Cathedral of St. John the Divine in Harlem, NY, sees ecology “as the body of Christ, through which we of the earth community learn our sacred connections.” For Catholics, the June 18th 2015 environmental encyclical Laudato Si’ by Pope Francis is an antidote to what he calls “the tyranny of anthropocentrism,” ending with the closing payer “Awaken our praise and thankfulness for every being that you have made. Give us the grace to feel profoundly joined to everything that is,” In this encyclical letter, Pope Francis has incorporated much of the philosophy and terms of the animal liberation and “deep” ecology movements to which I and others contributed. He asserts:
+•	“The misuse of creation begins when we no longer recognize any higher instance than ourselves, when we see nothing else but ourselves.”
+•	“Because all creatures are connected, each must be cherished with love and respect, for all of us as living creatures are dependent on one another.”
+•	“It is contrary to human dignity to cause animals to suffer or die needlessly.”
+
+
+Through various religious, spiritual rituals, and our communion in Nature, we of the Earth community may gain the understanding needed to heal ourselves and the Earth, The wičháša wakȟáŋ ("medicine man, holy man") and eccentric shaman/ heyoka, of the Oglala Lakota people, Chief Black Elk, put it this way: “It is from understanding that power comes; and the power in the ceremony was in understanding what it meant; for nothing can live well except in a manner that is suited to the way the sacred Power of the World lives and moves.” https://bookroo.com/quotes/black-elk-speaks.
+
+
+As the late Albert Schweitzer, MD, advised, “Until he extends the circle of his compassion to all living things, man will not himself find peace.” Reverential respect for all life is the foundation of One Health in recognition of the interdependence of human and non-human, animal, plant and micro-orgasmic life; of a global democracy; of justice and rule of law; and of a viable and sustainable economy.
+
+The Gaia Hypothesis proposed by British scientist, the late James Lovelock in 1972, is based on the fact that living organisms on the planet interact with their surrounding inorganic environment to form a synergetic and self-regulating system that created, and now maintains, the climate and biochemical conditions that make life on Earth possible. Respect for all life is therefore enlightened self-interest. My friend Thomas Berry famously put it this way: “The universe is a communion of subjects, not a collection of objects.” 
+
+Existentially, dystopian and dysbiotic conditions will only intensify until we adopt the Seventh Generation Principle based on an ancient Haudenosaunee (Iroquois) philosophy that the decisions we make today should result in a sustainable world seven generations into the future.
+
+
 
 For humankind this wildlife extinction crisis is an ethical and spiritual one: How many species and healthy ecosystems we will have saved a generation from now will be the measure of our humanity and quality of life. We humans are like the fabled frogs who would jump out of a pot of hot water but relax and slowly cook to death if put in cold water that is being gradually heated. We have done this to planet Earth, and up adapting to new norms with each fraction of rising temperature, until we are stunned by one environmental, ecological shock-wave after another-floods, droughts, rising food and gas prices and the next pandemic. These are triggers for increasing anxiety, violence and addictions, evidence of how profoundly the warming pot of planet Earth affects human behavior and directly and indirectly our physical and mental health.
 
@@ -90,7 +126,52 @@ Without infrastructure development, family planning and food self-sufficiency, p
 
 Whatever political will can be mustered internationally should give equal priority to social justice, economic justice, and environmental justice; and the courts recognize crimes against nature as they do crimes against humanity, and the moral injury to those who care for animals and their habitats. These initiatives, facilitated by the utilization of Artificial Intelligence optimized by our emotional intelligence, empathy and bioethical sensibility, may put us closer to making the vision, science, and praxis of One Health a reality, linking public health with animal and environmental health.
 
+ADDENDUM
+
+      FACING THE CLIMATE AND EXTINCTION CRISES 
+
+      IS MENTION OF OVERPOPULATION NOW TABOO?
+
+
+
+This past June, 2023, France’s President Macron held a Summit for a New Global Financial Pact in Paris aimed at finding the financial solutions to the interlinked global goals of tackling poverty, curbing planet-heating emissions and protecting nature. The summit brought together more than 50 heads of state, world finance officials and activists. They discussed ways of reforming the global financial system and address the debt, climate change, and poverty crises.https://www.lemonde.fr/en/international/article/2023/06/22/paris-climate-summit-opens-with-macron-s-call-for-public-finance-shock_6035330_4.html
+
+
+I was stunned that President Macron, in his interview on June 25th 2023 with Fareed Zakaria (www.cnn.com/shows/fareed-zakaria-gps) made no mention of curtailing population growth through more effective family planning. The expanding human and famed animal biomass is a major contributor to climate change, poverty, and loss of biodiversity. Clearly, for political and other reasons, overpopulation of people and farmed animals is off the agenda but should not be.
+
+
+The article by Associated Press reporters Evylene Musambi and Desmond Tiro, ‘More lions killed by herders amid drought in Kenya’ (Star Tribune June 25th) documents the killing of six starving and endangered lions who took 12 goats from a farmer with a family of eight children, highlights growing human-wildlife conflict. All should look at the numbers:
+
+The United Nations has projected that the world population, 8 billion as of 2023, would peak around the year 2086 at about 10.4 billion. (https://en.wikipedia.org/wiki/Projections_of_population_growth). 
+
+
+According to Compassion in World Farming an estimated 70 billion farm animals are reared for food in the world each year. Approximately two out of every three farm animals in the world are reared on a factory farm.  (https://www.animalmatters.org/facts/farm 
+
+There are some 900 million dogs across the world, almost 85% being free-range.
+(https://worldanimalfoundation.org/advocate/dog-statistics/)
+
+As of 2021, the number of owned cats in the world is estimated to be 220 million, while the number of stray cats is estimated to be 480 million. ( https://a-z-animals.com/blog/how-many-cats-are-in-the-world). Free roaming and feral dogs and cats are a significant negative impact on wildlife.
+
+
+The IUCN Red List tracks the number of described plant and animal species and updates this figure annually based on the latest work of taxonomists. In 2021 it listed 2.13 million species on the planet. Monitored populations of vertebrates (mammals, birds, amphibians, reptiles, and fish) have seen a devastating 69% drop on average since 1970, according to World Wildlife Fund’s (WWF) Living Planet Report 2022.
+
+
+Larger families and expanding communities need more livestock and land for grazing and for food and cash-crops, further harming wildlife and reducing biodiversity now all imperiled by climate change. Decades before the burning of fossil fuels became a major factor in climate change I witnessed the devastating ecological consequences of livestock overgrazing, corporate plantations, and deforestation for firewood in Kenya, Tanzania, and India.
+
+
+
+Whatever political will can be mustered internationally should give equal priority to social justice, economic justice, animals’ rights and environmental justice; and the courts recognize crimes against nature as they do crimes against humanity, and the moral injury to those who care for animals and their habitats. 
+
+
+It is evident that the Climate Crisis is awakening environmental awareness with ecocentrism transcending the anthropocentrism that has limited progress, which some might call a significant step in our evolution at both religious and secular levels and the influence on public policy and how we chose to live as our numbers and appetites increase on a planet of finite resources. 
+
+The late theoretical physicist Prof. Paul Hawken opined: "At present we are stealing the future, selling it in the present, and calling it gross domestic product. We can just as easily have an economy that is based on healing the future instead of stealing it. We can either create assets for the future or take the assets of the future. One is called restoration and the other exploitation. And whenever we exploit the earth, we exploit people and cause untold suffering. Working for the earth is not a way to get rich, it is a way to be rich."
+
+
+The fundamentally spiritual and ethical roots of this existential crisis need to be recognized. Until we have respect for all life and apply the Golden Rule to all our relationships, human and non-human, chaos, and suffering will continue and intensify. We might yet evolve into a more empathic and compassionate primate species and become worthy of the self-anointed title of Homo sapiens.  
+
 REFERENCES
+
 
 1.https://www.ipcc.ch/report/sixth-assessment-report-cycle/
 
