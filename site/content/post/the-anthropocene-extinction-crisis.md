@@ -155,6 +155,8 @@ As of 2021, the number of owned cats in the world is estimated to be 220 million
 
 The IUCN Red List tracks the number of described plant and animal species and updates this figure annually based on the latest work of taxonomists. In 2021 it listed 2.13 million species on the planet. Monitored populations of vertebrates (mammals, birds, amphibians, reptiles, and fish) have seen a devastating 69% drop on average since 1970, according to World Wildlife Fund’s (WWF) Living Planet Report 2022.
 
+The growing human population is responsible for a massive decline in species, biodiversity, and ecosystems across the globe. ( Hogue, A. S., & Breon, K. (2022). The greatest threats to species. Conservation Science and Practice, 4(5), e12670. https://doi.org/10.1111/csp2.12670).
+
 
 Larger families and expanding communities need more livestock and land for grazing and for food and cash-crops, further harming wildlife and reducing biodiversity now all imperiled by climate change. Decades before the burning of fossil fuels became a major factor in climate change I witnessed the devastating ecological consequences of livestock overgrazing, corporate plantations, and deforestation for firewood in Kenya, Tanzania, and India.
 
