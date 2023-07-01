@@ -2,7 +2,7 @@
 title: The Anthropocene Extinction Crisis
 date: 2023-06-27T20:42:36.115Z
 tags:
-  - Spiritual Issues
+  - Conservation
 ---
 
       THE ANTHROPOCENE EXTINCTION CRISIS
