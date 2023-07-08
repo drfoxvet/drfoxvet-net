@@ -11,8 +11,11 @@ CATS AND TOXOPLASMOSIS:THE PARASITE OF PARASITES AMONG US
                      Executive Summary
 Toxoplasmosis is a disease infecting 11% of the U.S. population and some 60% worldwide. The proliferating reservoir of this parasite are domestic cats who spread millions of its eggs in their feces that can infect humans; pregnant women birthing brain damaged and blind children and adults experiencing neurobehavioral problems including increased risk-taking and impulsive behaviors as documented below. Gardeners, and children in playgrounds where infected cats have defecated, can become infected.
 
- Farmed animals are infected by cats shedding the eggs of Toxoplasma gondii in their feed and where they graze. They get into their meat as cysts, leading to human infection just as mice and other wildlife become infected and in turn, infect cats who have not yet been infected by Toxoplasma. 
+ Farmed animals are infected by cats shedding the eggs of Toxoplasma gondii in their feed and where they graze. They get into their meat as cysts, leading to human infection just as mice and other wildlife become infected and in turn, infect cats who have not yet been infected by Toxoplasma.
 
+The level of toxoplasmosis shed by stray cats increases in more densely populated areas and also rises when the temperature is higher, according to research published in PLOS ONE. The study's results may have policy ramifications as municipalities weigh the priority of managing population control actions for cats. (Zhu S, VanWormer E, Shapiro K (2023) More people, more cats, more parasites: Human population density and temperature variation predict prevalence of Toxoplasma gondii oocyst shedding in free-ranging domestic and wild felids. PLoS ONE 18(6): e0286808. https://doi.org/10.1371/journal.pone.0286808).
+   
+ 
 
 Most state public health and veterinary associations may be aware of this parasite but have yet to initiate effective legislation and ordinances to prevent owned cats, who can spread this disease, from being allowed to roam free outdoors: and from reducing free-roaming/”feral” cat populations by more effective means than practiced  by many animal shelters and humane societies, namely TNR-trap, neuter and release. This has not been shown to effectively reduce the outdoor cat population, a major factor in the decline of song birds and other wildlife. TNR is inhumane, virtually guaranteeing a slow death for many cats from injuries and diseases since these cats are not provided veterinary care as needed. 
 
