@@ -22,3 +22,21 @@ The inherent cruelty to horses, many collapsing and dying from anemia and repeat
 
 For more details about this fertility hormone PMSG being predominantly used in industrial animal breeding to increase the reproductive performance of sows, but also cattle, sheep, and goats - through synchronizing cycles and increasing the number of offspring produced per year, go to /feeva.fve.org/cms/wp-content/uploads/7.-FEEVA-GA-PMSG-presentation.pdf.  
 
+The World Veterinary Association “ supports the development and use of alternatives, such as bioequivalent synthetic biologics and therapeutics, to replace the need for using horse blood, serum, and urine to derive biologics and therapeutics that treat or prevent various conditions in humans and other animals.” (https://worldvet.org/wp-content/uploads/2022/04/WVA-Position-Statement-on-the-Use-of-Horses-for-Production-of-Biologics-and-Therapeutics.pdf).
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
