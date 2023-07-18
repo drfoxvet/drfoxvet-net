@@ -2,7 +2,7 @@
 title: Horses Suffer to Boost Livestock Industry Profits
 date: 2023-07-18T15:46:47.206Z
 tags:
-  - Veterinary Matters
+  - Farmed Animals
 ---
 HORSES SUFFER TO BOOST LIVETSOCK  INDUSTRY PROFITS
 
