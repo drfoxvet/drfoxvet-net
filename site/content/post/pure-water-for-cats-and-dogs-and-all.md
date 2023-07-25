@@ -17,7 +17,24 @@ _Per-and polyfluoroalkyl substances (PFAS) have been manufactured since the 1940
 
 _Along with flame-retardant PBDE (Polybrominated diphenyl ether) especially in furniture upholstery and carpets, PFAS have been found at high levels in cats suffering from hyperthyroid disease, an all too common affliction of older cats. Indeed, our animal companions serve as bio-sentinels of human exposure to such chemicals The impacts on aquatic and terrestrial wildlife are probably very considerable._
 
-_The U.S. House of Representatives passed a sweeping bill Jan. 10th 2020 to address this national pollution health crisis because the government’s Environmental Protection Agency failed to meet a February 2019 deadline to come up with an action plan to address this issue. According to Star Tribune reporter Jim Spencer ( Star Tribune, Jan 11th 2020) the White House indicates Trump would veto the bill over” litigation risk” and  “unwarranted” cost concerns if it were to be passed in the Senate._
+_The U.S. House of Representatives passed a sweeping bill Jan. 10th 2020 to address this national pollution health crisis because the government’s Environmental Protection Agency failed to meet a February 2019 deadline to come up with an action plan to address this issue. According to Star Tribune reporter Jim Spencer ( Star Tribune, Jan 11th 2020) the White House indicates Trump would veto the bill over” litigation risk” and  “unwarranted” cost concerns if it were to be passed in the Senate.
+
+DRINKING WATER “FOREVER” CHEMICAL CONTAMINATION CONCERNS
+
+ Per- and Polyfluoroalkyl substances, known as PFAS or “forever” chemicals, constitute a multi-billion dollar family of  some 14.000 different chemicals that are widely used to make water-, grease- and stain-repellent coatings. They are also used in a vast array of consumer goods, in-home materials, clothing, carpets, upholstery, cookware, and industrial applications. 3M Company that is a major manufacturer of these chemicals has recently agreed to pay up to $12.5 billion to settle claims over PFAS polluting municipal drinking water systems around the country and to clean it up.
+
+For an extensive review of these chemicals, see Heather D. Brake et al, Current per-and polyfluoroalkyl substances ( PFAS) research points to a growing threat for animals. Journal of the American Veterinary Medical Association, July 2023, vol.261. p 952-958. ( doi.org/10.2460/javma.22.12.0582). Liver toxicity, reduced postnatal survival, depressed immune function and altered thyroid function in both humans and animals are documented. These chemicals are omnipresent in the environment from foods, food packaging and cosmetics to drinking water and in-home dust and carpeting that may contribute to hypothyroidism and obesity in cats living in such contaminated environments.
+
+
+We should not forget that it has been widely known for decades that, like the canaries down in the mine to warn us of poisonous carbon monoxide gas, canaries and other caged birds have died in homes where Teflon-coated “non-stick” cook ware was overheated. In my opinion we ignored these early warnings from the exposed and poisoned birds of the potential health risks of PFAS.
+
+It is estimated that at least 45% of drinking water in the U.S. is contaminated with these “forever” chemicals, along with some heavy metals, all of which are a health hazard to us and our companion animals. 
+
+ I have used a Zero Water filter for several years in our home and the manufacturers of this low-cost filter system have posted this announcement: “Our 5-Stage water filters remove 99.6% of total dissolved solids (TDS).  ZeroWater is the only pour-through filter NSF certified to reduce lead, chromium, and the forever chemicals PFOA and PFOS, giving you peace of mind in addition to delicious water”. I have no vested interest in this company and only wish for good health for all.
+
+The highly credible non-profit organization the Environmental Working Group has tested various countertop pitcher filters and recommends four that remove 100% or close to that, of toxic contaminants: Travel Berkey Water Filter; Clearly Filtered; Zero Water and Epic Water Filter.
+
+
 
 The municipal water and public health crisis of tap water contamination with lead in Flint, Michigan was a wake- up call and underscores the 2017 report from the Natural Resources Defense Council that U.S. residents have a one-in-four chance that their tap water is either unsafe to drink or has not been properly monitored for contaminants. (See https://www.nrdc.org/sites/default/files/whats-in-your-water-flint-beyond-report.pdf)
 
