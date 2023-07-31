@@ -10,6 +10,12 @@ tags:
 
 The medical and psychological benefits of animal companionship have been well documented, children having fewer allergies and infections and adults relieving loneliness, depression, anxiety, high blood pressure and getting the benefits of the great outdoors walking or jogging with their dogs. Watching cute animal videos or viewing images for a half-hour reduced blood pressure, heart rate and anxiety in medical school students studying for end-of-term exams, researchers at the University of Leeds reported. "I was quite pleasantly surprised that during the session, every single measure for every single participant dropped some," said study leader Andrea Utley. Full Story: CNN (9/27) 
 
+The mental health benefits of hearing birdsong have been confirmed in two recent studies:
+Hammoud, R., Tognin, S., Burgess, L. et al. Smartphone-based ecological momentary assessment reveals mental health benefits of birdlife. Sci Rep 12, 17589 (2022). https://doi.org/10.1038/s41598-022-20207-6
+Stobbe, E., Sundermann, J., Ascone, L. et al. Birdsongs alleviate anxiety and paranoia in healthy participants. Sci Rep 12, 16414 (2022). https://doi.org/10.1038/s41598-022-20841-0
+
+
+
 The restorative powers to our bodies, minds and spirits of spending time in some natural setting, a wooded park, lake or prairie have been long recognized as I detail in my book Animals and Nature First. New research has shown that “forest bathing”, the Japanese tradition of shinrin yoko that began in the 1980s, is highly therapeutic, helping alleviate depression and boosting the immune system and sense of well-being. (We are as well as we feel).
 Not all have access to a natural or restored forest, prairie or even an urban arboretum but Mother Nature can still provide some therapeutic support. These range from sound recordings of falling rain, ocean waves, bird song, frog and insect sounds to put one in a meditative, relaxing state, to essential oils derived from various trees and herbs.
 
