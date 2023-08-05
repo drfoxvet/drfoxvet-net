@@ -131,8 +131,9 @@ Watch video to change settings and reduce the radiation your phone puts out. Nev
 
 Acupuncture needles act as antenna for the microwave toxin so should not be performed in wireless radiation fields.
 
- Thank you for taking the time to learn about this toxin that has become ubiquitous and allowed to be used at unsafe levels.  We must educate and protect ourselves until the government decides to listen to the science and protect public and environmental health.  
+ Thank you for taking the time to learn about this toxin that has become ubiquitous and allowed to be used at unsafe levels.  We must educate and protect ourselves until the government decides to listen to the science and protect public and environmental health.
 
+Go to https://emfempowerment.com to find how you can get involved in Creating EMF-Safe Sanctuaries: Innovative Solutions for EMF-Free Workspaces.  
 
 
 ## POSTCRIPT CONCERNING COMPANION ANIMALS AND RADIO COLLARS
