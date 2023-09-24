@@ -2,7 +2,7 @@
 title: Trophy Hunting and Wildlife "Management"
 date: 2023-09-24T03:50:39.535Z
 tags:
-  - Conservation
+  - Environment
 ---
       TROPHY HUNTING AND WILDLIFE “MANAGEMENT”
 
