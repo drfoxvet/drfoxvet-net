@@ -40,6 +40,23 @@ While I applaud this study and its conclusions, I would caution that the researc
  It is in these regions and communities with high carbohydrate and low protein diets and close to 700 million malnourished with insufficient dietary calories and essential nutrients that the coronavirus seems to spread and mutate rapidly, gaining infective function and resulting in high mortality and morbidity rates. World hunger is on the rise, affecting 8.9 percent of people globally. From 2018 to 2019, the number of undernourished people grew by 10 million.  ( For details see https://www.actionagainsthunger.org/world-hunger-facts-statistics). Using agricultural land to feed people first and not feed for livestock and poultry could help alleviate world hunger but not without coordinated family planning/birth control along with food aid.
 
 
+POSTSCRIPT From Animal Doctor Syndicated newspaper column Oct 2023
+
+EATING LOWER ON THE FOOD CHAIN FOR THE GOOD OF ALL LIFE
+
+
+When big fish eat little fish contaminated with various pollutants these chemicals accumulate in their bodies. This is called the food chain effect. This occurs in farmed animals who are not fed organically certified foods. But even such foods can be contaminated by chemical pollutants in the rain, air dust precipitating on crops and vegetation and in the soil where such feed is produced. But at least the contamination, especially with the soil remediation required before Organic Certification, and prohibitions on using anabolic steroid hormones and other pharmaceuticals to boost livestock productivity, will be minimized.
+
+This is why we should, from a holistic health and environmental perspective, all eat lower on the food chain, primarily consuming a plant-based diet. Consuming plants eliminates the risk of zoonotic (animal-to-human) diseases provided these crops are not contaminated with harmful bacteria such as E. coli from animal manure.
+
+
+Human babies will benefit from their mothers eating low on the food chain as per these research reports: Nursing infants of vegetarian women whose diets are low on the food chain are exposed to less chemical pollution. ( Hergenrather J, Hlady G, Wallace B, Savage E. Pollutants in breast milk of vegetarians. N Engl J Med. 1981 Mar 26;304(13):792.)
+Research has found that lactating mothers following a vegan diet compared to mothers with an omnivorous diet showed no difference in the human milk concentrations of vitamin B2 or carnitine, despite these nutrients being found in highest concentrations in animal products. ( Juncker HG, van den Akker CHP, Meerdink PL, Korosi A, Vaz FM, van Goudoever JB, van Keulen BJ.Front Nutr. 2023 Aug 4;10:1107768.). See also, Vegan or vegetarian diet and breast milk composition - a systematic review. Karcz K, Królak-Olejnik B.Crit Rev Food Sci Nutr. 2021;61(7):1081-1098
+
+
+Being vegan will improve our health and has been shown to improve the health of dogs and cats when given properly formulated animal-product free diets. It will also help reduce the loss of biodiversity and climate change associated with the animal farming and seafood industries and prevent the suffering of billions of animals destined for human consumption. Now numbering over 8 billion, we cannot live like carnivores or even omnivores without exacerbating the harms we have caused to planetary life and to ourselves.
+
+
 
 
   1.Diamond, J., ‘Collapse: How Societies Chose to Fail or Succeed.’ New York, Penguin Books, 2005. 
