@@ -52,4 +52,6 @@ AFTERWORD
 
  I do fear that as the Anthropocene Age advances we may lose our connections with reality through immersion in the virtual reality, digital economy and social and entertainment media of the internet cybersphere, becoming a terminal species of techno-addiction and illusory control, disconnected from the empathosphere and the biosphere that sustains us in body, mind and soul, all being in urgent need of repair. Yet with right mindfulness the cybersphere could, when linked with the empathosphere and the core principles of global bioethics, become what Pierre Teilhard de Chardin called the noosphere. Already the noosphere concept is becoming a reality to harmonize business interests with sustainable planetary stewardship and global monitoring of interdependent social, ecological, economic and industrial systems. (For details see Noosphere - Wikipedia https://en.wikipedia.org/wiki/Noosphere).
 
+With an empathic template of bioethics as detailed in my book Bringing Ethics to Life: Global Bioethics for a Humane Society, AI (artificial intelligence) could help us restore the biosphere by enabling us to create a less injurious Technosphere that is life-sustaining and self-affirming in terms of human purpose and social harmony.  
+
 \* DISCUSSED BY FOX ON ABC TV 20/20 OCT. 26, 2012.
