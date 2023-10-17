@@ -1,5 +1,5 @@
 ---
-title: 'A Beef About beef: Boycott Long Overdue'
+title: 'A Beef About Beef: Boycott Long Overdue'
 date: 2023-10-17T18:07:28.344Z
 tags:
   - Farmed Animals
