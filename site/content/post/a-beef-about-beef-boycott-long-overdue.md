@@ -2,7 +2,7 @@
 title: 'A Beef About beef: Boycott Long Overdue'
 date: 2023-10-17T18:07:28.344Z
 tags:
-  - Food
+  - Farmed Animals
 ---
 
                 A BEEF ABOUT BEEF: BOYCOTT LONG OVERDUE?
