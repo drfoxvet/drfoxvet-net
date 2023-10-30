@@ -2,7 +2,7 @@
 title: 'Shamans, Ancient and Modern, and Animal Relationships'
 date: 2023-10-30T18:24:06.338Z
 tags:
-  - Social Issues
+  - Ethical Issues
 ---
 SHAMANS, ANCIENT AND MODERN, AND ANIMAL RELATIONSHIPS
 
