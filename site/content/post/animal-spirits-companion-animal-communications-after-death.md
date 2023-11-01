@@ -13,8 +13,11 @@ By Dr. Michael W. Fox
 The after-death physical manifestations of dogs and cats to their human companions point to other realities beyond this mortal plane. Such manifestations, documented in my two new books DOG BODY, DOG MIND, and CAT BODY, CAT MIND, (The Lyons Press), are sometimes visual, either as an aura of light or even a clear image of the animal, or are often purely auditory or tactile, as when the deceased animal’s footsteps are heard, a cold nose is felt on one’s leg, or the deceased cat is felt jumping onto the bed.
 
 These phenomena suggest that there is more to the states of life and death than we fully comprehend. There is some form of being, not non-being, after physical death, possibly in a transitional form or state for some time after separation of the physical body from the supra-or metaphysical, that some call spirit or soul.
+
 This phenomenology of life after life is significant to me because I believe that it is an antidote to the prevailing materialism and ultimate nihilism of these difficult times. The sad state of the natural world that mirrors the human condition that is responsible for so much violence, destruction, and animal suffering, are in large part attributable to a nihilistic attitude that has no regard for the sacred; for the sanctity of life.
+
 Materialism and nihilism essentially deny the spirit, the existence of realities other than the purely physical. ‘You live, then you die, and that’s it. There is simply being and nothingness, so make the most of it, and take all you can, because you can’t take it with you,’ are typical nihilistic statements.
+
 But there is no evidence of non-being in nature. How could there be? The existence of non-existence cannot be proven, nor can non-being. But a being can be present or absent. Absence from the living present and presence of others does not mean that the absent one no longer exists in some other place in the world, or in some other dimension. He or she may be absent from, and ‘dead’ to the present, but as these deceased dogs and cats who have manifested in the presence of their witnessing human companions from their former existences, death does not mean non-being or nothingness: Separation, yes; and a sense of loss.
 
 That uncounted numbers of deceased dogs and cats, as I have documented in the above two books, were able to manifest physically and communicated their continuing existence to their grieving human companions, is surely the affirmation of love’s blessing that a living universe of being and becoming, that some call God, Brahman, Allah, Great Spirit, or their Higher Power, can bestow upon all of open heart and mind. The gifts of fellow creatures great and small are indeed subtle and profound, enriching our lives from life to life, and sharing with us part of the great mystery, the mysterium tremendum, that is beyond our worldly realm of comprehension.
@@ -26,6 +29,49 @@ I think these accounts, that together make a kind of testimony of truth, attest 
 An overarching aspect of all the letters that I have received on this subject of animals’ spirits is this unifying, space-time transcending emotional element that we call love.
 I hope that these letters will be worth reading in times of companion animal loss, not with the wish to make the deceased loved ones manifest in some way, but to let them go with love and gratitude.
  *******************************************************************
+DEAR DR. FOX, I found your wonderful thoughts after searching on Internet for some kind of explanation of what happened after my little crossbreed Mollie had to be euthanized 6 weeks ago. (https://drfoxonehealth.com/post/animal-spirits-companion-animal-communications-after-death/).
+
+I have had dogs all my life, and horses, and have had to cope with loss periodically over my life. I am 75. However, Mollie was beyond special. I cannot bore you with how she gave me support, love, security over the 8 brief years she was with me.
+
+A rescue from dog baiting in Wales, she came to me  scarred, physically and emotionally. It took nearly 12 months with me for her to learn to play and enjoy life. And trust.
+
+Nerve damage to her spine finally ended her life on Saturday 10th Sept.this year 2023.I donated her body to a registered and approved charity. Ligaments and bones. She had had a cruciate operation 5 years ago and I wanted her to help others in that position.
+
+The next morning, at approx 2.30 am Sunday 11th I woke up in total blackness of despair. Within minutes, she was in my arms. I remember the shock I felt. And saying to her "you're back. How on earth did you do that..how did you find your way. You're not supposed to be here. "
+
+Yes of course it could have been a waking dream. But I am beyond questioning this.. She snuggled down, I held her tight, overcome with torment. Tickled her, smelt her, heard her, felt her sturdy little body.
+
+ I knew she at some point would have to return to wherever she had come from . I could move in my bed but chose not to, in case she slipped from my grasp.
+
+She was hanging on so tight I did not know what to do. And I was  terrified of chasing her away. Eventually I had to get up to exercise my lurcher. My right arm was agonising, after bearing her weight for the 6 hours until 8.30. And it was a loss all over again having to acknowledge that we couldn't stay like that forever..
+
+For the next 4 weeks, she would come to me. Carried her in my arms once when I was walking in the fields, along the lane. Every time her 8 kg weight strained my arm leaving me to deal with the lurcher in my left hand.
+
+
+Then, one day  I met a friend who said I should ask her to leave me alone. I said I was incapable of telling Mollie to go away, because firstly I wanted her (in part) to keep coming and secondly, there was no doubt that this dog thought she was helping me. I have never come across such empathy ..she was always attuned to me.
+
+
+And insane as it sounds, I have no doubt that she finally knew she was placing me in chains. And so she no longer comes to me but instead is there in other ways. I am beyond consolation, but your words helped so much. This was all about the deepest and enduring pure love that , as humans, is an infinitive privilege to experience. 
+
+
+And also I wanted to tell you of how  utterly physical and material was her return. I, a retired lawyer and ex horse professional handler, am in no doubt this superb little dog found her way back to me.
+
+
+I hope you read this and maybe share it with those who like me can hardly make sense of this terrible terrible grief.
+S.J.B., Oxted, Surrey UK
+
+DEAR S.J.B., Thank you for sharing your account of your dog returning to you after death. You are not alone in having this kind of experience as I have documented on my website. Perhaps your dog was responding to your continued sense of loss and grief and it was up to you to let her go and her devotion put you both “in chains.”
+
+
+The bonds of love in quantum field entanglements transcend the space-time continuum of our mortal lives. Love enables us to be conscious of the universal and universalizing power of adoration for the divine presence of knowing God is in love and love is in God. For atheists and agnostics, simply substitute "Good" for "God". 
+
+
+Calling up the revered spirits of the dead, human and non-human, through prayer and ritual in cultures past and present, is ridiculed by rational materialists, religious fundamentalists and skeptics. This is understandable with those who are not yet open to what Chief Black Elk called “The Power of the World as it Lives and Moves." Awakening animistic sentiment and spirituality is a survival imperative against the extinction of our humanity now evident in the wars, terrorism and increasing violence in the world today with the healing and unifying powers of empathic love and compassion-in-action. I call my own devoted dog Kota “my good medicine”.
+
+
+ It is notable that Buddhists in Bhutan believe that dogs are the closest of  life forms to humans so that the next stage of reincarnation after living as a dog is to become a human. For this reason, people in Bhutan reportedly treat them with reverential respect! Belief in reincarnation/transmigration of the spirit or soul is all very well, but should not dictate how we treat other sentient species since all should be treated with respect and compassion. The corruption of this notion is that if we humans behave badly in this life we will reincarnate as an “inferior” animal species I find speciesist and a totally anthropocentric, moralistic absurdity!
+
+
  Dear Dr. Fox: My Yorkie, whom I loved dearly, died in November of 2005.  I have his ashes on a table in my bedroom (because he always was with me in the bedroom) and kept his collar, special sweater and special toy.  Shortly after he died my daughter and I both would hear him barking or yelping.  I even thought I heard him walking through the hallway.  I still feel his presence greatly even though we have moved from the home he lived in and still miss him so very much!
 KSM, Springdale, MD
 ******************************************************************* 
