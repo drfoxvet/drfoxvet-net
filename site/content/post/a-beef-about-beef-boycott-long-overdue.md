@@ -75,6 +75,35 @@ There are safer and more sustainable, alternative sources of nutrients including
 
 A significant next step in helping secure a viable planet for generations to come is transitioning to organically certified, grass-fed, free-range cattle production when the livestock industry is supported by consumers and governments, utilizing the positive ecological services of these animals as well as sheep and goats, when in low and healthy numbers, in the restoration and maintenance of grasslands, steppes, and prairies around the world. I have met with Western cattle ranchers, East African and S. Indian cattle herders, for whom I have sympathy; and witnessed how their animals are handled and slaughtered. All of us must change if we are to ever restore the healing connections of One Health for our One Earth. After all, none of the plants we eat can infect us with diseases, (many preventing us from disease and ageing), while the animals we consume most certainly do.
 
+ADDENDUM
+AMERICA’S CRIMES AGAINST THE BUFFALO NATION
+
+By Dr. Michael W. Fox  From Animal Doctor syndicated newspaper column Nov. 2023
+
+DEAR DR. FOX, I enjoyed, if that is the right word, your series on Beef and the urgent need to change our eating habits. You mentioned the extermination of the buffalo/bison and I wonder of you saw Ken Burn’s two part series on PBS TV  “The American Buffalo: A story of Resilience”, and what you thought of it. I was moved to tears and rage.
+
+
+K.L., Fargo ND
+
+
+DEAR K.L., I share your emotions and a kind of moral outrage that I can barely articulate but which many of the people Burns interviewed, such as Dan Flores (whose book Coyote America: A Natural and Supernatural History is a great read) did so with clarity and eloquence. It is difficult to imagine some 30 million and probably more Bison/Buffalo being reduced to a few thousand by a wholly uncivilized people who regarded the indigenous peoples, the Anishinaabe, as uncivilized savages.
+
+The one missing piece in my opinion is somewhat reprehensible: No attention was given to the vital role of many veterinarians in maintaining and protecting the health of the last of the Buffalo, great Bison of the grasslands, from Brucellosis and Tuberculosis and other diseases they get from cattle, and in turn, can infect the cattle that should never have been there in the first place.
+
+I hope there will be a follow-up, which I think Mr. Burns owes to the Buffalo, documenting the ecocide of the cattle industry and ploughing of the Buffalo’s grasslands to raise corn and soybeans for the poultry, beef, and pig industries at home and for export as far away as China.
+
+ Animal factory farms are an environmental abomination and a public and wildlife health risk. There should be more public exposure of these CAFOs-confined animal farming systems, as the industry calls them, wherein animals are extremely confined, overcrowded and stressed and thus susceptible to diseases for which they are given ever more vaccines. and medications in their feed, as well as drugs to make them be more “productive.”
+
+
+Gone is the Buffalo wolf and almost gone the Swift fox, Black footed ferret and Prairie dog communities. But there is a glimmer of rewilding of the great prairies as Buffalo herds increase and fewer people eat beef, a corrective for the crime of ecocide against the Buffalo Nation, and from a One Health perspective, enlightened self-interest. Replacing annual crops that do not hold the soil with a perennial grain such as kernza, developed by my friend the late Wes Jackson, would be part of the prairie CPR -conservation, preservation, and restoration, -long overdue.
+
+
+ So, I appeal to Ken Burns to do a sequel to his Buffalo documentary that includes these related issues since it is a false hope simply to have a few breeding herds of Buffalo whose “resilience” is ultimately as dependent upon how we all chose to live. The new book by Dan Flores, Wild New World: The Epic Story of Animals and People in America is an excellent read for all who want to learn more about what has been lost and can and should be restored.
+
+Restoration- “rewilding”-means restoring the vital species, plant, and animal, that maintain the prairie/grassland/woodland ecosystems. That is just restitution for the Buffalo Nation. Just having a few herds in parks and ranches is just not just enough! It is a challenge to restore and protect natural ecosystem biodiversity, control invasive species, including our own, but every effort for the good of the Whole and what some see as the Holy, will be good for the health of all. 
+
+
+
 REFERENCES
 1.	https://drfoxonehealth.com/post/wolves-and-human-well-being-ecological-public-health-concerns/
 2.	https://minnesotareformer.com/2023/08/18/usda-kills-hundreds-of-minnesota-wolves-to-protect-ranchers-profits/
