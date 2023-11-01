@@ -327,6 +327,30 @@ Abstract
 Mineral malnutrition stemming from undiversified plant-based diets is a top global challenge. In C3 plants (e.g., rice, wheat), elevated concentrations of atmospheric carbon dioxide (eCO2) reduce protein and nitrogen concentrations, and can increase the total non-structural carbohydrates (TNC; mainly starch, sugars). However, contradictory findings have obscured the effect of eCO2 on the ionome—the mineral and trace-element composition—of plants. Consequently, CO2-induced shifts in plant quality have been ignored in the estimation of the impact of global change on humans. This study shows that eCO2 reduces the overall mineral concentrations (−8%, 95% confidence interval: −9.1 to −6.9, p<0.00001) and increases TNC: minerals > carbon: minerals in C3 plants. The meta-analysis of 7761 observations, including 2264 observations at state of the art FACE centers, covers 130 species/cultivars. The attained statistical power reveals that the shift is systemic and global. Its potential to exacerbate the prevalence of ‘hidden hunger’ and obesity is discussed.
 https://doi.org/10.7554/eLife.02245.001
 
+ADDENDUM
+
+
+
+GOOD NEWS FOR “ORGANICALLY CERTIFIED” ANIMAL PRODUCTS 
+
+New USDA Animal Welfare Rule Restores Organic Integrity After Six Years of Litigation and Advocacy
+
+New Rule Formally Rejects Trump Admin. Rule Litigated by the Center for Food safety, Results in Major Win for Organic and Animal Welfare Advocates
+
+WASHINGTON, DC —On October 25th the USDA released the final Organic Livestock and Poultry Standards (OLPS) rule, delivering an important victory for farmers, consumers, and animal welfare advocates. OLPS is a vital step in providing strong animal welfare protections under the USDA Organic label. Today’s decision is a direct result of Center for Food Safety (CFS) litigation, which six years ago challenged the Trump administration’s decision that organic standards could not cover animal welfare. Following court order, the Biden Administration has now reversed that determination and re-affirmed that organic includes protecting animal welfare.
+“We are gratified that the new rule confirms what we have long argued in Court: Organic farming means farming with integrity and that must include animal welfare,” said Amy van Saun, CFS senior attorney and counsel in the case. “While there are more steps to go, this rule should once and for all put to bed misguided and unlawful views to the contrary that we have successfully fought to prevent from becoming law the last six years.”
+
+
+The finalized rule comes almost a year after USDA’s proposed changes to the original Organic Livestock and Poultry Practices rule, which was first implemented in 2017 and then rescinded by the Trump administration in 2018. Center for Food Safety, representing organic farmers, certifiers, retailers, and animal welfare groups, sued the Trump administration to reverse its unlawful withdrawal of the original OLPP. After years of litigation, the Biden administration reconsidered the withdrawal, and the U.S. District Court for the Northern District of California allowed USDA to revise and update its rulemaking. The Court stayed the case awaiting USDA’s new decision but kept jurisdiction. Today’s final rule is the result of that process.
+
+
+Once implemented, this set of rules will immediately improve the lives of millions of animals raised organically, especially chickens. Thanks in part to CFS's litigation, the OLPS will make several significant improvements, including: 
+
+•	Confirming in detail the USDA's authority under the Organic Foods Production Act (OFPA) to protect the health and welfare of organic animals.
+•	Confirming the economic benefits to farmers from improving animal welfare and the benefits to consumers who can more fully rely on the USDA Organic seal to ensure good animal welfare.
+•	Setting indoor and outdoor spacing requirements for chickens and eliminating the "porch" loophole that some factory farms exploited to avoid providing birds with meaningful outdoor access.  
+•	Prohibiting cruel, painful, and unnecessary physical alterations, such as de-beaking and tail docking in cattle. 
+•	Setting new standards to ensure animal welfare during transport and slaughter.
 
 
 ## SELECTED REFERENCES AND RESOURCES
