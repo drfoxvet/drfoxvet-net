@@ -139,3 +139,49 @@ Thanks to the efforts of European citizens’ campaign End the Cage Age, the Eur
 This is a major step for the farming community and regulatory marketing and oversight agencies but a small and long-overdue step for the animals who, for generations, have suffered extreme confinement stress and thwarting of natural behaviors and needs. 
 Overall, this represents a significant cultural advance for Western civilization which regards and treats such animals as mere commodities. The U.S. and other nations may be forced for financial reasons to follow suit if their farmed animal products are not accepted for import into Europe when these new humane standards are not met. But more likely, the U.S. will resist, regrettably, where profits take precedence over compassion and ethics, and market products from factory farmed, caged and crated animals at home and abroad to countries where progress in animal as well as human welfare and rights are still in the dark ages.
 
+GOOD NEWS FOR “ORGANICALLY CERTIFIED” ANIMAL PRODUCTS 
+ 
+New USDA Animal Welfare Rule Restores Organic Integrity
+
+ After Six Years of Litigation and Advocacy
+New Rule Formally Rejects Trump Admin. Rule Litigated by the Center for Food safety, Results in Major Win for Organic and Animal Welfare Advocates
+
+
+WASHINGTON, DC —On October 25th, 2023, the USDA released the final Organic Livestock and Poultry Standards (OLPS) rule, delivering an important victory for farmers, consumers, and animal welfare advocates. OLPS is a vital step in providing strong animal welfare protections under the USDA Organic label. Today’s decision is a direct result of Center for Food Safety (CFS) litigation, which six years ago challenged the Trump administration’s decision that organic standards could not cover animal welfare.
+
+ Following court order, the Biden Administration has now reversed that determination and re-affirmed that organic includes protecting animal welfare.
+
+
+“We are gratified that the new rule confirms what we have long argued in Court: Organic farming means farming with integrity and that must include animal welfare,” said Amy van Saun, CFS senior attorney and counsel in the case. “While there are more steps to go, this rule should once and for all put to bed misguided and unlawful views to the contrary that we have successfully fought to prevent from becoming law the last six years.”
+
+
+The finalized rule comes almost a year after USDA’s proposed changes to the original Organic Livestock and Poultry Practices rule, which was first implemented in 2017 and then rescinded by the Trump administration in 2018. Center for Food Safety, representing organic farmers, certifiers, retailers, and animal welfare groups, sued the Trump administration to reverse its unlawful withdrawal of the original OLPP. After years of litigation, the Biden administration reconsidered the withdrawal, and the U.S. District Court for the Northern District of California allowed USDA to revise and update its rulemaking. The Court stayed the case awaiting USDA’s new decision but kept jurisdiction. Today’s final rule is the result of that process.
+
+
+Once implemented, this set of rules will immediately improve the lives of millions of animals raised organically, especially chickens. Thanks in part to CFS's litigation, the OLPS will make several significant improvements, including:
+ 
+•	Confirming in detail the USDA's authority under the Organic Foods Production Act (OFPA) to protect the health and welfare of organic animals.
+
+•	Confirming the economic benefits to farmers from improving animal welfare and the benefits to consumers who can more fully rely on the USDA Organic seal to ensure good animal welfare.
+
+•	Setting indoor and outdoor spacing requirements for chickens and eliminating the "porch" loophole that some factory farms exploited to avoid providing birds with meaningful outdoor access.
+  
+•	Prohibiting cruel, painful, and unnecessary physical alterations, such as de-beaking and tail docking in cattle. 
+
+•	Setting new standards to ensure animal welfare during transport and slaughter.
+NOTE: The terrestrial vertebrate biomass today breaks down as 36% humans, 60% livestock, 4% wildlife. For details see https://ourworldindata.org/wild-mammals-birds-biomass.
+
+SALMON FARMING, SALMON SUFFERING
+
+In their overcrowded floating enclosures farmed salmon are stressed, in constant contact with each other creating ideal conditions for the spread of sea lice. Pesticides have been used and they poison wild fish and other sea life and birds where they are in operation.
+ So alternative controls of this parasite, that must drive the fish crazy, are being evaluated. Thermal de-licing methods, as well as brushing or rinsing live salmon to remove lice, can make the fish substantially more susceptible to pasteurellosis, but freshwater de-licing raises the risk by only 17%, according to researchers at the Norwegian Veterinary Institute. Thermal de-licing was associated with a 177% risk for pasteruellosis the following month while brushing and rinsing were associated with a 164% increase.Full Story: Fish Farmer Magazine (UK) (10/31).
+
+ Although authorities granted permission for the farm operators to use an insecticide, the outbreak grew quickly, suggesting that insecticide resistance has evolved in the lice, says fish disease specialist Berglind Helga Bergsdottir.  Full Story: The Guardian (London) (11/3) 
+Drone Images of Cages Shot by Activist Reveal Open Sores Affecting ‘Up to 1M Fish’. Fish Producers are Now Culling Them for Animal Feed
+https://www.theguardian.com/environment/2023/nov/03/sea-lice-outbreak-icelandic-salmon-farm-welfare-disaster-footage-shows
+
+
+This industry should be closed for humane and environmental reasons, and for public health since our health and healthy oceans are connected. Salmon are fed fish “bycatch”, all the sea life caught by the fishing industry that does not go into the public market or pet foods. Dioxins and other contaminants in farmed salmon that they accumulate as apex predators, and overfishing with the “waste” of living creatures being processed into salmon food, call for reconsideration by all advocates of salmon as a “health food.”
+
+
+
