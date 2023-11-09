@@ -2,7 +2,7 @@
 title: An Eye for an Eye
 date: 2023-11-09T15:18:55.134Z
 tags:
-  - Social Issues
+  - Ethical issues
 ---
                   AN EYE FOR AN EYE
 
