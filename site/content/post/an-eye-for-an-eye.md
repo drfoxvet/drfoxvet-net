@@ -41,7 +41,7 @@ Poor nations are receiving only a fraction of what they need to adapt to climate
 With insufficient action on this issue there will be more immigrants seeking refuge in more secure and affluent countries; food, fuel and water riots, extensive suffering of livestock lacking feed, water and veterinary care, and an escalating extinction-rate of indigenous wildlife species, many already at grave risk, if unprotected along with the indigenous peoples.
 
 
-What is now called for is a new world order, not of human domination but of responsible, empathic planetary CPR-conservation, protection and restoration. Fr. Thomas berry called this the ecozoic era where humans live in a mutually enhancing relationship with Earth and the earth community. Equal consideration is given to the protection and rights of all species, plant and animal, under the global vision, science and ethics of One Health and the extinction of mammonism.
+What is now called for is a new world order, not of human domination but of responsible, empathic planetary CPR-conservation, protection and restoration. Fr. Thomas Berry called this the ecozoic era where humans live in a mutually enhancing relationship with Earth and the earth community. Equal consideration is given to the protection and rights of all species, plant and animal, under the global vision, science and ethics of One Health and the extinction of mammonism.
 
 
 
