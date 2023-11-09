@@ -28,3 +28,23 @@ We are already witnessing more extreme climatic events, pandemic diseases also d
 
 
 All nations must now make peace and cooperate in restoring the environment, natural biodiversity, wildlife habitat, and agricultural sustainability for the health and security of generations to come. And all of us need to see each other with eyes wide open and put an end to sexism, racism, and speciesism.
+
+TOWARD A NEW WORLD ORDER
+
+It seems self-evident that modern “civilization” has become increasingly disconnected from Nature, from respect, concern and protection of the lives in the oceans, the forests, mountains and grasslands of planet Earth. Otherwise we would not be facing today the Climate and Extinction Crises.
+
+Poor nations are receiving only a fraction of what they need to adapt to climate change — despite being promised the money by rich countries, which are most responsible for causing the problem. “Studies show that for every US$1 billion invested in coastal flood protection, you avoid $14 billion in damages,” says climate researcher Henry Neufeldt, the chief scientific editor of a new report from the United Nations Environmental Programme (UNEP). “We have floods, droughts and heatwaves all over the world and it’s just getting worse and worse. This newest data is a wake-up call.” Low-income countries need 10–18 times more global funding than they are receiving to help them adapt to climate change.
+
+“There is already clear evidence that climate change is harming the health of people across the globe,” says Elizabeth Robinson, director of the Grantham Research Institute on Climate Change and the Environment in London. “Without much greater investment in adaptation, health impacts of climate change will only get worse.” Nature | 5 min read Reference: UNEP report
+
+
+With insufficient action on this issue there will be more immigrants seeking refuge in more secure and affluent countries; food, fuel and water riots, extensive suffering of livestock lacking feed, water and veterinary care, and an escalating extinction-rate of indigenous wildlife species, many already at grave risk, if unprotected along with the indigenous peoples.
+
+
+What is now called for is a new world order, not of human domination but of responsible, empathic planetary CPR-conservation, protection and restoration. Fr. Thomas berry called this the ecozoic era where humans live in a mutually enhancing relationship with Earth and the earth community. Equal consideration is given to the protection and rights of all species, plant and animal, under the global vision, science and ethics of One Health and the extinction of mammonism.
+
+
+
+
+
+
