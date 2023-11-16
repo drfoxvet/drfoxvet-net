@@ -73,6 +73,16 @@ The Horseracing Integrity and Safety Act (HISA) has been in effect since July, 2
 
 Now in the span of five days four horses died in five days at Churchill Downs in the days leading up to the Kentucky Derby on Saturday May 6th 2023 that has overshadowed preparations for the Kentucky Derby. This kind of horse racing of equines, selectively bred to be highly muscular at a young age that can do damage to their skeletal structures when driven hard and fast, should be prohibited. 
 
+ADDENDUM
+JUSTICE FOR RACE HORSES AT LONG LAST!
+
+Now, thanks to investigations by the FBI, the illegal drugging of these poor animals to mask lameness and enhance “performance” may at last come to an end.
+
+FROM https://www.justice.gov/usao-sdny/pr/horse-doping-drug-supplier-sentenced-11-years-prison
+“Damian Williams, the United States Attorney for the Southern District of New York, announced that defendant SETH FISHMAN, DVM, received a sentence of 11 years in prison today for his role at the helm of an approximately twenty-year scheme to manufacture, market, and sell to racehorse trainers and others in the racehorse industry “untestable” performance enhancing drugs for use in professional horseracing. FISHMAN was one of over thirty defendants charged in four separate cases in March 2020, each arising from this Office’s multi-year investigation of the abuse of racehorses through the use of performance enhancing drugs.”
+
+
+
 
 
 REFERENCES
