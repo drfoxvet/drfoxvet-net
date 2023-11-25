@@ -22,13 +22,17 @@ But there is no evidence of non-being in nature. How could there be? The existen
 
 That uncounted numbers of deceased dogs and cats, as I have documented in the above two books, were able to manifest physically and communicated their continuing existence to their grieving human companions, is surely the affirmation of love’s blessing that a living universe of being and becoming, that some call God, Brahman, Allah, Great Spirit, or their Higher Power, can bestow upon all of open heart and mind. The gifts of fellow creatures great and small are indeed subtle and profound, enriching our lives from life to life, and sharing with us part of the great mystery, the mysterium tremendum, that is beyond our worldly realm of comprehension.
 
-Below are several accounts sent to me by readers of my syndicated newspaper column Animal Doctor from around the U.S. of their beloved animals coming back and communicating their presence through one or more of these peoples’ senses after their animal companions have died. They can be manifested as a light, or a familiar sound, a touch, or ephemeral physical form.
+Below are several accounts sent to me by readers of my syndicated newspaper column Animal Doctor from around the world of their beloved animals coming back and communicating their presence through one or more of these peoples’ senses after their animal companions have died. They can be manifested as a light, or a familiar sound, a touch, or ephemeral physical form.
 
 I think these accounts, that together make a kind of testimony of truth, attest to the veracity and wisdom of all deep faith traditions and societies that are founded on the ethics and spirituality of compassion in recognition of the universal and universalizing quality we call love or devotion. Some human-attached animals seem to be able to will themselves to be with their beloved human companions after they have died---or perhaps more correctly, left their physical bodies.
 
 An overarching aspect of all the letters that I have received on this subject of animals’ spirits is this unifying, space-time transcending emotional element that we call love.
 I hope that these letters will be worth reading in times of companion animal loss, not with the wish to make the deceased loved ones manifest in some way, but to let them go with love and gratitude.
- *******************************************************************
+
+
+
+
+ ***********************************************************
 DEAR DR. FOX, I found your wonderful thoughts after searching on Internet for some kind of explanation of what happened after my little crossbreed Mollie had to be euthanized 6 weeks ago. (https://drfoxonehealth.com/post/animal-spirits-companion-animal-communications-after-death/).
 
 I have had dogs all my life, and horses, and have had to cope with loss periodically over my life. I am 75. However, Mollie was beyond special. I cannot bore you with how she gave me support, love, security over the 8 brief years she was with me.
@@ -70,6 +74,7 @@ Calling up the revered spirits of the dead, human and non-human, through prayer 
 
 
  It is notable that Buddhists in Bhutan believe that dogs are the closest of  life forms to humans so that the next stage of reincarnation after living as a dog is to become a human. For this reason, people in Bhutan reportedly treat them with reverential respect! Belief in reincarnation/transmigration of the spirit or soul is all very well, but should not dictate how we treat other sentient species since all should be treated with respect and compassion. The corruption of this notion is that if we humans behave badly in this life we will reincarnate as an “inferior” animal species I find speciesist and a totally anthropocentric, moralistic absurdity!
+***********************************************
 
 
  Dear Dr. Fox: My Yorkie, whom I loved dearly, died in November of 2005.  I have his ashes on a table in my bedroom (because he always was with me in the bedroom) and kept his collar, special sweater and special toy.  Shortly after he died my daughter and I both would hear him barking or yelping.  I even thought I heard him walking through the hallway.  I still feel his presence greatly even though we have moved from the home he lived in and still miss him so very much!
