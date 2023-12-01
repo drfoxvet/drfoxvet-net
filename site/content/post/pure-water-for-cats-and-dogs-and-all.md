@@ -7,13 +7,14 @@ tags:
 ---
 > “Symbol of creation, harbour of all seeds, water becomes the supreme magic and medicinal substance; it heals, it restores youth, it ensures eternal life”
 
-_\---…Mircea Eliade, Patterns in Comparative Religions._
-
-\    _FOREWORD_
+---…Mircea Eliade, Patterns in Comparative Religions._
 
 _CHEMICAL POLLUTANTS THAT HARM US AND OUR ANIMAL COMPANIONS_
 
-_Per-and polyfluoroalkyl substances (PFAS) have been manufactured since the 1940s by DuPont, 3M and other countries around the world to make thousands of products stain-heat and water-resistant. They have been linked to high cholesterol, ulcerative colitis, various cancers, thyroid disease and other health problems in the human population since they contaminate our environment, food and water. The non-profit Environmental Working Group (EWG). calls these “forever chemicals” because they do not break down in nature and they accumulate in our bodies. According to a study by the EWG and Northeastern University’s Social Science Environmental Health Research Institute more than 100 million Americans in 1,400 communities have been exposed to PFAS-tainted drinking water._
+_Per-and polyfluoroalkyl substances (PFAS) have been manufactured since the 1940s by DuPont, 3M and other countries around the world to make thousands of products stain-heat and water-resistant. They have been linked to high cholesterol, ulcerative colitis, various cancers, thyroid disease and other health problems in the human population since they contaminate our environment, food and water. The non-profit Environmental Working Group (EWG). calls these “forever chemicals” because they do not break down in nature and they accumulate in our bodies. According to a study by the EWG and Northeastern University’s Social Science Environmental Health Research Institute more than 100 million Americans in 1,400 communities have been exposed to PFAS-tainted drinking water.
+
+Forever chemicals’ have been found in drinking water provided by 17 of England’s 18 water companies. These per- and polyfluoroalkyl substances (PFAS) have been linked to a range of health issues, including cancer, thyroid conditions and issues with fertility. The discovery follows findings in July that at least 45% of tap water in the United States is tainted with PFAS, and news in February that the chemicals have been found contaminating wildlife around the world. “Ultimately it is water companies and consumers who are picking up the bill to try to manage these contaminated supplies, not the polluters,” says forensic environmental scientist David Megson. “Urgent action and investment is required.” https://www.theguardian.com/environment/2023/nov/28/forever-chemicals-found-in-drinking-water-sources-across-england?
+
 
 _Along with flame-retardant PBDE (Polybrominated diphenyl ether) especially in furniture upholstery and carpets, PFAS have been found at high levels in cats suffering from hyperthyroid disease, an all too common affliction of older cats. Indeed, our animal companions serve as bio-sentinels of human exposure to such chemicals The impacts on aquatic and terrestrial wildlife are probably very considerable._
 
