@@ -109,6 +109,14 @@ Surely it is time for all State and Federal wildlife agencies to implement ecolo
 Can wolves guard Yellowstone's gates against CWD?
 
 Preliminary results of a study in Yellowstone National Park suggest that the park's wolf packs are helping prevent chronic wasting disease outbreaks in wild deer and other cervids by killing sick animals before they spread the prions that cause CWD, says study leader Ellen Brandell, a doctoral student in wildlife ecology at Pennsylvania State University. Natural predation probably won't make a difference where CWD is already endemic, but predators could prevent it from establishing itself elsewhere, Brandell says. Full Story: The New York Times (tiered subscription model) (11/13’2020)
+
+THE WAR ON WOLVES BY DEER HUNTERS SHOULD END
+
+In Minnesota and other states, deer hunters are generally in favor of wolves being shot and trapped especially when there are few deer for the hunters to “harvest”: And the wolves take the blame. This misconception has been corrected by wolf researchers who find that  "Deer hunter success and wolf population size were both positively correlated with the size of the deer population. In other words, hunters kill more deer and there are more wolves when there are more deer."
+
+ "Deer hunter success is positively correlated with wolf population size. When there are more wolves around, hunters are more successful. Again, this is because hunter success and wolf populations both increase as deer populations get larger. Wolves are not the primary reason for changes in deer populations or deer hunter success. Indeed, one of the most important factors driving deer population change is winter severity. What do 2014, 2022, and 2023—all years when deer hunter success and deer populations have been at their lowest [ in Minnesota]—have in common? Long snowy winters."
+For more details see their report posted at voyageurswolfproject.org/wolves-deer-hunting-data.
+
  
 AFTERTHOUGHT:
 
