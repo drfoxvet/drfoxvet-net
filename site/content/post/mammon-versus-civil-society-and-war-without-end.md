@@ -46,6 +46,15 @@ Those who do not share the morality and ethos of this mammon imperative (to make
 
 The forces of mammon, using political and military means to accomplish its pecuniary ends helped create its own nemesis; the globalization of terrorism. Internecine and international strife are intensifying with the escalating collapse of regional, and soon to be inter-continental, sustainable economic and ecological systems, along with endemic corruption coupled with lack of social justice, land rights, environmental and wildlife protection and human and domestic animal health and welfare.
 
+Examining the ancestral, primate roots of such inhumanity and insanity we see how history repeats itself because we have not fundamentally changed; evolved. Violence intensifies with unconstrained population growth and resource-consumption.
+
+
+The genesis of autocratic, theocratic, and militaristic regimes is as mortifying as the collective responses of often violent retribution and self-sacrifice in the name of peace through justice. 
+ 
+Professor emeritus and Anishinaabe (native American Indian) John Peacock, in his December 2nd 2023 Star Tribune article 'Minnesota, 1862: a 'distant mirror' for Gaza, 2023' details history of conflict as between Minnesota settlers and the indigenous Dakota peoples and linking it with the today’s Israeli-Palestine conflict is much appreciated, and thought-provoking.
+
+As Mahatma Gandhi declared, “An eye for an eye makes the whole world blind.” But even with open-eyed diplomacy I believe we will fail to ever find peace and begin to restore the natural world if empathy and compassion do not prevail over ideological and other forces of separation and conflict, of racism, sexism, and speciesism.
+
 These opposing forces, one under the banner of secular scientific/rational and materialistic determinism and the other under the flags of religious fundamentalist extremism/spiritual fascism---both dedicated to create a better world---are enjoining in a conflagration of nihilism. In the Hopi prophecy this was foreseen as the last war of ‘purification’, the end of an epoch of Koyaanisquatsi, life out of balance: the end days of the Buddhist cycle of Kali Yuga. While one side treats its own citizens who voice concern and take action against the exploiters and abusers of the environment and animals as potential terrorists and a threat to national security, the other side imprisons and even decapitates journalists who sought to voice their concerns and post documented findings through the media, controlled and manipulated by both sides, now engaging in cyberwars.
 
 The late Cesar Chavez, President of United Farm Workers of America, with whom I shared the podium at an animal rights conference in California, is a rare social reformer to link violence toward humans and other animals with the long-overdue revolution of non-violence toward all sentient beings. After our meeting he posted this statement to the media on December 26, 1990:
