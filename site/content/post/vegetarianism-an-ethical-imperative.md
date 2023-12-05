@@ -58,10 +58,34 @@ Being vegan will improve our health and has been shown to improve the health of 
 
 
 
-
-  1.Diamond, J., ‘Collapse: How Societies Chose to Fail or Succeed.’ New York, Penguin Books, 2005. 
+ 1.Diamond, J., ‘Collapse: How Societies Chose to Fail or Succeed.’ New York, Penguin Books, 2005. 
 
  2.Poore et al  Reducing food’s environmental impacts through producers and consumers. Science   01 Jun 2018: Vol. 360, Issue 6392, pp. 987-992 DOI: 10.1126/science.aaq0216 
 
-3. Sandström V, Valin H, Krisztin T, Havlík P, Herrero M, Kastner T. (2018). The role of trade in the greenhouse gas footprints of EU diets. Global Food Security. DOI: 10.1016/j.gfs.2018.08.007 [pure.iiasa.ac.at/15461]).
+
+3.Sandström V, Valin H, Krisztin T, Havlík P, Herrero M, Kastner T. (2018). The role of trade in the greenhouse gas footprints of EU diets. Global Food Security. DOI: 10.1016/j.gfs.2018.08.007 [pure.iiasa.ac.at/15461]).
+
+ANTI-CANCER NUTRIENT IN MEAT AND DAIRY PRODUCTS: BUT MUSHROOMS CAN HEAL AND ARE BETTER TO EAT!
+
+Researchers have discovered that trans-vaccenic acid (TVA) — a nutrient found in meat and dairy products derived from sheep and cows — promotes the activity of cancer-destroying immune cells. (Trans-Vaccenic Acid (TVA) is a polyunsaturated fatty acid. It is an isomer of linoleic acid. The researchers screened 255 blood nutrients for their role in antitumour immunity and found that TVA activated cytotoxic T cells. When mice with melanoma or colorectal cancer were given a TVA-rich diet, tumour growth slowed compared with a control group.(Fan, H., Xia, S., Xiang, J. et al. Trans-vaccenic acid reprograms CD8+ T cells and anti-tumour immunity. Nature 623, 1034–1043 (2023). https://doi.org/10.1038/s41586-023-06749-3). It is notable that the researchers advised that people shouldn’t consume excessive amounts of meat or dairy to acquire the fatty acid. It can be purchased as a supplement and is expensive.
+
+
+A high intake of red meat has been linked to an increased risk of breast, colon and rectal cancers, for example. Also, Diabetes Type 2 with its complications of heart and kidney disease, is now becoming globally more prevalent with rising consumption of meat. Type 2 diabetes rates are increasing rapidly in the U.S. and worldwide. This is concerning not only because the disease is a serious burden, but it also is a major risk factor for cardiovascular and kidney disease, cancer, and dementia. In one study researchers found that consumption of red meat, including processed and unprocessed red meat, was strongly associated with increased risk of type 2 diabetes. Participants who ate the most red meat had a 62% higher risk of developing type 2 diabetes compared to those who ate the least. 
+(https://www.hsph.harvard.edu/news/press-releases/red-meat-consumption-associated-with-increased-type-2-diabetes-risk/#)
+
+
+The meat and dairy industries may seek to promote the benefits of  trans-vaccenic acid and claim health benefits of their products while the health risks are downplayed.
+But there is another reality from the fungal realm where some species of mushrooms contain lower levels of trans-vaccenic acid, so we do not need to eat meat and dairy products to protect ourselves from certain cancers. See Chan, Jannie Siew Lee, et al. "Chemical composition and medicinal value of fruiting bodies and submerged cultured mycelia of caterpillar medicinal fungus Cordyceps militaris CBS-132098 (Ascomycetes)." International journal of medicinal mushrooms 17.7 (2015).
+
+The more well-studied and abundant actives in mushrooms that would have an "anti-cancer" effect are their highly branched insoluble beta glucans, triterpenes, and nucleosides and nucleoside analogs according to veterinarian Dr. Robert Silver. For instance, see Dan A. et al Therapeutic Effects of Medicinal Mushrooms on Gastric, Breast, and Colorectal Cancer: A Scoping Review. Cureus. 2023 Apr 14;15(4):e37574. doi: 10.7759/cureus.37574. PMID: 37193480; PMCID: PMC10183216. Also, Jeitler M. et al Significance of Medicinal Mushrooms in Integrative Oncology: A Narrative Review. Front Pharmacol. 2020 Nov 11;11:580656. doi: 10.3389/fphar.2020.580656. PMID: 33424591; PMCID: PMC7794004.
+
+
+In developing purely vegan pet foods there has been concerns about the necessary inclusion of vitamin D which is usually vitamin D3 of animal origin making the claim that the diet is vegan, false when vitamin D3 is included. There is an answer for this question in veterinarian Dr. Rob Silver’s forthcoming book There’s a Mushroom for That: Your Healthy Pet Guide. “Dogs and cats are unable to convert (ultraviolet light-B) UVB from sunlight into sufficient circulating vitamin D3 in their skin. For this reason, dogs and cats are dependent upon dietary sources of vitamin D to maintain healthy vitamin D levels. Shiitake (Lentinus edodes), maitake (Grifola frondosa) and button (Agaricus bisporus) mushroom powder that has been exposed to UVB will contain substantial amounts of ergocalciferol. This mushroom source of Vitamin D2 is gaining a lot of traction in the natural health industry as a healthier source of vitamin D for people and pets. As a non-animal source of vitamin D, it may provide a more hypoallergenic, organic, and vegan alternative to animal-sourced vitamin D3. Mushroom vitamin D powder is an organically grown source of D2 that also contains β-glucans and other bio-active molecules naturally occurring in the mushroom.”
+
+The anti-cancer power of mushrooms is now being documented. Polysaccharopeptide (PSP) is the bioactive agent from the mushroom Coriolus versicolor. One recent report states: “Studies indicate PSP has in vitro antitumor activities and inhibits the growth of induced tumors in animal models. Clear evidence of clinically relevant benefits of PSP in cancer patients, however, is lacking….. Because of its high metastatic rate and vascular origin, canine hemangiosarcoma is used for investigations in antimetastatic and antiangiogenic therapies. In this double-blind randomized multidose pilot study, high-dose PSP significantly delayed the progression of metastases and afforded the longest survival times reported in canine hemangiosarcoma. These data suggest that, for those cancer patients for whom advanced treatments are not accessible, PSP as a single agent might offer significant improvements in morbidity and mortality.
+
+
+Single Agent Polysaccharopeptide Delays Metastases and Improves Survival in Naturally Occurring Hemangiosarcoma by Dorothy Cimino Brown and Jennifer Reetz. Evidence-Based Complementary and Alternative Medicine Volume 2012, Article ID 384301, 8 pages doi:10.1155/2012/384301
+
+
 
