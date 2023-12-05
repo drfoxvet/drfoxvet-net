@@ -14,6 +14,14 @@ Toxoplasmosis is a disease infecting 11% of the U.S. population and some 60% wor
  Farmed animals are infected by cats shedding the eggs of Toxoplasma gondii in their feed and where they graze. They get into their meat as cysts, leading to human infection just as mice and other wildlife become infected and in turn, infect cats who have not yet been infected by Toxoplasma.
 
 The level of toxoplasmosis shed by stray cats increases in more densely populated areas and also rises when the temperature is higher, according to research published in PLOS ONE. The study's results may have policy ramifications as municipalities weigh the priority of managing population control actions for cats. (Zhu S, VanWormer E, Shapiro K (2023) More people, more cats, more parasites: Human population density and temperature variation predict prevalence of Toxoplasma gondii oocyst shedding in free-ranging domestic and wild felids. PLoS ONE 18(6): e0286808. https://doi.org/10.1371/journal.pone.0286808).
+
+In a groundbreaking study recently published in the Journal of Gerontology: Medical Science, a group of international scientists, including researchers from the University of Colorado Boulder, delved into the microscopic world of Toxoplasma gondii (T. gondii). The cat-borne parasite is notorious for its connections to risk-taking behavior and mental health issues in humans. However, this time, the focus was on the potential contribution of T. gondii to the signs of frailty in older adults, including exhaustion and muscle loss. See Hira Mohyuddin and associates,Toxoplasma gondii IgG Serointensity Is Positively Associated With Frailty, The Journals of Gerontology: Series A, 2023;, glad228, https://doi.org/10.1093/gerona/glad228
+
+
+Another review in the effects of this parasite on humans concludes: Toxoplasmosis could play a substantial role in the etiopathogenesis of mental health disorders and its association with schizophrenia is the second strongest association, after autism. See Flegr J, Horáček J. Negative Effects of Latent Toxoplasmosis on Mental Health. Front Psychiatry. 2020 Feb 18;10:1012. doi: 10.3389/fpsyt.2019.01012. Other studies have correlated infection with this parasite contributing to impulsive acts of violence which forensic psychiatrists and criminologists should consider.
+
+
+
    
  
 
