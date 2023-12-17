@@ -161,6 +161,9 @@ REFERENCES AND END NOTES
 
 10.Suddendorf, T. & Butler, D.L. The nature of visual self-recognition. Trends Cogn Sci. Mar;17(3):121-7. 2013. doi: 10.1016/j.tics.2013.01.004
 
+MENTAL AND EMOTIONAL CAPACITIES OF LIVESTOCK
+
+Scientists at the Research Institute for Farm Animal Biology in Germany are exploring the mental and emotional capacities of livestock, and they have found that pigs exhibit signs of empathy, goats have social intelligence on par with that of dogs in some cases, and cows are self-aware. These and other findings may shed light on human cognition and emotion and could change animal husbandry practices and lead to better treatment, long overdue. For details see the excellent and moving review of this research by David Grimm: ‘Not dumb creatures.’ Livestock surprise scientists with their complex, emotional minds | Science | AAAS
 
 
 ANIMAL FEELINGS AND FEELING FOR ANIMALS
