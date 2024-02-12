@@ -18,9 +18,12 @@ I strongly advise all prospective cat owners, and those people with cats who are
 
 Cats need their claws to be cats, and the routine surgical amputation of all their first digits is considered unthinkable in the UK and many other countries where people love and respect their cats. They know that properly handled and socialized cats quickly learn not to scratch people, and will learn to enjoy using a scratch post and not destroy upholstered furniture.
 
-According to the Paw Project ([www.pawproject.org](www.pawproject.org)), de-clawing has become fairly common in the US and Canada in the past three decades. Before that time, it was rarely performed. In most countries, de-clawing is considered unethical and is not performed by veterinarians. De-clawing is illegal in many countries, including Austria, Croatia, Malta,
+According to the Paw Project ([www.pawproject.org](www.pawproject.org)), de-clawing has become fairly common in the US and Canada in the past three decades. Before that time, it was rarely performed. In most countries, de-clawing is considered unethical and is not performed by veterinarians. The declawing of cats is prohibited in the following countries, provinces, states and cities in the U.S. according to https://www.peta.org/blog/where-declawing-is-illegal/ 
+Only two states in the U.S. have successfully passed declawing bans so far—Maryland (2022) and New York (2019). The following U.S. cities have adopted this ban: Allentown, PA. Austin TX. Berkely, CA. Burbank, CA. Culver City, CA. Beverly Hills, CA. Denver, CO. Los Angeles, CA. Madison, WI. Pittsburgh, PA. St. Louis County, MO. St. Louis, Mo. San Francisco, CA. Santa Monica, CA. Tacoma, WA. West Hollywood, CA.
 
-Israel, Belgium, Bulgaria, Cyprus, Czech Republic, Denmark, Finland, France, Germany, Greece, Lithuania, Luxembourg, Norway, Portugal, Romania, Sweden, Switzerland, and Turkey.
+In the following countries, declawing operations are either illegal or only available in cases of “severe injury or disease of the claw,” in which case the procedure would help the animal regain comfort in a disabled paw and promote good health: Australia. Austria. Belgium. Bosnia and Herzegovina. Brazil. Bulgaria. Cyprus. The Czech Republic. Denmark (does not apply to Greenland or the Faroe Islands). England. Finland. France. Germany. Greece. Ireland. Israel. Italy. Latvia. Lithuania. Luxembourg. Macedonia. Malta. Montenegro. The Netherlands. New Zealand. Northern Ireland. Norway. Portugal. Romania. Scotland. Serbia. Slovenia. Spain. Sweden. Switzerland. Turkey. Ukraine. Wales.
+Canada has made great progress on declawing bans, as eight of its 10 provinces have banned the procedure.
+However, these bans may not be entirely for humane reasons because in many places cats are allowed to roam free, allowed to kill wildlife and serve as “working cats” on property to control rodents, so they need their claws. 
 
 I wrote the following letter on this topic to my colleagues which was published in the Journal of the American Veterinary Medical Association, Feb. 15, 2006, pages 503-504.
 
@@ -84,6 +87,14 @@ Guided by evidence-based information, this decision reflects the AAFP’s commit
  
 
 The Claw Friendly Educational Toolkit is endorsed by the International Society of Feline Medicine (ISFM), Cat Healthy, and CATalyst Council - all dedicated to improving the health and welfare of cats.
+
+All veterinarians in the U.S. who do such surgery as a routine for their cat-owning clients should read this recent publication:
+Flexor tenectomy: salvage surgery following feline onychectomy
+ By Ronald W Gaskin, Christina E Clarkson, and Patricia A Walter.
+Journal of Feline Medicine and Surgery 2023 25:4
+
+These veterinarians state that “Onychectomy can lead to pain, inappropriate elimination, and aggressive behavior. The presented salvage tenectomy procedure can alleviate or eliminate inappropriate behaviors by reducing the pain from the original onychectomy.” Cutting the tendon that causes the remaining digits to contract abnormally and cause chronic pain can provide relief for the many cats suffering adverse consequences from this inhumane mutilation. My friend Dr. Gaskin adds in a personal note that this tendon severing works great if there is no fragment infection or nail regrowth which must be addressed. But even when addressed, cats are at risk of hyperflexion, and they can start up with this issue even years after the fragments are removed.
+
 
 DE-CLAWING AND OBESITY
 
