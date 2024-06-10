@@ -52,3 +52,11 @@ These ethical and humane concerns coupled with the enormous contribution of rais
 
 
 
+
+
+Time to Stop Kapparot Ritual Poultry “Sacrifice”
+
+According to this posting from https://weanimalsmedia.org/2023/09/22/documenting-kaporos-chicken-slaughter-in-new-york/#
+“Traditionally, during Kaporos, a live chicken is swung over the head of a practitioner three times while a prayer is recited and the sins of the practitioner are symbolically transferred to the chicken. On the eve of Yom Kippur, the chickens are handed to a shochet (a person certified to kill animals in accordance with shechita law) to be killed and the meat donated to the poor – or eaten at the pre-Yom Kippur meal. In the week leading up to Yom Kippur, the streets of Brooklyn, New York become one of the largest wet markets in the United States, with an estimated 50,000 to 100,000 chickens being used in the Kapparot ritual and then killed. Those opposed to the practice cite violations to animal welfare laws and public health risks, yet the city of New York allows the practice to continue. “The practitioners told us the chickens were given to the poor after the sacrifice. Yet what we saw, and what we documented very clearly was most of them ending up in garbage bags or on the street. Dead bodies everywhere. But sadly, many of them weren’t dead yet.” – Victoria de Martigny, animal photojournalist.”
+For graphic documentation view: Milena Zellweger on X: "Should we allow ritual animal slaughter? #ausländerraus https://t.co/ZmejcdsFvA" / X
+
