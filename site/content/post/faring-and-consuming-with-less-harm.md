@@ -2,7 +2,7 @@
 title: Farming-and Consuming-With Less Harm
 date: 2024-06-27T18:12:14.986Z
 tags:
-  - Food
+  - Ethical Issues
 ---
 Farming-and Consuming- With Less Harm
 
