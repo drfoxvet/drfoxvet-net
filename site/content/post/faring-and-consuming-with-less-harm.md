@@ -1,5 +1,5 @@
 ---
-title: Faring-and Consuming-With Less Harm
+title: Farming-and Consuming-With Less Harm
 date: 2024-06-27T18:12:14.986Z
 tags:
   - Agriculture
