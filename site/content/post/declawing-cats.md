@@ -108,6 +108,11 @@ Without her claws Fanny would have less traction and likely be less active, even
 
 
 
+
+‘Declawing Cats Provokes A Billion-Dollar Debate’ by Peter Funt in The Wall Street Journal Sat/Sun, June 15-16, 2024. The subtitle States: “Surgically removing a cat’s claws has long been a profitable business for veterinarians. Now animal advocates are hoping to ban what they call a ‘cruel and torturous procedure.’”
+
+Here are some highlights from Mr. Funt’s review: Nearly two dozen countries including England, Australia and Japan, have prohibited or severely restricted declawing. Exceptions are given to owners who are immunocompromised and at-risk from infection from cat scratches rather than euthanizing or re-homing their cats. More than a dozen states have sought to ban the practice but only New York and Maryland have succeeded. Most encouraging is that America’s largest provider of veterinary services, Mars Inc., with some 2,200 animal hospitals, has opted out of declawing with a position paper stating that removal of the third toe bone from each digit of a cat’s foot “has been shown to lead to chronic pain and, in some cases, to cause long-term behavioral issues.” 
+
  
 
 ###
