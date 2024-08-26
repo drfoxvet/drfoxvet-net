@@ -32,6 +32,4 @@ The relatively low concentration of carrageenan in canned pet foods does not mea
 
 A list of carrageenan-free cat foods is also available, see  Carrageenan-free cat food list - Parenting-Furkids parenting-furkids.com/index.php?topic=1249.15
 
-Michael W. Fox BVetMed, PhD, DSc, MRCVS Veterinarian, bioethicist, syndicated newspaper columnist.
 
-Latest books: "HEALING ANIMALS & THE VISION OF ONE HEALTH" and “ANIMALS & NATURE FIRST: CREATING NEW COVENANTS WITH ANIMALS & NATURE” with CreateSpace/ Amazon.com
