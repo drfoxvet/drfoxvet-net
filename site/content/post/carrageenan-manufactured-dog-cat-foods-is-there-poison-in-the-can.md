@@ -33,3 +33,15 @@ The relatively low concentration of carrageenan in canned pet foods does not mea
 A list of carrageenan-free cat foods is also available, see  Carrageenan-free cat food list - Parenting-Furkids parenting-furkids.com/index.php?topic=1249.15
 
 Agar-agar and guar gum are widely used as emulsifiers in prepared human and companion animal foods.Some recent peer-reviewed reports indicate these two emulsifiers can cause health problems and that alternative, safer emulsifiers, if needed, should be used: 
+One recent study demonstrates that food additive guar gum adversely impacts the gut microbiota activity and colonic immune response and increases susceptibility to colonic inflammation. Paudel D, Tian S, Joseph G, Prodes E, Nair DVT, Singh V. Guar Gum-Induced Changes in Gut Microbiota Metabolic Activity and Intestinal Immune Response Augments Susceptibility to Experimental Colitis. Curr Dev Nutr. 2022 Jun 14;6(Suppl 1):992. doi: 10.1093/cdn/nzac068.021. PMCID:
+
+
+
+Several studies suggest that dietary emulsifiers, such as CMC, polysorbate 80 (P80), carrageenans, and gums (such as agar-agar) could shift the gut microbiota composition to a proinflammatory pattern predisposing to metabolic syndrome and intestinal inflammatory disease:
+
+ Monteiro C.A., Cannon G., Levy R.B., Moubarac J.-C., Louzada M.L., Rauber F., Khandpur N., Cediel G., Neri D., Martinez-Steele E., et al. Ultra-Processed Foods: What They Are and How to Identify Them. Public Health Nutr. 2019;22:936–941. doi: 10.1017/S1368980018003762.
+
+
+
+
+Chassaing B., Koren O., Goodrich J.K., Poole A.C., Srinivasan S., Ley R.E., Gewirtz A.T. Dietary Emulsifiers Impact the Mouse Gut Microbiota Promoting Colitis and Metabolic Syndrome. Nature. 2015;519:92–96. doi: 10.1038/nature14232
