@@ -32,4 +32,4 @@ The relatively low concentration of carrageenan in canned pet foods does not mea
 
 A list of carrageenan-free cat foods is also available, see  Carrageenan-free cat food list - Parenting-Furkids parenting-furkids.com/index.php?topic=1249.15
 
-
+Agar-agar and guar gum are widely used as emulsifiers in prepared human and companion animal foods.Some recent peer-reviewed reports indicate these two emulsifiers can cause health problems and that alternative, safer emulsifiers, if needed, should be used: 
