@@ -34,7 +34,7 @@ While people in many states where there are still wolves are debating the pros a
 
 
 •	They care for their injured, providing food, and find the lost.
-•	They are loyal and they morn.
+•	They are loyal, care for pack elders too infirm to hunt, and they morn those who die.
 
 
 •	They sing in chorus, harmonizing, and play together.
