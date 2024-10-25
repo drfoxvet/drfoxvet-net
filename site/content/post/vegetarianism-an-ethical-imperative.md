@@ -86,7 +86,24 @@ The anti-cancer power of mushrooms is now being documented. Polysaccharopeptide 
 
 
 Single Agent Polysaccharopeptide Delays Metastases and Improves Survival in Naturally Occurring Hemangiosarcoma by Dorothy Cimino Brown and Jennifer Reetz. Evidence-Based Complementary and Alternative Medicine Volume 2012, Article ID 384301, 8 pages doi:10.1155/2012/384301
+
 MORE ABOUT MIRACULOUS MUSHROOMS
+
+
+Giuliana Furci, the Chilean-British founder of the Fungi Foundation for their identification and conservation asserts “Fungi are the firmament of life on Earth. They make systems ecosystems.”
+Edible mushrooms can be produced more sustainably than beef, pork and poultry; are arguably more nutritious than meat and may prevent various cancers while meat, especially processed meats, can cause cancer.
+
+
+Innovative approaches to nutrition immunology are uncovering how nutrition, immunity and disease are linked. Indeed, the elements of our diet that could help, or worsen, a range of health problems, from cancers to immune conditions such as lupus. For example, mushrooms, crustaceans and edible insects contain high amounts of a fibre called chitin, which might also help tackle obesity. Mushroom tea is increasingly popular.
+https://www.sciencedirect.com/topics/agricultural-and-biological-sciences/chitin# See also: Do-Hyun Kim et al. A type 2 immune circuit in the stomach controls mammalian adaptation to dietary chitin.Science381,1092-1098(2023)
+
+
+Psilocybin (from “magic” mushrooms) is a potent antidepressant and can enhance social behavior and empathy.
+Bhatt, K.V., Weissman, C.R. The effect of psilocybin on empathy and prosocial behavior: a proposed mechanism for enduring antidepressant effects. npj Mental Health Res 3, 7 (2024). https://doi.org/10.1038/s44184-023-00053-8
+
+The medical benefits of mushrooms are being documented for humans and companion animals, some helping with cognitive decline and having anti-inflammatory and anti-cancer properties. Some of Dr. Robert Silver’s formulations for dogs include CBD, cannabis extracts that are recognized as calming and anti-inflammatory. For details go to : https://www.wellpetdispensary.com/doc-silver-naturals/ 
+Many will enjoy Dr. Silver’s book There's a Mushroom for That! is now available on Amazon here: https://www.amazon.com/dp/B0DJG1M348 . It is a comprehensive guide to the use of mushrooms, cannabis and integrative approaches for several different conditions in pets. Written with the pet parent in mind, but will serve as a good entry level text for veterinarians and other health professionals.
+
 
 
 
