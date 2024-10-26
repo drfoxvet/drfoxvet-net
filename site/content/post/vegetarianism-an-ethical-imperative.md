@@ -89,6 +89,33 @@ Single Agent Polysaccharopeptide Delays Metastases and Improves Survival in Natu
 
 MORE ABOUT MIRACULOUS MUSHROOMS
 
+Here are more details of some of the best known varieties:
+
+Lion’s Mane benefits
+
+Lion’s Mane mushroom is packed with essential compounds, such as beta-glucans, which are excellent for the immune system and neuroprotective nutrients, which help promote nerve tissue growth and support motor function. The Lion’s Mane mushroom is a superb supplement for healthy brain function and may support neurogenesis and memory loss.  
+Chinese medicine practitioners have been known to use this medicinal mushroom for its association with digestion, energy, water regulation, as well as stress-related disorders and lack of energy. 
+
+Reishi mushroom benefits
+
+The health benefits of the Reishi mushroom are actively seen in the immune system. It can also support sleep, reduce stress and restlessness, support respiratory health, and maintain healthy blood sugar levels. Because of its ability to support numerous systems in the body, herbalists call Reishi mushrooms the king of medicinal mushrooms.
+
+Cordyceps benefits 
+
+
+The health benefits of mushrooms are also seen in the Cordyceps, which was traditionally used as a tonic due to its capacity to revitalise and restore symptoms like fatigue, exhaustion, and chronic stress. Today, the Cordyceps mushroom is an incredible energy-boosting fungus, helping to support exercise and physical performance by increasing ATP production.
+
+Porcini Mushrooms
+
+Porcini mushrooms are also a superb way to help take your health to the next level. Loaded with iron, fibre and antioxidants, the health benefits of these mushrooms may help improve digestive health, promote weight loss, reduce inflammation and even kill off colon cancer cells. With their unique nutty and earthy taste, Porcini mushrooms are a favourite addition to a variety of vegan and vegetarian dishes.
+
+
+The Chaga mushroom has been used in skin and stomach disorders, while the Shiitake mushroom is great for immunity, liver health and the cardiovascular system.
+
+I enjoy Puffballs I find in our Minnesota woods, collected when not going green and close to bursting out spores. Sliced half-an-inch thick with a creamy-white interior, and peeling off the outer skin, and then fried in olive oil with a little salt and pepper and any herb such as tarragon-you will enjoy; and begone from beef steaks, lamb and pork chops-- and help stop the killing animals for food!
+
+
+
 
 Giuliana Furci, the Chilean-British founder of the Fungi Foundation for their identification and conservation asserts “Fungi are the firmament of life on Earth. They make systems ecosystems.”
 Edible mushrooms can be produced more sustainably than beef, pork and poultry; are arguably more nutritious than meat and may prevent various cancers while meat, especially processed meats, can cause cancer.
