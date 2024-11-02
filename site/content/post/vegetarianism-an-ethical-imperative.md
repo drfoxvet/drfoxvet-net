@@ -65,6 +65,19 @@ Being vegan will improve our health and has been shown to improve the health of 
 
 3.Sandström V, Valin H, Krisztin T, Havlík P, Herrero M, Kastner T. (2018). The role of trade in the greenhouse gas footprints of EU diets. Global Food Security. DOI: 10.1016/j.gfs.2018.08.007 [pure.iiasa.ac.at/15461]).
 
+MORE BENEFITS OF EATING LOW ON THE FOOD-CHAIN
+
+Persistent organic pollutants (POPs) due to their lipophilicity, bioaccumulate in adipose tissue, resulting in greater body burdens of these environmental toxicants with obesity. POPs of major concern include polychlorinated biphenyls (PCBs), polychlorinated dibenzo-p-dioxins and furans (PCDDs/PCDFs), and polybrominated biphenyls and diphenyl ethers (PBBs/PBDEs), among other organic compounds. significant secondary exposures can occur through ingestion of foods from higher levels of the food chain, like meat, dairy products, fish, and shellfish. In utero exposure and exposure due to ingestion of breastmilk also occur and are exposure pathways of concern.
+
+ Several pesticide and herbicide manufacturing processes can release dioxins as a byproduct. Sewage sludge used as fertilizers in farm settings can contain small levels of PCBs, resulting in contamination of soils.
+( https://www.epa.gov/expobox/exposure-assessment-tools-chemical-classes-other-organics).
+
+Pesticides applied to crops accumulate in farmed animals. (Zijin Li et al. Screening of pesticide distributions in foods of animal origin: a matrix-based approach for biotransfer factor modeling of grazing mammals Environ. Sci.: Processes Impacts, 2022, 24,609–624 |). Pesticides used on companion animals such as ivermectin, which is lipophilic, can cause seizures and may contribute, along with a host of other lipophilic contaminants in the diet, to cognitive decline in dogs and well as humans where the rising incidence of neurodegenerative diseases such as Alzheimer’s and Parkinson’s is well documented. 
+
+Since POPs accumulate up the food-chain, many consumers are eating lower on the food chain by opting for vegan and  transitional vegetarian diets, and some veterinarians are now advising similar dietary changes for companion animals.
+
+
+
 ANTI-CANCER NUTRIENT IN MEAT AND DAIRY PRODUCTS: BUT MUSHROOMS CAN HEAL AND ARE BETTER TO EAT!
 
 Researchers have discovered that trans-vaccenic acid (TVA) — a nutrient found in meat and dairy products derived from sheep and cows — promotes the activity of cancer-destroying immune cells. (Trans-Vaccenic Acid (TVA) is a polyunsaturated fatty acid. It is an isomer of linoleic acid. The researchers screened 255 blood nutrients for their role in antitumour immunity and found that TVA activated cytotoxic T cells. When mice with melanoma or colorectal cancer were given a TVA-rich diet, tumour growth slowed compared with a control group.(Fan, H., Xia, S., Xiang, J. et al. Trans-vaccenic acid reprograms CD8+ T cells and anti-tumour immunity. Nature 623, 1034–1043 (2023). https://doi.org/10.1038/s41586-023-06749-3). It is notable that the researchers advised that people shouldn’t consume excessive amounts of meat or dairy to acquire the fatty acid. It can be purchased as a supplement and is expensive.
