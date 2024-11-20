@@ -29,10 +29,11 @@ Tech giants Amazon, Google and Microsoft have all recently announced plans to su
 Crypto mining and data centers now account for 2 percent of global electricity use and nearly 1 percent of global emissions, and their footprint is growing.
 (https://www.imf.org/en/Blogs/Articles/2024/08/15/carbon-emissions-from-ai-and-crypto-are-surging-and-tax-policy-can-help).
 
-This mammonist cybereconomy that consumes energy primarily from non-renewable resources for each transaction, is a significant contributor, along with data storage centers, to global warming. To ignore the harmful consequences to vulnerable communities and to wildlife and biodiversity is a dereliction of duty by all involved, whom some call “Mother frackers.”
+This mammonist cybereconomy that consumes energy primarily from non-renewable resources for each transaction, is a significant contributor, along with data storage centers and corporate and government cybersecurity, to global warming. To ignore the harmful consequences to vulnerable communities and to wildlife and biodiversity is a dereliction of duty by all involved, whom some call “Mother frackers.” As a consequence of climate change and escalating energy demands from these sectors, home-owners pay more and more to cool and warm their homes, and more and more for home and health insurance.
 
 
 There will be ever more law suits to protect public health and the environment and wildlife from the abuses of unconscionable dominion. This will continue until every nation state bases its economy on cyclical ecological principles, stops subsidizing non-sustainable and polluting industries and supports socially just fair trade with corporate hegemony transformed by international convention into free trade alliances. Otherwise, to quote from W.B. Yeat’s poem, The Second Coming (1919) “Things fall apart; the centre cannot hold;/ Mere anarchy is loosed upon the world,..”
+
 
 Time to Jettison the Jet Set
 
