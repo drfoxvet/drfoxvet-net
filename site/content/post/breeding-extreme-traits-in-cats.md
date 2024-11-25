@@ -13,6 +13,8 @@ I expressed public concern forty years ago that some breeders of cats would star
 
 The baby-like and for some, comical appearance of brachycephalic (flat-faced or ‘peke face’) Persian and Exotic shorthair cats is of especial concern. This extreme facial deformity is associated with many health and welfare problems including: tear staining and eye problems; respiratory difficulties and associated inactivity; misalignment of the jaws with dental and oral problems; deformation of the skill leading to difficulties giving birth and later development of hydrocephalus, reduced brain space and herniation of the brain into the base of the skull with serous neurological and painful consequences. The Scottish fold cat with deformed ears often has severe osteoarthritis. Cats with various degrees of dwarfism with shortened and deformed legs have difficulty ambulating and engaging in normal behaviors. No matter how appealing these “Munchkins” may seem, their deliberate propagation with inherited handicaps is surely unethical.
 
+The worst deformities, in the opinion of several veterinarians, are those of the so-called Bullycat, bred in America by cross-breeding hairless Sphynx cats, that suffer from skin issues, cold and sunburn easily, and short-limbed, indeed crippled, Munchkin cats. The combination of these genetic abnormalities in the Bullycat mean a life of suffering and limited physical ability.
+
 So cat fanciers please wake up and be more caring and responsible and prospective cat owners adopt only from your local shelter and don’t support such inhumanity by purchasing a purebred cat with such extreme abnormalities, no matter how appealing they may seem to you. 
 
 More Depraved Cat Breeding.
