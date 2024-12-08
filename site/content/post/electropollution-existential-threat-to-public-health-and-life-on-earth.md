@@ -238,19 +238,47 @@ Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields o
 
 "Ambient levels of electromagnetic fields (EMF) have risen sharply in the last 80 years, creating a novel energetic exposure that previously did not exist. Most recent decades have seen exponential increases in nearly all environments, including rural/remote areas and lower atmospheric regions. Because of unique physiologies, some species of flora and fauna are sensitive to exogenous EMF in ways that may surpass human reactivity. There is limited, but comprehensive, baseline data in the U.S. from the 1980s against which to compare significant new surveys from different countries. This now provides broader and more precise data on potential transient and chronic exposures to wildlife and habitats. Biological effects have been seen broadly across all taxa and frequencies at vanishingly low intensities comparable to today's ambient exposures. Broad wildlife effects have been seen on orientation and migration, food finding, reproduction, mating, nest and den building, territorial maintenance and defense, and longevity and survivorship. Cyto- and geno-toxic effects have been observed. The above issues are explored in three consecutive parts: Part 1 questions today's ambient EMF capabilities to adversely affect wildlife, with more urgency regarding 5G technologies. Part 2 explores natural and man-made fields, animal magnetoreception mechanisms, and pertinent studies to all wildlife kingdoms. Part 3 examines current exposure standards, applicable laws, and future directions. It is time to recognize ambient EMF as a novel form of pollution and develop rules at regulatory agencies that designate air as 'habitat' so EMF can be regulated like other pollutants. Wildlife loss is often unseen and undocumented until tipping points are reached. Long-term chronic low-level EMF exposure standards, which do not now exist, should be set accordingly for wildlife, and environmental laws should be strictly enforced."
 
-FROM MY "ANIMAL DOCTOR" SYNDICATED NEWSAPER COLUMN, July 2022
-
-DEAR DR.FOX, I recently moved in with my boyfriend, and he was telling me about the different sources of radiation and radon at home and how electromagnetic fields can make you sick in many ways like having headaches, body pain, lethargy, tinnitus (ringing in the ear), nausea, burning sensation, heart arrhythmia, and anxiety. I got terrified! This is why I created this  article, "How to Limit Exposure to EMF and Radon at Home"
-
-
-It's a complete and easy-to-follow guide to understanding the toxic sources of radiation and also finding out different ways to prevent it in order to make you and your family feel safe in your own home. 
-I think that my article would be a great addition to your Electropollution: Existential Threat to Public Health,Companion Animals and Life on Earth? post, would you like to add our link as a resource? I think this is something your readers may find helpful.
-Pamela Tatam, Seattle WA
 
 
 
 
-# ADDENDUM
+
+# ADDENDA
+Computer Radiation and Ionization Concerns
+
+Millions of people spend time on a computer, some working all day. Like all electronic devices, computers create electromagnetic fields and ionizing radiation, and emit positive ions into the surrounding environment.These can have harmful health consequences that all users should know about and adopt ways to prevent. A good resource is at
+ https://www.ruanliving.com/blog/how-to-protect-yourself-from-laptop-radiation#
+
+Cats and dogs should not be allowed to snuggle down next to, even under, lap tops or lie beside the computer monitor on the floor. I think this is a very common exposure for cats and dogs who stay close to these electronic devices while their human companions are engaged and off in cyberspace. That many lap tops come with a warning for men not to put them on their laps because of possible reduced sperm count means this is clearly no trivial matter, and cell phone ear extensions are available to help protect our brains from what some see as part of the brain rot pandemic.   
+Children should have very limited time on any computer device in order to avoid documented  impairment and cognitive re-wiring of their developing brains.
+A Google AI review, accessed Dec 7th 2024 stated:
+•	Brain structure
+Screen time can cause differences in brain structure, including: 
+•	
+•	Thinning of the brain's cortex: Children who spend more than seven hours a day on screens may experience thinning of the cortex, which is related to critical thinking and reasoning. 
+•	
+•	Accelerated maturation in visual processing: Screen time can cause accelerated maturation in basic areas like visual processing, while under-developing higher-order areas that support more complex skills. 
+•	Cognitive and brain development
+Screen time can negatively impact cognitive and brain development, including: 
+•	
+•	Lower scores on language and thinking tests 
+•	
+•	Poorer language development and executive functioning 
+•	
+•	Poorer performance on critical thinking and reasoning tests 
+In my opinion, if no protective measures are immediately taken, we may have epigenetic and phenotypic mutations that infuse society with what I call electro-zombies, victims of cyberaddictive gaming and social media, a virtual reality devoid of virtue.
+
+
+
+
+
+Cryptocurrency Energy Demand Escalating
+
+The media rarely reports about the escalating energy demand of cryptocurrency transactions from data storage and transmission centers being endorsed by governments and adopted by the Trump organization ( MN Star Trib Dec 6/24) and other corporate and private interests.
+The U.S. Energy Administration estimates put electricity supporting Bitcoin mining in 2023 at about 0.2% to 0.9% of global demand for electricity. Based on those estimates, global electricity use in cryptocurrency mining was about the same as total electricity consumption in Greece or Australia, respectively. The estimate of U.S. electricity demand supporting cryptocurrency mining in 2023 was estimated to equal annual demand ranging from more than three million to more than six million homes. 
+(https://www.eia.gov/todayinenergy/detail.php?id=61364#:)
+In this epoch of climate change, the contribution of cryptocurrency mining should concern us all, and imposing a carbon tax on every transaction would not serve to ameliorate the risks and consequences.
+
 
 ## EMFS AFFECTING WILDLIFE
 
