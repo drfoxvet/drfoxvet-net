@@ -9,7 +9,7 @@ tags:
 PREVENTING PANDEMICS LIKE COVID-19 AND OTHER ANIMAL-TO-HUMAN DISEASES
                  By Dr. Michael W. Fox 
 
-This following communication considers the genesis of zoonotic diseases like the current global COVID-19 pandemic as it relates to our treatment and consumption of other species. From a neuropsychiatric perspective it examines how we respond to such crises, their emotional and socio-economic consequences and what changes in human behavior are called for to more effectively prevent such catastrophic, anthropogenic health crises: “The time has come for us to rethink our relationship with all life on this planet – other humans, nonhumans, and the earth, a life form in itself. What is good for nonhumans and the earth is virtually always in the best interests of humans, given the profound interconnectedness of all life. All that we do depends upon abundant plant and animal life as well as clean air and water. Each of us can have a positive impact upon these fundamentals by demonstrating and inspiring an enhanced mindfulness, beginning most basically with what we eat and how all of our daily choices and actions may be affecting animals and natural habitats. Ultimately, the survival, not only of other life forms on this planet, but also of our own, will depend upon humanity’s ability to recognize the oneness of all that exists and the importance and deeper significance of compassion for all life” (1). 
+This following communication considers the genesis of zoonotic diseases like the global COVID-19 pandemic as it relates to our treatment and consumption of other species. From a neuropsychiatric perspective it examines how we respond to such crises, their emotional and socio-economic consequences and what changes in human behavior are called for to more effectively prevent such catastrophic, anthropogenic health crises: “The time has come for us to rethink our relationship with all life on this planet – other humans, nonhumans, and the earth, a life form in itself. What is good for nonhumans and the earth is virtually always in the best interests of humans, given the profound interconnectedness of all life. All that we do depends upon abundant plant and animal life as well as clean air and water. Each of us can have a positive impact upon these fundamentals by demonstrating and inspiring an enhanced mindfulness, beginning most basically with what we eat and how all of our daily choices and actions may be affecting animals and natural habitats. Ultimately, the survival, not only of other life forms on this planet, but also of our own, will depend upon humanity’s ability to recognize the oneness of all that exists and the importance and deeper significance of compassion for all life” (1). 
  
 Our fear-based attitude toward viruses and bacteria is founded on our not appreciating how these and other micro-organisms function and help sustain this living world. Parts of them are in our DNA and vital cellular content and without them in our guts we would die in a few days. They can also play an environmentally beneficial role in regulating population density, in optimizing ecological biodiversity and reducing dysbiosis. 
 
@@ -96,6 +96,49 @@ The article by Ari Schulman, Why Fauci's legacy is a failure (Star Tribune 9/1/2
 
 Science without ethics is hazardous: Ethics without science is vacuous. Science informs politics and ethics guide when politicians are committed to serve the common good and the good of the Commons.
 The science and bioethics of a One Health approach to pandemic prevention must be adopted by the U.S. Public Health Service. A One Health approach calls for informed public involvement linked with animal health (animals being the primary source of new and old pandemics) and environmental protection. Such an integrative approach to pandemic prevention rather than the marketing of ever more vaccines and pharmaceuticals is long overdue.
+
+
+Mental Health Consequences of COVID-19 Vaccinations
+
+Kim, H.J., Kim, MH., Choi, M.G. et al. Psychiatric adverse events following COVID-19 vaccination: a population-based cohort study in Seoul, South Korea. Mol Psychiatry 29, 3635–3643 (2024). https://doi.org/10.1038/s41380-024-02627-0
+
+COVID-19 vaccination differentially affects occurrences of psychiatric disorders. It increased the risks of depression, anxiety, dissociative, stress-related, and somatoform disorders, and sleep disorders while reducing the incidence and risk of schizophrenia and bipolar disorder.
+
+
+Patone M, Handunnetthi L, Saatci D, Pan J, Katikireddi SV, Razvi S, et al. Neurological complications after first dose of COVID-19 vaccines and SARS-CoV-2 infection. Nat Med. 2021;27:2144–53.
+
+
+Buchan SA, Seo CY, Johnson C, Alley S, Kwong JC, Nasreen S, et al. Epidemiology of Myocarditis and Pericarditis Following mRNA vaccination by vaccine product, schedule, and interdose interval among adolescents and adults in Ontario, Canada. JAMA Netw Open. 2022;5:e2218505.
+
+
+Harrison PJ, Taquet M. Neuropsychiatric disorders following SARS-CoV-2 infection. Brain. 2023;146:2241–7.
+
+
+Cozzolino A, Hasenmajer V, Newell-Price J, Isidori AM. COVID-19 pandemic and adrenals: deep insights and implications in patients with glucocorticoid disorders. Endocrine. 2023;82:1–14.
+
+Trougakos IP, Terpos E, Alexopoulos H, Politou M, Paraskevis D, Scorilas A, et al. Adverse effects of COVID-19 mRNA vaccines: the spike hypothesis. Trends Mol Med. 2022;28:542–54.
+
+
+Yonker LM, Swank Z, Bartsch YC, Burns MD, Kane A, Boribong BP, et al. Circulating spike protein detected in Post-COVID-19 mRNA vaccine myocarditis. Circulation. 2023;147:867–76.
+
+
+Khayat-Khoei M, Bhattacharyya S, Katz J, Harrison D, Tauhid S, Bruso P, et al. COVID-19 mRNA vaccination leading to CNS inflammation: a case series. J Neurol. 2022;269:1093–106
+
+Where did the COVID-19 come from?
+
+ Posting from  https://www.nature.com/articles/d41586-024-03968-0?utm_ 
+A new analysis of samples from early 2020 seems to add to the evidence that a market in Wuhan, China was the likely origin of the COVID-19 pandemic. Genomic data from raccoon dogs (Nyctereutes procyonoides) and greater hog badgers (Arctonyx collaris) found at the market seem to show signs of infection with SARS-CoV-2 or other closely related viruses. This supports the theory that animals were infected, which could have led to a ‘spillover’ event in which the virus infected people. But “it doesn’t substitute for finding the virus in an infected animal” in terms of solid proof, says virologist Stanley Perlman.
+
+
+Meanwhile, a Republican-led US government committee — notable for its rancor and partisanship — bucked the opinions of many scientists and concluded that SARS-CoV-2 likely leaked from a lab in Wuhan. Democrats on the panel released their own report flatly contradicting many of their colleagues’ conclusions.
+
+ After years of rumors that the virus that causes COVID-19 escaped from a laboratory in China, the virologist at the center of the claims has presented data on dozens of new coronaviruses collected from bats in southern China. At a conference in Japan this week, Shi Zhengli, a specialist on bat coronaviruses, reported that none of the viruses stored in her freezers are the most recent ancestors of the virus SARS-CoV-2. https://www.nature.com/articles/d41586-024-03982-2
+
+As a background note, the U.S. government, after some biosecurity lapses, sent funds to transfer coronavirus research to China. Part of the allegation of a Wuhan biosecurity failure to contain the SARS-CoV-2 virus might have been fomented by the Chinese “wet market” industry to deflect responsibility. These markets are widespread, killing caged and terrified wildlife and domestic animals in public spaces, especially in regions lacking refrigeration and humane animal slaughtering facilities. In the process they create a significant risk to public health, now affirmed globally by the COVID-19 pandemic. China and all countries with open live animal markets have a social, as well as an ethical, humane responsibility to close all such facilities.
+
+
+
+
 
 
 
