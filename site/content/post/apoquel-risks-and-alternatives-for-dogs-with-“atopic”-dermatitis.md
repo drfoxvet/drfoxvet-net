@@ -26,6 +26,11 @@ In many instances this malady is resolved with a wholesome, whole-food diet and 
  A few drops of fish oil in the food daily to provide essential fatty acids may also help since these vital nutrients are generally lacking or oxidized in dry kibble or destroyed by heat processing of poor-quality canned dog foods.
  Dogs, especially with seasonal allergies, respond well with 1-teaspoon per 30 lb body weight of local honey in their food daily, or the same amount of bee pollen which is especially preferably with dogs who are diabetic.
 
+Many dogs suffer from chronic skin inflammation, constantly scratching, irritated and uncomfortable, sometimes self-mutilating. When food allergy/intolerance is eliminated as a possibility, many are given unpalatable and costly prescription diets, and drugs with harmful side-effects such as corticosteroids and Apoquel, widely promoted in TV.
+Now it has been discovered that many dogs diagnosed with atopic dermatitis are anemic-iron deficient! Giving an iron supplement should certainly be considered for such dogs. For details see Ramos, C.F. et al. Iron deficiency in dogs suffering from atopic dermatitis. BMC Vet Res 20, 506 (2024). https://doi.org/10.1186/s12917-024-04350-y
+ All veterinarians should take note!
+
+
 
 FROM ANIMAL DOCTOR SYNDICATED NEWSPAPER COLUMN, MARCH 2022
 
