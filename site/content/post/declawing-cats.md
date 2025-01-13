@@ -113,6 +113,15 @@ Without her claws Fanny would have less traction and likely be less active, even
 
 Here are some highlights from Mr. Funt’s review: Nearly two dozen countries including England, Australia and Japan, have prohibited or severely restricted declawing. Exceptions are given to owners who are immunocompromised and at-risk from infection from cat scratches rather than euthanizing or re-homing their cats. More than a dozen states have sought to ban the practice but only New York and Maryland have succeeded. Most encouraging is that America’s largest provider of veterinary services, Mars Inc., with some 2,200 animal hospitals, has opted out of declawing with a position paper stating that removal of the third toe bone from each digit of a cat’s foot “has been shown to lead to chronic pain and, in some cases, to cause long-term behavioral issues.” 
 
+Progress in Banning Declawing of Cats
+
+Posting from CBS News: https://www.cbsnews.com/boston/news/cat-declawing-ban-law-illegal-massachusetts/ - Cat declawing is now illegal in Massachusetts after Gov. Maura Healey signed a bill on Jan 9th 2025 to ban the procedure that many animal advocates call inhumane.
+Declawing involves taking out the first bone of a cat's toes. The MSPCA describes it as "an amputation comparable to the removal of all ten human fingertips at the first knuckle." Advocates also say declawing can make cats more likely to bite, and can cause them to avoid a litter box.
+"Declawing is an abhorrent practice that most veterinarians view as inhumane, but it is also a procedure that is widely misunderstood and requested by owners," bill sponsor and State Sen. Mark Montigny of New Bedford said in a statement. "By passing this law, veterinarians will no longer have to weigh the choice knowing that if they don't provide the procedure an owner is likely to just look for someone who will." 
+Violators could face fines of $2,500 for repeat offenses, and licensed veterinarians who break the law could be subject to discipline. 
+Massachusetts is the third state to ban declawing, joining New York and Maryland. Cities like Los Angeles, San Francisco, Pittsburgh, and Denver have done the same. 
+
+
+
  
 
-###
