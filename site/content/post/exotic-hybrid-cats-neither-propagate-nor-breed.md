@@ -1,5 +1,5 @@
 ---
-title: '"Exotic" Hybrid Cats: Neither Propagate Nor Breed'
+title: '"Exotic" Hybrid Cats: Neither Propagate Nor Purchase'
 date: 2020-12-02T17:22:23.504Z
 tags:
   - Cats
@@ -14,6 +14,10 @@ As posted on my website I have long advised against people seeking to own wolf-d
 Veterinarian Dr Kia Benson, DVM writes “ In hybrid breeding terms, the first three generations resulting from these engineered matings are called foundation generations, or F1-F3. Breeders use these foundation generations to create additional generations of hybrids. Although they are being used to breed “domestic” hybrid cats, F1-F3 animals are essentially still wild cats with the aggressive tendencies that one would expect from a wild animal. These early generation hybrids are often prohibited and/or regulated by state or local laws.”
 
 “The F4 and later generations are considered “domestic” hybrid cats that can be sold to the general public. Breeders advertise these cats as having the look of the wild with the personality of the domestic cat. However, they don’t fully educate potential owners regarding the common health and behavioral issues secondary to this hybridization. After all, who wouldn’t want to sell a hybrid kitten for $20,000 instead of a purebred Domestic breed of cat like a Burmese for only $2,000?” For more details, affirming my concerns re behavioral and welfare issues with these hybrids, see Dr. Benson’s article:  https://www.petpoisonhelpline.com/blog/exotic-hybrid-cats-hidden-dangers/
+
+In the Savannah cat part of the ancestry is from the Serval wild cat. Crossing this wild cat with a domestic cat produces a hybrid that is infertile, like a mule. Hybrid infertility is when a hybrid cross cannot reproduce due to genetics. Joyce Sroufe, the founder of the breed, retained all generations attempting to get fertile males. She was unsuccessful until five generations removed from the African Serval Cat. Commonly first- and second-generation hybrid females are sterile. For details see Brian W. Davis, et al. Mechanisms Underlying Mammalian Hybrid Sterility in Two Feline Interspecies Models, Molecular Biology and Evolution, 2015;32: 2534–2546.
+Perhaps nature is telling us something here and from a humane perspective I question such breeding. 
+
 
 For obvious ethical reasons, considering the throw-away early hybrid generations and their suffering, and the fact that there are thousands of domestic cats waiting for adoption in animal shelters, informed and caring people should not indulge themselves in supporting this market for “exotic” hybrid felines. 
 
