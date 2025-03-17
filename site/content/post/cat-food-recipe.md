@@ -8,15 +8,12 @@ tags:
 
 1 whole chicken cut in pieces\
 **or** 1 lb ground beef (not too lean), or ground lamb, or turkey.
-
 1 cup chopped chicken hearts and gizzards.\
 1/2 cup of peas, chick peas or lentils\
 Pinch of salt\
 1 T. fish oil  *
-
 2 T butter\
 2 T unflavored gelatin
-
 3 eggs, whole\
 1 T. cider vinegar\
 1 T. chopped canned clams in juice\
@@ -24,9 +21,14 @@ Pinch of salt\
 _1 t. dried kelp_\
 1T.  calcium lactate/citrate/ or carbonate supplement, or oyster shell, or 3 Tums tablets.
 
-Combine all above ingredients. Add water to cover all ingredients, simmer and stir, and add more water as needed until cooked and thickened.  Stew should be thickened enough to be molded into medium-sized or muffin-size patties (add a little oat meal, bran, or mashed potato to thicken if needed). Also add 3 eggs or 1cup of cottage cheese immediately after cooking. After cooling, de-bone and discard bones (cats should not be given cooked bones to eat since they can splinter and cause internal damage). This stew can be served as: 1/2 cup full for a cat with the rest of his/her rations. Freeze the rest of the stew as patties, or in muffin trays, and thaw out as needed. Serve one patty to a cat about three times per week with regular rations. Alternatively, use this recipe as the main food, and feed one heaped tablespoon 4-6 times daily, weighing your cat at the start and then every 3-4 weeks to determine optimal weight and feed more or less accordingly.
+Combine all above ingredients. Add water to cover all ingredients, simmer and stir, and add more water as needed until cooked and thickened.  Stew should be thickened enough to be molded into medium-sized or muffin-size patties (add a little oat meal, bran, or mashed potato to thicken if needed). Also add 3 eggs or 1cup of cottage cheese immediately after cooking. After cooling, de-bone and discard bones (cats should not be given cooked bones to eat since they can splinter and cause internal damage). Freeze the stew as patties, or in muffin trays, and thaw out as needed.
 
-For variation, substitute 1 pound lightly cooked and mixed equal parts of ground or chopped pieces of calf heart, kidney and liver. (NOTE: some cats are allergic to fish, corn and also to beef and dairy products).
+This stew can be served as: two-tablespoons for an averaged sized-cat five to six times daily: Or served as 1 tablespoon-full for a cat with the rest of his/her regular rations.
+   
+For variation, substitute 1 pound lightly cooked and mixed equal parts of ground or chopped pieces of calf heart, kidney, and liver. (NOTE: some cats are allergic or intolerant to fish, chicken, corn and also to beef and dairy products.)
+
+
+Weigh your cat at the start and then every 3-4 weeks to determine optimal weight and feed more or less accordingly.
 
 \* These items are available in health food stores. Ideally all ingredients should be **Organically Certified**.
 
@@ -39,7 +41,7 @@ t = teaspoon
 
 ##### \--TRANSITIONING YOUR CAT ONTO THE NEW DIET SHOULD BE DONE GRADUALLY SO AS TO ALLOW FOR ADAPTATION AND AVOID AVERSION AND DIGESTIVE PROBLEMS THAT A SUDDEN DIETARY CHANGE MAY CAUSE----MIX INCREASING AMOUNTS OF YOUR CAT’S NEW FOOD WITH DECREASING AMOUNTS OF THE OLD FOOD OVER A 7-10 DAY PERIOD.
 
-##### IT IS ADVISABLE TO VARY THE BASIC INGREDIENTS TO PROVIDE VARIETY AND TO AVOID POSSIBLE NUTRITIONAL IMBALANCES, AND TO MONITOR THE ANIMAL'S BODY CONDITION AND WEIGHT SO AS TO AVOID EITHER OVER-FEEDING OR UNDER-FEEDING, BASED ON THE AVERAGE CAT CONSUMING ONE THIRD OF A CUPFULL THREE OR FOUR TIMES A DAY. THIS RECIPE CAN ALSO BE PUT INTO A FOOD PROCESSOR AND FED RAW.
+##### IT IS ADVISABLE TO VARY THE BASIC INGREDIENTS TO PROVIDE VARIETY AND TO AVOID POSSIBLE NUTRITIONAL IMBALANCES, AND TO MONITOR THE ANIMAL'S BODY CONDITION AND WEIGHT SO AS TO AVOID EITHER OVER-FEEDING OR UNDER-FEEDING. THIS RECIPE CAN ALSO BE PUT INTO A FOOD PROCESSOR AND FED RAW.
 
 ##### \--NOTE: DIFFERENT ANIMALS HAVE SLIGHTLY DIFFERENT NUTRITIONAL NEEDS ACCORDING TO AGE, TEMPERAMENT, AMOUNT OF PHYSICAL ACTIVITY AND HEALTH STATUS).
 
