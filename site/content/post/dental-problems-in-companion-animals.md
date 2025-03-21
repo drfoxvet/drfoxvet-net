@@ -22,10 +22,9 @@ It is critically important, especially for older pets and toy breeds, to feed a 
 
 BEST ORAL/DENTAL CARE PRODUCT FOR DOGS AND CATS NOW AVAILABLE
 
-In my professional opinion the all-natural-ingredient Core dental and oral health care spray and gel for dogs and cats is the missing-link in owner-provided companion animal health and well-being. 
+In my professional opinion the all-natural-ingredient AdorePet dental and oral health care spray and gel for dogs and cats is the missing-link in owner-provided companion animal health and well-being. For details visit AdorePet.US
 
-Core dental care products are an integrating element of holistic companion animal health care and disease prevention when followed as a routine application to the animals’ gums and teeth: And as a prophylaxis applied for 3-4 days prior to any appointment for dental cleaning and extractions, helping reduce the likelihood of complications and speeding recovery/healing. For details and to place orders go to  Natural Pet Products | Core Pet (core-pet.com)
-
+These dental care products are an integrating element of holistic companion animal health care and disease prevention when followed as a routine application to the animals’ gums and teeth: And as a prophylaxis applied for 3-4 days prior to any appointment for dental cleaning and extractions, helping reduce the likelihood of complications and speeding recovery/healing. 
  Safe chew-toys made of ideally organic rubber (most plastics contain toxic phthalates), knotted cotton ropes, raw beef marrow bones (some dogs chew too hard and damage teeth so only allow short 5-10 min chewings per day!), and organic US certified rawhide strips, are good tooth cleaners, along with strips of scalded beef heart, shank beef, and chicken wing tips. Some pet supply stores have stopped stocking hard dog chews like antlers and horns after veterinarians expressed concern over large numbers of dogs that had fractured their carnassial teeth on the treats, sometimes requiring extraction of the tooth or a root canal. Chews are too hard if a fingernail dug into the chew does not make an impression and if it hurts to whack your knee with the chew, says veterinary oral surgeon Rachel Perry. ([The Bark online](https://thebark.com/content/hard-dog-chews) (3/3) )
 
 Topping my list for safe and enjoyable dog chews are the No-Hide Dog Chews, in various sizes and flavors from earthanimal.com
