@@ -46,8 +46,8 @@ These inflammatory substances are also produced from body fat in overweight and 
 
 BEST ORAL/DENTAL CARE PRODUCT FOR CATS (& DOGS) NOW AVAILABLE
 
-In my professional opinion the all-natural-ingredient Core dental and oral health care spray and gel for dogs and cats is the missing-link in owner-provided companion animal health and well-being. 
+In my professional opinion the all-natural-ingredient AdorePet dental and oral health care spray and gel for dogs and cats is the missing-link in owner-provided companion animal health and well-being. 
 
-Core dental care products are an integrating element of holistic companion animal health care and disease prevention when followed as a routine application to the animals’ gums and teeth: And as a prophylaxis applied for 3-4 days prior to any appointment for dental cleaning and extractions, helping reduce the likelihood of complications and speeding recovery/healing. For details and to place orders go to  Natural Pet Products | Core Pet (core-pet.com)
+AdorePet dental care products are an integrating element of holistic companion animal health care and disease prevention when followed as a routine application to the animals’ gums and teeth: And as a prophylaxis applied for 3-4 days prior to any appointment for dental cleaning and extractions, helping reduce the likelihood of complications and speeding recovery/healing. For details and to place orders go to AdorePet.US/
 
 Stomatitis is an uncomfortable and difficult disease that can lead to serious health problems. Neglecting a cat’s oral health care maintenance can mean that when stomatitis takes hold and dental cleaning and tooth extractions are called for the cat my die under general anesthesia. The good news is that vigilant dental hygiene and quality nutrition go hand in hand in preventing it and keeping your kitty happy and pain-free.
