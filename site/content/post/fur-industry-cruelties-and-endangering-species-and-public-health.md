@@ -1,10 +1,10 @@
 ---
-title: Fur Industry Cruelties and  Endangering Species and Public Health
+title: 'Fur Industry Cruelties, Endangering Species and Public Health'
 date: 2020-12-19T17:53:50.290Z
 tags:
   - Ethical Issues
 ---
-FUR INDUSTRY CRUELITES AND  ENDANGERING SPECIES AND PUBLIC HEALTH: TIME TO END
+FUR INDUSTRY CRUELITES ENDANGERING SPECIES AND PUBLIC HEALTH: TIME TO END
                                                    By Dr. Michael W. Fox
 
 “Shame of Fur” demonstrations across the U.S. a few decades ago against the wearing of animals’ pelts as fashion and status statements needs re-activation considering the rising demand for such animal parts especially in Asian countries now receiving much of what is “harvested” in North America and Europe and enjoying more “disposable” income.
