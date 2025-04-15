@@ -6,7 +6,15 @@ tags:
 ---
 My latest books are the textbook One Health: Veterinary, Ethical and Environmental Perspectives published by CRC Press, London, 2025.
 
+
+
 And For All Our Relations; Visions and Vexations of a Veterinarian published by Austin Macauley, New York, 2025 
+
+
+
+![]()
+
+
 ![](/img/books-dog-mind.jpg)
 
 ![](/img/books-cat-mind.jpg)
