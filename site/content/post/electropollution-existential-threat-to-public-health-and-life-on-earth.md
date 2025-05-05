@@ -33,8 +33,6 @@ French court orders 4G antenna switch-off over cow health concerns
 A farmer in central-east France said that milk production had dropped by 15-20% in the days following the antenna installation, and 40 of his 200 cows had died
 https://www.activistpost.com/2022/05/cell-tower-turned-off-by-court-after-farmer-complained-that-its-radiation-was-damaging-his-cows-health.html
 
- 
-
 Our planet is a living biosphere (including the atmosphere), what some call the _anima mundi_ or soul of the Earth. It sustains all sentient beings whose bioelectrical fields are attuned to the Earth’s electromagnetic field. The planetary biosphere is being covered by the electronic cybersphere, the realm of information technology and electronic communication, especially the Internet. Helping interconnect and socialize humankind, this is seen by some as the “hominizing” techno-evolution envisioned by Fr Pierre Teilhard de Chardin, SJ, facilitating the genesis of the noosphere. the collectively connected evolutionary matrix of human consciousness. (1).
 
  But the nascent global network of 5 G and other telecommunications and associated mega-energy demands of data storage and services, other forms of non-ionizing radiation (NIR) and electromagnetic fields, (EMFs), are harmful at various frequencies and intensities. They are known to affect neuronal function and DNA, may precipitate techno-devolution and degenerative changes in human psychophysiology, health and behavior. (2) They may also decimate insect and other wildlife species and populations, declining biodiversity affecting ecosystem viability and aggravating the consequences of climate change, detrimental to agriculture and public health and the economy. Electromagnetic fields from powerlines, cell phones, cell towers, satellites and wireless impact the birds, bees, wildlife and our environment. (3). 
@@ -55,7 +53,6 @@ According to Physicians for Responsible Technology (4) "A diverse array of anima
 This posting from Wikipedia is an excellent synopsis of animals' sensory ability to detect the Earth's magnetic field:
 “Magnetoreception is a sense which allows an organism to detect the Earth's magnetic field. Animals with this sense include some arthropods, molluscs, and vertebrates (fish, amphibians, reptiles, birds, and mammals). The sense is mainly used for orientation and navigation, but it may help some animals to form regional maps. Experiments on migratory birds provide evidence that they make use of a cryptochrome protein in the eye, relying on the quantum radical pair mechanism to perceive magnetic fields. This effect is extremely sensitive to weak magnetic fields, and readily disturbed by radio-frequency interference, unlike a conventional iron compass.
 Birds have iron-containing materials in their upper beaks. There is some evidence that this provides a magnetic sense, mediated by the trigeminal nerve, but the mechanism is unknown.” NOTE: "readily disturbed by radio-frequency disturbance."
-
 
 ## Increased Radiofrequency Radiation and The Decline of Birds, Bees and Wildlife
 
@@ -111,34 +108,33 @@ From a holistic veterinarian colleague who is electrosensitive:
 
 https://takebackyourpower.net/wp-content/uploads/2019/12/7-Essential-Ways-to-Make-Your-Home-Safe.pdf.  The addendum is great too!
 
- I’ve read these suggestions on the link above…good, better, best solutions to reduce radiation in daily life that Josh has sent.  There are a few things I’d add and written about below….after you read the above link, these will make sense.  (The attachment are some of my own that I haven’t updated for a while.  The internet over powerline method works well but may not be good for very sensitive people because it creates some dirty electricity in house wiring.)  
+I’ve read these suggestions on the link above…good, better, best solutions to reduce radiation in daily life that Josh has sent.  There are a few things I’d add and written about below….after you read the above link, these will make sense.  (The attachment are some of my own that I haven’t updated for a while.  The internet over powerline method works well but may not be good for very sensitive people because it creates some dirty electricity in house wiring.)  
 
- I use direct ethernet cords from my modem to my computer, no router in the house at all ($10 for 50’ cord).  My cords are not shielded and are fine for me.  If you still need to use a router for a short time before you get hardwire converted, you can get a Signal Tamer from lessemf.com ($35) to put it in when using it.  It also helps keep radiation w/in small apartments and offices so there isn’t extra spilling over into everyone’s spaces.  It will reduce the radiation about 90% and the area it services will be smaller.  If you already have a “smart” tv, cover it’s black box w/ several layers of aluminum foil.
+I use direct ethernet cords from my modem to my computer, no router in the house at all ($10 for 50’ cord).  My cords are not shielded and are fine for me.  If you still need to use a router for a short time before you get hardwire converted, you can get a Signal Tamer from lessemf.com ($35) to put it in when using it.  It also helps keep radiation w/in small apartments and offices so there isn’t extra spilling over into everyone’s spaces.  It will reduce the radiation about 90% and the area it services will be smaller.  If you already have a “smart” tv, cover it’s black box w/ several layers of aluminum foil.
 
- Only use ear buds that have air in them, not all wire (that will act as an antenna for the radiation to travel to your brain)
+Only use ear buds that have air in them, not all wire (that will act as an antenna for the radiation to travel to your brain)
 
 https://www.amazon.com/EMF-Relief-Radiation-Headset-Microphone/dp/B00BY882R0/ref=sr_1_300?hvadid=78134098644714&hvbmt=bb&hvdev=c&hvqmt=b&keywords=emf+books&qid=1565216119&s=gateway&sr=8-300
 
 Watch video to change settings and reduce the radiation your phone puts out. Never put it next to your body when turned ON (the fine print on your phone will tell you the same), esp when you first answer it. https://www.brighteon.com/6044665631001  it’s best not to use a phone in a vehicle, the metal captures and amplifies the radiation.
 
- You can use speaker phone w/ the Safe Sleeve cover ($50) closed (as far from your body as possible) to reduce the large amount of radiation from your cell phone but earbuds are also available.  Airtubes are better than the ones w/ wires because wires still transmit some EMF/RFs to your brain.  By using a Safe Sleeve or Defender Shield you not only reduce your own radiation exposure but also help reduce the electrosmog pollution which is now so high in all public places, I and other EMS people, cannot safely go into them w/o severe symptoms developing.  Defender Shield is another proven cell phone shield that works.  Both will allow radiation in and out because otherwise the phone wouldn’t work but it will cut down on it while close to you and others while you have the phone turned on.  Today I just measured a phone that was supposedly on airplane mode and it was still irradiating a lot.  Not sure why.  Make sure your laptop is also on airplane mode!
+You can use speaker phone w/ the Safe Sleeve cover ($50) closed (as far from your body as possible) to reduce the large amount of radiation from your cell phone but earbuds are also available.  Airtubes are better than the ones w/ wires because wires still transmit some EMF/RFs to your brain.  By using a Safe Sleeve or Defender Shield you not only reduce your own radiation exposure but also help reduce the electrosmog pollution which is now so high in all public places, I and other EMS people, cannot safely go into them w/o severe symptoms developing.  Defender Shield is another proven cell phone shield that works.  Both will allow radiation in and out because otherwise the phone wouldn’t work but it will cut down on it while close to you and others while you have the phone turned on.  Today I just measured a phone that was supposedly on airplane mode and it was still irradiating a lot.  Not sure why.  Make sure your laptop is also on airplane mode!
 
- For pregnant women Belly Armor (online) is a good option to protect the fetus.  It will not completely block all radiation so if I was pregnant I would never use a cell phone, tablet or laptop anywhere close to my abdomen.  ADHD, autism,etc have been associated w/ exposure in the womb and early childhood.  Dr. Devra Davis’s Baby Safe Project w/ Yale U. is a good resource.
+For pregnant women Belly Armor (online) is a good option to protect the fetus.  It will not completely block all radiation so if I was pregnant I would never use a cell phone, tablet or laptop anywhere close to my abdomen.  ADHD, autism,etc have been associated w/ exposure in the womb and early childhood.  Dr. Devra Davis’s Baby Safe Project w/ Yale U. is a good resource.
 
- Meters:  I have a Safe and Sound Pro…has the numbers, very accurate, reads only radiofrequencies RF’s (cell phones, Bluetooth, wifi, cell towers, baby monitors, microwave ovens, etc).  Well worth the extra compared to the S&S Classic.  A Cornet 88T+ would be my 2nd choice, it will also read electro and magnetic fields (EMF’s), pretty accurate for the RF’s.  
+Meters:  I have a Safe and Sound Pro…has the numbers, very accurate, reads only radiofrequencies RF’s (cell phones, Bluetooth, wifi, cell towers, baby monitors, microwave ovens, etc).  Well worth the extra compared to the S&S Classic.  A Cornet 88T+ would be my 2nd choice, it will also read electro and magnetic fields (EMF’s), pretty accurate for the RF’s.  
 
- There is another meter to use to read DE (dirty electricity), I got the Greenwave one because it has a bigger range. These plug into your outlets.   It is not recommended to put in Stetzer filters in your outlets unless you have a dirty electricity problem, so measure first and also have a meter to be able to measure magnetic fields afterwards too.  Because if your house, like mine and many others, has wiring errors, these filters will increase the magnetic fields along that part of the wiring which are as bad or worse than the dirty electricity for health.    If you share a transformer w/ houses that have solar panels then they will be increasing dirty electricity into your house too unfortunately.  All inverters (DC/AC) do this.  Whole house filters may be the best solution.  They cost about $1500.  Again measure first to see if it’s a big problem.  DE has caused cancer, cardiovascular disease, depression, etc.  A friend of mine developed polycythemia vera, a blood cancer, from it…. also EMS Disabled now. 
+There is another meter to use to read DE (dirty electricity), I got the Greenwave one because it has a bigger range. These plug into your outlets.   It is not recommended to put in Stetzer filters in your outlets unless you have a dirty electricity problem, so measure first and also have a meter to be able to measure magnetic fields afterwards too.  Because if your house, like mine and many others, has wiring errors, these filters will increase the magnetic fields along that part of the wiring which are as bad or worse than the dirty electricity for health.    If you share a transformer w/ houses that have solar panels then they will be increasing dirty electricity into your house too unfortunately.  All inverters (DC/AC) do this.  Whole house filters may be the best solution.  They cost about $1500.  Again measure first to see if it’s a big problem.  DE has caused cancer, cardiovascular disease, depression, etc.  A friend of mine developed polycythemia vera, a blood cancer, from it…. also EMS Disabled now. 
 
- An important thing to remember if you are mitigating/shielding w/ paint, fabric/window film, etc you don’t want to use wireless radiation w/in the area because it will also capture and amplify the radiation w/in it.  Like a Faraday cage, or a car.  Shielding is best done w/ the help of an expert, at least w/ the use of an accurate meter.
+An important thing to remember if you are mitigating/shielding w/ paint, fabric/window film, etc you don’t want to use wireless radiation w/in the area because it will also capture and amplify the radiation w/in it.  Like a Faraday cage, or a car.  Shielding is best done w/ the help of an expert, at least w/ the use of an accurate meter.
 
- Many don’t know that their symptoms are coming from wireless radiation.  If you are sensitive to chemicals, esp chemical fragrances, then you most likely are sensitive to EMF/RFs too.  Those most susceptible are children, elderly, the infirm and people w/ medical devices in their bodies…these can be turned off or affected by the microwave radiation.  Most medical practitioners don’t know about this toxin or it’s symptoms.
+Many don’t know that their symptoms are coming from wireless radiation.  If you are sensitive to chemicals, esp chemical fragrances, then you most likely are sensitive to EMF/RFs too.  Those most susceptible are children, elderly, the infirm and people w/ medical devices in their bodies…these can be turned off or affected by the microwave radiation.  Most medical practitioners don’t know about this toxin or it’s symptoms.
 
 Acupuncture needles act as antenna for the microwave toxin so should not be performed in wireless radiation fields.
 
- Thank you for taking the time to learn about this toxin that has become ubiquitous and allowed to be used at unsafe levels.  We must educate and protect ourselves until the government decides to listen to the science and protect public and environmental health.
+Thank you for taking the time to learn about this toxin that has become ubiquitous and allowed to be used at unsafe levels.  We must educate and protect ourselves until the government decides to listen to the science and protect public and environmental health.
 
 Go to https://emfempowerment.com to find how you can get involved in Creating EMF-Safe Sanctuaries: Innovative Solutions for EMF-Free Workspaces.  
-
 
 ## POSTCRIPT CONCERNING COMPANION ANIMALS AND RADIO COLLARS
 
@@ -168,7 +164,6 @@ I receive many letters from readers of my nationally syndicated newspaper column
 Grand View Research. The cameras can ease separation anxiety in both dogs and
 dog owners. ( The Washington Post , Feb 18th 2020). Radiation from these devices could be contributing to animals' discomfort and have long-term adverse consequences on their health and the people sharing the same electro-polluted environment.
 
-
 For **wildlife** the major problems are higher mortalities and morbidity associated with capture stress and the physical and behavioral problems caused by the neck collars. (The National Park Service U.S. Department of the Interior The Natural Resource Program Center, Biological Resource Management Division and The Soundscapes Program Center. A Critique of Wildlife Radio-Tracking and its Use in national parks. A Report to the US National Parks Service by L. David Mech and Shannon M. Barber 2002, <http://npshistory.com/publications/wildlife/radio-tracking-2002.pdf>)
 
 But the non-ionizing radiation associated with collars and implants for radio tracking involves very high frequency (VHF), ultra-high frequency (UHF), and global positioning system (GPS) technologies, including via satellites where platform terminal transmitters (PTTs) are used, as well as geo-locating capabilities using satellites, radio-frequency identification (RFID) chips, and passive integrated responder (PIT) tags, among others. This can be harmful to a variety of species as documented in the review by Manville Albert M., Levitt B. Blake, Lai Henry C. (2024) Health and environmental effects to wildlife from radio telemetry and tracking devices—state of the science and best management practices. Frontiers in Veterinary Science, vol 11, 2024. URL=https://www.frontiersin.org/articles/10.3389/fvets.2024.1283709  DOI=10.3389/fvets.2024.1283709 
@@ -181,7 +176,20 @@ The International Commission on Non‐Ionizing Radiation Protection (ICNIRP), a 
 The guidelines cover many applications such as 5G technologies, WiFi, Bluetooth, mobile phones, and base stations. The previous guidelines were based on adverse health effects that had been shown to be caused by RF EMF exposure. ICNIRP (2020) used the same approach, and indeed there is now a substantial body of literature that has confirmed that RF EMF exposure within the ICNIRP (1998) restrictions does not cause adverse health effects. However, the body of scientific information has not increased greatly in terms of exposures much higher than the ICNIRP (1998) restrictions, particularly in terms of thermal effects, making it difficult to determine thresholds for adverse health effects (i.e. the lowest RF EMF level that will cause an adverse health effect). Given this situation, and given that there is a strong body of literature concerning the effect of heating on health from other sources, ICNIRP (2020) has used this thermal physiology knowledge to supplement that of the RF EMF literature.
 This new report goes on to state that: Minor changes that have been made to improve the precision of the restrictions have resulted in more-conservative restrictions, but as the differences are small relative to the strongly conservative restrictions themselves, these changes will not make an appreciable difference to health protection against exposure from current RF EMF-emitting devices. However, there are two new restrictions in ICNIRP (2020) that have the potential to further strengthen health protection. The first relates to the development of technologies that utilize EMF frequencies >6 GHz, such as 5G, with new restrictions to better protect against excessive temperature rise in the body. The second relates to brief RF EMF exposures (<6 minutes), to ensure that transient temperature rise is not sufficient to cause pain or adversely affect tissue – although ICNIRP (1998) had a restriction for brief (circa 50 ms) pulsed RF EMF to the head, the present guidelines provide protection for exposure durations up to 6 minutes and over the whole body. ICNIRP is not aware of any situations where exposure compliant with the 1998 guidelines has resulted in transient temperature rises that has adversely affected health, but this new restriction will ensure that new or future technological uses will also not adversely affect health.—
 -- Sub-millisecond pulses of RF EMF can result in audible sound. This occurs due to thermo-elastic tissue expansion resulting from very small (circa 0.00001°C) temperature rises, which is detected by sensory cells in the cochlea via the same processes involved in normal hearing. ICNIRP (1998) set a restriction to avoid the possibility of this auditory phenomenon. However, as this represents a sensory phenomenon, with no evidence that it would adversely affect health, this restriction is not used in the ICNIRP (2020) guidelines.--- ICNIRP (2020) has not re-evaluated the ICNIRP (2010) basic restrictions that were designed to protect against nerve stimulation. These occur within the 100 kHz to 10 MHz range, where both nerve stimulation and heating effects can be present. Instead, the ICNIRP (2010) basic restrictions for nerve stimulation have been added to the ICNIRP (2020) basic restrictions for all other potential adverse health effects, to provide a complete set of basic restrictions that covers the entire 100 kHz to 300 GHz EMF frequency range.
-This report clearly recognizes human risks of this technology calling for protective measures from the non-ionizing radiation involved, notably heating of the body and potential cellular and nerve damage. Thus indirectly it affirms the risks and potential harm to other species ( already well documented) especially insects, birds and other vertebrates yet there is no reference to  protecting species other than human in this report. Just as with the use of pesticides decades ago, some risks to humans were recognized and protective “safe use” measures  eventually established but without regard for the adverse impacts on other species and ecosystems 
+This report clearly recognizes human risks of this technology calling for protective measures from the non-ionizing radiation involved, notably heating of the body and potential cellular and nerve damage. Thus indirectly it affirms the risks and potential harm to other species ( already well documented) especially insects, birds and other vertebrates yet there is no reference to  protecting species other than human in this report. Just as with the use of pesticides decades ago, some risks to humans were recognized and protective “safe use” measures  eventually established but without regard for the adverse impacts on other species and ecosystems.
+
+ In North America, Bees are Disappearing Again
+
+
+
+The article by Ivan Penn bearing this title published in the New York Times (https://www.newsbreak.com/the-new-york-times-560862/3960331294632-the-bees-are-disappearing-again) mentions many factors causing bee colony collapse that is a major concern since bees pollinate about 100 food plants upon which we rely. But one contributing factor to the demise of bees and other insects is the impact of non-ionizing radiation from telecommunications systems, especially 5G, and from orbiting satellites that was not mentioned in this article.
+
+Honey bees can detect the Earth’s magnetic field using iron granules in the abdomen that serve as magnetoreceptors. (Liang, CH., Chuang, CL., Jiang, JA. et al. Magnetic Sensing through the Abdomen of the Honey bee. Sci Rep. 20216; 6: 23657). Studies have shown that long-term exposure to certain frequencies, like those used in Wi-Fi (2.4 and 5.8 GHz), can impair a honeybee's ability to find its way back to the hive, potentially impacting foraging and colony productivity, communication, navigation, and larval brood development. (See https://beeculture.com/electromagnetic-radiation-part-1/).
+
+The documented global decline of other insect species that provide vital ecological services and food for other species warrants international attention with closer consideration of the impact of non-ionizing radiation from telecommunications systems. (See Balmori, A. Electromagnetic radiation as an emerging driver factor for the decline of insects, Science of The Total Environment. 2021; 767: 144913).
+
+This decline in insects may well be linked with the recently documented decline in birds in many parts of the U.S. (Alison Johnston et al. North American bird declines are greatest where species are most abundant. Science 2025; 388:532-537.)
+
 
 
 ## REFERENCES & END NOTES
@@ -215,18 +223,14 @@ ADDITIONAL REFERENCES
 
 Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27;37(1):81-122. doi: 10.1515/reveh-2021-0026. PMID: 34047144.
 
-
 Levitt, B. Blake, Lai, Henry C. and Manville, Albert M.. "Effects of non-ionizing electromagnetic fields on flora and fauna, Part 3. Exposure standards, public policy, laws, and future directions" Reviews on Environmental Health, vol. 37, no. 4, 2022, pp. 531-558. https://doi.org/10.1515/reveh-2021-0083
 
-
 Erica Rosenberg (2022) Environmental Procedures at the FCC: A Case Study in Corporate Capture, Environment: Science and Policy for Sustainable Development, 64:5-6, 17-27, DOI: 10.1080/00139157.2022.2131190
-
 
 Cornelia Waldmann-Selsam, Alfonso Balmori-de la Puente, Helmut Breunig, Alfonso Balmori,
 Radiofrequency radiation injures trees around mobile phone base stations,
 Science of The Total Environment Volume 572, 2016, Pages 554-569, ISSN 0048-9697,
 https://doi.org/10.1016/j.scitotenv.2016.08.045.
-
 
 UPDATES
 
@@ -236,24 +240,18 @@ From https://childrenshealthdefense.org/defender/chd-wins-case-fcc-safety-guidel
 The U.S. Court of Appeals for the D.C. Circuit court ruled the Federal Communications Commission must provide a reasoned explanation for its determination that its current guidelines adequately protect against harmful effects of exposure to radiofrequency radiation.
 The U.S. Court of Appeals for the DC Circuit published its decision Aug.13th 2021. The court ruled that the FCC failed to consider the non-cancer evidence regarding adverse health effects of wireless technology when it decided that its1996 radiofrequency emission guidelines protect the public’s health.
 
-
 Levitt BB, Lai HC, Manville AM. Effects of non-ionizing electromagnetic fields on flora and fauna, part 1. Rising ambient EMF levels in the environment. Rev Environ Health. 2021 May 27. doi: 10.1515/reveh-2021-0026. Epub ahead of print. PMID: 34047144.
-
 
 "Ambient levels of electromagnetic fields (EMF) have risen sharply in the last 80 years, creating a novel energetic exposure that previously did not exist. Most recent decades have seen exponential increases in nearly all environments, including rural/remote areas and lower atmospheric regions. Because of unique physiologies, some species of flora and fauna are sensitive to exogenous EMF in ways that may surpass human reactivity. There is limited, but comprehensive, baseline data in the U.S. from the 1980s against which to compare significant new surveys from different countries. This now provides broader and more precise data on potential transient and chronic exposures to wildlife and habitats. Biological effects have been seen broadly across all taxa and frequencies at vanishingly low intensities comparable to today's ambient exposures. Broad wildlife effects have been seen on orientation and migration, food finding, reproduction, mating, nest and den building, territorial maintenance and defense, and longevity and survivorship. Cyto- and geno-toxic effects have been observed. The above issues are explored in three consecutive parts: Part 1 questions today's ambient EMF capabilities to adversely affect wildlife, with more urgency regarding 5G technologies. Part 2 explores natural and man-made fields, animal magnetoreception mechanisms, and pertinent studies to all wildlife kingdoms. Part 3 examines current exposure standards, applicable laws, and future directions. It is time to recognize ambient EMF as a novel form of pollution and develop rules at regulatory agencies that designate air as 'habitat' so EMF can be regulated like other pollutants. Wildlife loss is often unseen and undocumented until tipping points are reached. Long-term chronic low-level EMF exposure standards, which do not now exist, should be set accordingly for wildlife, and environmental laws should be strictly enforced."
 
-
-
-
-
-
 # ADDENDA
+
 Computer Radiation and Ionization Concerns
 
 Millions of people spend time on a computer, some working all day. Like all electronic devices, computers create electromagnetic fields and ionizing radiation, and emit positive ions into the surrounding environment.These can have harmful health consequences that all users should know about and adopt ways to prevent. A good resource is at
  https://www.ruanliving.com/blog/how-to-protect-yourself-from-laptop-radiation#
 
-Cats and dogs should not be allowed to snuggle down next to, even under, lap tops or lie beside the computer monitor on the floor. I think this is a very common exposure for cats and dogs who stay close to these electronic devices while their human companions are engaged and off in cyberspace. That many lap tops come with a warning for men not to put them on their laps because of possible reduced sperm count means this is clearly no trivial matter, and cell phone ear extensions are available to help protect our brains from what some see as part of the brain rot pandemic.   
+Cats and dogs should not be allowed to snuggle down next to, even under, lap tops or lie beside the computer monitor on the floor. I think this is a very common exposure for cats and dogs who stay close to these electronic devices while their human companions are engaged and off in cyberspace. That many lap tops come with a warning for men not to put them on their laps because of possible reduced sperm count means this is clearly no trivial matter, and cell phone ear extensions are available to help protect our brains from what some see as part of the brain rot pandemic.\
 Children should have very limited time on any computer device in order to avoid documented  impairment and cognitive re-wiring of their developing brains.
 A Google AI review, accessed Dec 7th 2024 stated:
 •	Brain structure
@@ -272,17 +270,12 @@ Screen time can negatively impact cognitive and brain development, including:
 •	Poorer performance on critical thinking and reasoning tests 
 In my opinion, if no protective measures are immediately taken, we may have epigenetic and phenotypic mutations that infuse society with what I call electro-zombies, victims of cyberaddictive gaming and social media, a virtual reality devoid of virtue.
 
-
-
-
-
 Cryptocurrency Energy Demand Escalating
 
 The media rarely reports about the escalating energy demand of cryptocurrency transactions from data storage and transmission centers being endorsed by governments and adopted by the Trump organization ( MN Star Trib Dec 6/24) and other corporate and private interests.
 The U.S. Energy Administration estimates put electricity supporting Bitcoin mining in 2023 at about 0.2% to 0.9% of global demand for electricity. Based on those estimates, global electricity use in cryptocurrency mining was about the same as total electricity consumption in Greece or Australia, respectively. The estimate of U.S. electricity demand supporting cryptocurrency mining in 2023 was estimated to equal annual demand ranging from more than three million to more than six million homes. 
 (https://www.eia.gov/todayinenergy/detail.php?id=61364#:)
 In this epoch of climate change, the contribution of cryptocurrency mining should concern us all, and imposing a carbon tax on every transaction would not serve to ameliorate the risks and consequences.
-
 
 ## EMFS AFFECTING WILDLIFE
 
