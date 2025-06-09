@@ -18,7 +18,7 @@ https://www.youtube.com/watch?v=wpnOQM_zyTo
 
 
 
-In a stunning turn of events at the recent U.S. Senate hearing, renowned cardiologist Dr. Peter McCullough delivered a bold and controversial statement regarding COVID-19 vaccines, public health policy, and medical censorship. His testimony, filled with data, personal insight, and strong warnings, has quickly gone viral—sparking national debate and media scrutiny.
+In a stunning turn of events at the recent U.S. Senate hearing, renowned cardiologist Dr. Peter McCullough delivered a bold and controversial statement regarding COVID-19 vaccines, public health policy, and medical censorship. His testimony, filled with data, personal insight, and strong warnings, quickly went viral—sparking national debate and media scrutiny.
 
  In 1986, Ronald Reagan signed the National Childhood Vaccine Injury Act (NCVIA) into law, and this law created the VICP (Vaccine Injury Compensation Program) . The VICP protects the pharmaceutical company from liability related to vaccines. If someone suffers from a vaccine injury, they can't bring a lawsuit against the manufacturer. Instead, they must make a claim to the government, and then, they may receive compensation through this program.
 
