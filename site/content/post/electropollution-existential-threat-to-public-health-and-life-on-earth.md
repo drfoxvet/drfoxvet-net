@@ -178,9 +178,23 @@ This new report goes on to state that: Minor changes that have been made to impr
 -- Sub-millisecond pulses of RF EMF can result in audible sound. This occurs due to thermo-elastic tissue expansion resulting from very small (circa 0.00001°C) temperature rises, which is detected by sensory cells in the cochlea via the same processes involved in normal hearing. ICNIRP (1998) set a restriction to avoid the possibility of this auditory phenomenon. However, as this represents a sensory phenomenon, with no evidence that it would adversely affect health, this restriction is not used in the ICNIRP (2020) guidelines.--- ICNIRP (2020) has not re-evaluated the ICNIRP (2010) basic restrictions that were designed to protect against nerve stimulation. These occur within the 100 kHz to 10 MHz range, where both nerve stimulation and heating effects can be present. Instead, the ICNIRP (2010) basic restrictions for nerve stimulation have been added to the ICNIRP (2020) basic restrictions for all other potential adverse health effects, to provide a complete set of basic restrictions that covers the entire 100 kHz to 300 GHz EMF frequency range.
 This report clearly recognizes human risks of this technology calling for protective measures from the non-ionizing radiation involved, notably heating of the body and potential cellular and nerve damage. Thus indirectly it affirms the risks and potential harm to other species ( already well documented) especially insects, birds and other vertebrates yet there is no reference to  protecting species other than human in this report. Just as with the use of pesticides decades ago, some risks to humans were recognized and protective “safe use” measures  eventually established but without regard for the adverse impacts on other species and ecosystems.
 
+Environment International has published a new systematic review, partially funded by the World Health Organization, concluding that there is high certainty of the evidence linking cell phone radiofrequency (RF) radiation to two types of cancer in animals. In response, leading scientists from the International Commission on the Biological Effects of Electromagnetic Fields (ICBE-EMF) are calling for immediate policy action to protect public health and the environment, warning that further delay could have serious consequences amid the global surge in the use of wireless communication devices.
+
+What the Review Found
+
+A new systematic review of 52 animal studies, “Effects of Radiofrequency Electromagnetic Field Exposure on Cancer in Laboratory Animal Studies” by Mevissen et al. (2025), concluded there is high certainty of the evidence linking RF radiation exposure to two types of tumors: gliomas in the brain and malignant schwannomas in the heart. Notably, the same types of tumors have also been observed in human studies, adding significant confidence that the associations observed in human studies are real.  
+
+The review also found moderate certainty of evidence of an increased risk of rare tumors, such as pheochromocytomas in the adrenal glands and hepatoblastomas in the liver. Additionally, some studies indicated a possible association with lymphomas, although the findings were inconsistent.
+
+ICBE-EMF highlights that in 2011, the World Health Organization’s International Agency for Research on Cancer (IARC) classified radiofrequency radiation (RF-EMF) as a Group 2B “possible” human carcinogen, noting limited animal evidence. Since then, major animal studies — including those by the U.S. National Toxicology Program and the Ramazzini Institute — have found that RF radiation exposure causes cancer in rats. -Mevissen, M., Ducray, A., Jerrold M. Ward, J.M. et al.
+
+Effects of radiofrequency electromagnetic field exposure on cancer in laboratory animal studies, a systematic review. Environment International,
+
+2025; 199: 109482, https://doi.org/10.1016/j.envint.2025.109482.
+
+
+
  In North America, Bees are Disappearing Again
-
-
 
 The article by Ivan Penn bearing this title published in the New York Times (https://www.newsbreak.com/the-new-york-times-560862/3960331294632-the-bees-are-disappearing-again) mentions many factors causing bee colony collapse that is a major concern since bees pollinate about 100 food plants upon which we rely. But one contributing factor to the demise of bees and other insects is the impact of non-ionizing radiation from telecommunications systems, especially 5G, and from orbiting satellites that was not mentioned in this article.
 
@@ -189,8 +203,6 @@ Honey bees can detect the Earth’s magnetic field using iron granules in the ab
 The documented global decline of other insect species that provide vital ecological services and food for other species warrants international attention with closer consideration of the impact of non-ionizing radiation from telecommunications systems. (See Balmori, A. Electromagnetic radiation as an emerging driver factor for the decline of insects, Science of The Total Environment. 2021; 767: 144913).
 
 This decline in insects may well be linked with the recently documented decline in birds in many parts of the U.S. (Alison Johnston et al. North American bird declines are greatest where species are most abundant. Science 2025; 388:532-537.)
-
-
 
 ## REFERENCES & END NOTES
 
