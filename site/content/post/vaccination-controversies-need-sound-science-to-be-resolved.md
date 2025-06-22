@@ -14,10 +14,6 @@ No vaccine is without risk including the new mRNA COVID-19 vaccines which were e
 
 https://www.youtube.com/watch?v=wpnOQM_zyTo
 
-
-
-
-
 In a stunning turn of events at the recent U.S. Senate hearing, renowned cardiologist Dr. Peter McCullough delivered a bold and controversial statement regarding COVID-19 vaccines, public health policy, and medical censorship. His testimony, filled with data, personal insight, and strong warnings, quickly went viral—sparking national debate and media scrutiny.
 
  In 1986, Ronald Reagan signed the National Childhood Vaccine Injury Act (NCVIA) into law, and this law created the VICP (Vaccine Injury Compensation Program) . The VICP protects the pharmaceutical company from liability related to vaccines. If someone suffers from a vaccine injury, they can't bring a lawsuit against the manufacturer. Instead, they must make a claim to the government, and then, they may receive compensation through this program.
@@ -45,6 +41,34 @@ As a long-time advocate of One Health, I see our civilization at a turning point
 A research team in China tested samples from nearly 2,000 animals at fur farms, zoos and natural habitats, most of which are considered traditional delicacies, and they identified 102 virus species from 13 different families, 21 of which pose a high risk to people (8). Some of the 18 species sampled could serve as intermediary coronavirus hosts between bats and humans, H9N2 influenza virus was found in civets and Asian badgers, and one of the co-authors Edward Holmes warned that the continued sale of wild animals makes another outbreak or pandemic "only a matter of time." 
 
 These studies clearly confirm the harmful consequences of our treating animals, wild and domesticated, inhumanely, as mere commodities, to be exploited and consumed. Zoonotic diseases from farmed animals, notably avian and swine influenza, call not simply for more effective vaccines but for a re-examination of our relationships with, treatment and unbridled consumption of other sentient beings.
+
+ADDENDUM
+
+The COVID-19 mRNA vaccines were rushed to market, with vaccine-developing companies running out of captive-bred, and many, wild-caught, monkeys they used in testing efficacy. The precautionary principle was thrown overboard. Now governmental health agencies are assessing the costs and consequences, risks, and benefits. From the data that I have seen on adverse reactions, many fatal, and vaccinated people still becoming infected, hearings are called for and compensation for afflicted survivors. The U.S. government’s National Vaccine Injury Compensation Program (VICP) provides liability protections to vaccine manufacturers and vaccine administrators who administer covered vaccines in many circumstances, these protections are not absolute. https://www.hrsa.gov/vaccine-compensation/faq
+
+In a stunning turn of events at the recent U.S. Senate hearing, renowned cardiologist Dr. Peter McCullough delivered a bold and controversial statement regarding COVID-19 vaccines, public health policy, and medical censorship. His testimony, filled with data, personal insight, and strong warnings, has quickly gone viral—sparking national debate and media scrutiny. See 
+
+https://www.youtube.com/watch?v=wpnOQM_zyTo
+
+For more supportive documentation see Dr. Aseem Malhotra's Testimony Helsinki District Court 12 April 2024.
+
+https://casecovidpass.com/wp-content/uploads/2024/04/Dr-Aseem-Malhotra-testimony-before-Helsinki-District-Court-12-April-2024-in-Finland-MPXjVFzs8dE.mp3.  
+
+View also https://www.youtube.com/watch?v=RvGCtM25fN0
+
+Loss of speech-ability was associated with brain hemorrhage after mRNA vaccinations. Finsterer, J.& Korn, M. Aphasia seven days after second dose of an mRNA-based SARS-CoV-2 vaccine. Brain Hemorrhages. 2021 Dec;2(4):165-167. Several other harmful consequences have been compiled by Fraiman, J. et al. Serious adverse events of special interest following mRNA COVID-19 vaccination in randomized trials in adults. Vaccine. 2022; 22;40(40):5798-5805. These authors state “The excess risk of serious adverse events found in our study points to the need for formal harm-benefit analyses, particularly those that are stratified according to risk of serious COVID-19 outcomes. These analyses will require public release of participant level datasets.”
+
+See also, https://quadrant.org.au/magazine/covid/an-injured-toxicologist-on-covid-mrna-vaccines-part-iii/
+
+This features toxicologist Phil Burcham’s series on the mRNA vaccines that were forced on Australians during the great Covid pandemic, often at the cost of recusants’ jobs and livelihoods, and the alarming evidence of serious long-term side effects. 
+
+Another review states: “some individuals have reported chronic symptoms that developed soon after receiving a COVID-19 vaccine. This little-understood, persistent condition, referred to as post-vaccination syndrome (PVS), remains unrecognized by medical authorities, and little is known about its biological underpinnings. Some of the most common chronic symptoms of PVS include exercise intolerance, excessive fatigue, brain fog, insomnia, and dizziness. They develop shortly after vaccination, within a day or two, can become more severe in the days that follow, and persist over time. More studies are needed to understand the prevalence of PVS.”- from https://news.yale.edu/2025/02/19/immune-markers-post-vaccination-syndrome-indicate-future-research-directions#
+
+See also Fraiman J, Erviti J, Jones M, et al. Serious adverse events of special interest following mRNA COVID-19 vaccination in randomized trials in adults. Vaccine. 2022; 40(40):5798-5805. doi: 10.1016/j.vaccine.2022.08.036.
+
+According to Dr. Peter Doshi, with the University of Maryland the FDA has been ordered to release the Pfizer EUA file by June 30, 2025. On 6 December 2024, U.S. District Judge Mark T. Pittman ordered the US Food and Drug Administration (FDA) to publicly release all data and information submitted to the FDA underpinning the agency’s first-ever Emergency Use Authorization (EUA) granted for the Pfizer-BioNTech covid-19 vaccine on December 11, 2020.
+
+In my opinion, the risks of mRNA vaccines, a product of genetic engineering biotechnology, have never been fully addressed or exposed by either the manufacturers or governmental health regulatory agencies promoting their use, and the precautionary principle needs to be more rigorously adopted
 
 REFERNCES
 
