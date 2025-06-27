@@ -8,7 +8,7 @@ tags:
 \
                 By Dr. Michael W. Fox
 
-Not many people outside of the community of Islam, for which I have great respect, know anything about ritual halal slaughter. Nor do most practitioners of Islam along with slaughter-house workers since this tradition of killing animals as humanely as possible has fallen behind the scientific knowledge of what this method of killing animals for human consumption entails.
+Not many people outside of the communities of Judaism and Islam, for which I have great respect, know anything about ritual Kosher and Halal slaughter. Nor do most slaughter-house workers since the tradition of killing animals as humanely as possible has fallen behind the scientific knowledge of what this method of killing animals for human consumption entails.
 
 The claims made by the actual practitioners of ritual Islamic and Jewish slaughter who insist that their killing methods are humane I find unacceptable as a veterinarian. Having witnessed both in several countries I can attest to the contrary. The animals should be stunned by mechanically with a captive-bolt, or electrically, and rendered immediately unconscious before their throats are cut, but stunning is opposed by these religious orthodoxies. The pioneering and bold Islamic thinker of animal rights, the late Al-Hafiz B.A. Masri, advocated captive-bolt stunning as not only permissible in Islam, but worthy of global adoption by all Muslims, in his book Animals in Islam, re-issued in 2022. (Haque, N. editor. Animals in Islam: Al-Hafiz B. A. Masri.Woodstock& Brooklyn NY. Lantern Publishing and Media. 2022).
 
