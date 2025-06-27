@@ -12,9 +12,7 @@ Not many people outside of the community of Islam, for which I have great respec
 
 The claims made by the actual practitioners of ritual Islamic and Jewish slaughter who insist that their killing methods are humane I find unacceptable as a veterinarian. Having witnessed both in several countries I can attest to the contrary. The animals should be stunned by mechanically with a captive-bolt, or electrically, and rendered immediately unconscious before their throats are cut, but stunning is opposed by these religious orthodoxies. The pioneering and bold Islamic thinker of animal rights, the late Al-Hafiz B.A. Masri, advocated captive-bolt stunning as not only permissible in Islam, but worthy of global adoption by all Muslims, in his book Animals in Islam, re-issued in 2022. (Haque, N. editor. Animals in Islam: Al-Hafiz B. A. Masri.Woodstock& Brooklyn NY. Lantern Publishing and Media. 2022).
 
-In ritual Kosher slaughter I have seen cattle being first shackled by one hind-leg and then hoisted and suspended before their throats are severed. This causes evident injury to the limb and contravenes the Kosher principle of animals having no blemish before being killed.
-
-
+In ritual Kosher slaughter I have seen cattle being first shackled by one hind-leg and then hoisted and suspended before their throats are severed. This causes evident injury to the limb and contravenes the key requirement for kosher slaughter (shechita) is that the animal must be healthy and without blemish before the slaughter takes place.
 
 Of particular concern from the point of animals' sentience (and that of the slaughterers), is when animals' throats are cut, often in the sight of other animals waiting to be killed, they remain fully conscious as they attempt to breathe as they bleed-out. This is slower with sheep and goats than with cattle since they have arteries coursing through their vertebrae to the brain that are only severed with total decapitation, as I have witnessed with Sikh slaughter. 
 
