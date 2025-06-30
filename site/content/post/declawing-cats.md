@@ -21,8 +21,7 @@ Cats need their claws to be cats, and the routine surgical amputation of all the
 According to the Paw Project ([www.pawproject.org](www.pawproject.org)), de-clawing has become fairly common in the US and Canada in the past three decades. Before that time, it was rarely performed. In most countries, de-clawing is considered unethical and is not performed by veterinarians. The declawing of cats is prohibited in the following countries, provinces, states and cities in the U.S. according to https://www.peta.org/blog/where-declawing-is-illegal/ 
 Only two states in the U.S. have successfully passed declawing bans so far—Maryland (2022) and New York (2019). The following U.S. cities have adopted this ban: Allentown, PA. Austin TX. Berkely, CA. Burbank, CA. Culver City, CA. Beverly Hills, CA. Denver, CO. Los Angeles, CA. Madison, WI. Pittsburgh, PA. St. Louis County, MO. St. Louis, Mo. San Francisco, CA. Santa Monica, CA. Tacoma, WA. West Hollywood, CA.
 
-In the following countries, declawing operations are either illegal or only available in cases of “severe injury or disease of the claw,” in which case the procedure would help the animal regain comfort in a disabled paw and promote good health: Australia. Austria. Belgium. Bosnia and Herzegovina. Brazil. Bulgaria. Cyprus. The Czech Republic. Denmark (does not apply to Greenland or the Faroe Islands). England. Finland. France. Germany. Greece. Ireland. Israel. Italy. Latvia. Lithuania. Luxembourg. Macedonia. Malta. Montenegro. The Netherlands. New Zealand. Northern Ireland. Norway. Portugal. Romania. Scotland. Serbia. Slovenia. Spain. Sweden. Switzerland. Turkey. Ukraine. Wales.
-Canada has made great progress on declawing bans, as eight of its 10 provinces have banned the procedure.
+In the following countries, declawing operations are either illegal or only available in cases of “severe injury or disease of the claw,” in which case the procedure would help the animal regain comfort in a disabled paw and promote good health: Australia. Austria. Belgium. Bosnia and Herzegovina. Brazil. Bulgaria. Cyprus. The Czech Republic. Denmark (does not apply to Greenland or the Faroe Islands). England. Finland. France. Germany. Greece. Ireland. Israel. Italy. Latvia. Lithuania. Luxembourg. Macedonia. Malta. Montenegro. The Netherlands. New Zealand. Northern Ireland. Norway. Portugal. Romania. Scotland. Serbia. Slovenia. Spain. Sweden. Switzerland. Turkey. Ukraine. Wales.According to vetinfo@humaneworld.org:  Earlier in 2025 Massachusetts joined New York (2019), Virginia (2024), Maryland (2022) and Washington, D.C. (2023). 
 However, these bans may not be entirely for humane reasons because in many places cats are allowed to roam free, allowed to kill wildlife and serve as “working cats” on property to control rodents, so they need their claws. 
 
 I wrote the following letter on this topic to my colleagues which was published in the Journal of the American Veterinary Medical Association, Feb. 15, 2006, pages 503-504.
@@ -52,19 +51,11 @@ The Journal of the American Veterinary Medical Association posted an announcemen
 American Association of Feline Practitioners Announce End of Elective Declawing Procedures
  For Cat Friendly Practices®
 
- 
-
 BRIDGEWATER, NJ (January 6, 2021) – The American Association of Feline Practitioners (AAFP), trusted leader in the veterinary community, is proud to announce a policy update ending elective declawing procedures (onychectomy) for felines in all designated Cat Friendly Practices® (CFP). This announcement aligns with the AAFP’s 2017 Position Statement that strongly opposes declawing of cats as an elective procedure. In making this exciting announcement, the AAFP continues supporting high standards of practice, continuing education, and evidence-based medicine.
-
- 
 
 This update rolled out January 1, 2021 to all Cat Friendly Practice® locations across North, Central, and South America and will be standard in all new practices that wish to earn the designation moving forward. The AAFP and the International Society of Feline Medicine (ISFM) established the Cat Friendly Practice® program as a global initiative elevating care for cats. A CFP designation is a recognized symbol of excellence showing a practice’s commitment in treating feline patients gently and with respect. Cat Friendly Practices® set themselves apart by providing the highest standards of care and offering the best practices in feline medicine.
 
- 
-
 Feline declawing is an elective and ethically controversial procedure that is not medically necessary in most instances. Many regions throughout the world, including portions of North America, have banned declawing procedures unless there is a necessary medical reason. Many cat caregivers may not realize scratching is a normal and essential feline behavior that relieves stress and allows cats to fully stretch their bodies. With proper education provided by CFP’s, cat caregivers will have a better understanding of the procedure and potential risks associated with it.   
-
- 
 
 In an effort to provide resources to veterinary professionals and support every Cat Friendly Practice®, the AAFP developed a Claw Friendly Educational Toolkit, located at catvets.com/claw-friendly-toolkit.   There are many alternatives to declawing and the AAFP has created supportive resources to assist veterinary teams and cat caregivers in being informed and living with clawed cats. The comprehensive Toolkit contains:
 
@@ -76,15 +67,10 @@ Two complimentary webinars
 FAQs for veterinary professionals and cat caregivers
 Phone scripts
 Client resources
- 
 
 Additionally, the AAFP’s Cat Friendly Homes website contains resources to assist cat caregivers. This includes educational brochures, flyers, and information about how scratching is a natural feline behavior, declawing alternatives, nail trimming, scratching posts, and more at catfriendly.com/scratching.
 
- 
-
 Guided by evidence-based information, this decision reflects the AAFP’s commitment to cats and gratitude to be able to take this step towards improving feline welfare.
-
- 
 
 The Claw Friendly Educational Toolkit is endorsed by the International Society of Feline Medicine (ISFM), Cat Healthy, and CATalyst Council - all dedicated to improving the health and welfare of cats.
 
@@ -95,19 +81,13 @@ Journal of Feline Medicine and Surgery 2023 25:4
 
 These veterinarians state that “Onychectomy can lead to pain, inappropriate elimination, and aggressive behavior. The presented salvage tenectomy procedure can alleviate or eliminate inappropriate behaviors by reducing the pain from the original onychectomy.” Cutting the tendon that causes the remaining digits to contract abnormally and cause chronic pain can provide relief for the many cats suffering adverse consequences from this inhumane mutilation. My friend Dr. Gaskin adds in a personal note that this tendon severing works great if there is no fragment infection or nail regrowth which must be addressed. But even when addressed, cats are at risk of hyperflexion, and they can start up with this issue even years after the fragments are removed.
 
-
 DE-CLAWING AND OBESITY
 
 Obesity is a widespread cat health problem today: a crisis which causes much suffering and chronic deterioration. Exercise is part of the treatment (and prevention) all experts advise so I must add an additional observation to the many down-sides of de-clawing cats from seeing and hearing our rescued (from TNR) cat Fanny digs her claws into our carpeted floor and stairs for traction and jets off like a rocket chasing our dog and during her upstairs-downstairs “evening crazies.” Cats’ evening and sometimes early morning “crazies” are associated with the innate hunting cycle of being hyper-alert and physically active, seeking, stalking, rushing and pouncing on prey. 
 
-
  Ethologically, a function of having claws is in addition to dexterity, agility and self-care ( grooming/scratching) is to be able to take off at great speed, the claws serving like a sprinter’s cleats by providing greater traction and momentum as the body is propelled forward.
 
-
 Without her claws Fanny would have less traction and likely be less active, eventually developing weaker muscle tone and becoming lethargic, depressed and more susceptible to obesity if her weight and food intake were not closely monitored. So I am suggesting that de-clawing is a significant contributing factor in the current feline obesity epidemic and not simply biologically inappropriate kibble diets and over-feeding because de-clawed cats cannot be as physically active and nowhere near the same intensity as those who have all their claws.
-
-
-
 
 ‘Declawing Cats Provokes A Billion-Dollar Debate’ by Peter Funt in The Wall Street Journal Sat/Sun, June 15-16, 2024. The subtitle States: “Surgically removing a cat’s claws has long been a profitable business for veterinarians. Now animal advocates are hoping to ban what they call a ‘cruel and torturous procedure.’”
 
@@ -119,9 +99,4 @@ Posting from CBS News: https://www.cbsnews.com/boston/news/cat-declawing-ban-law
 Declawing involves taking out the first bone of a cat's toes. The MSPCA describes it as "an amputation comparable to the removal of all ten human fingertips at the first knuckle." Advocates also say declawing can make cats more likely to bite, and can cause them to avoid a litter box.
 "Declawing is an abhorrent practice that most veterinarians view as inhumane, but it is also a procedure that is widely misunderstood and requested by owners," bill sponsor and State Sen. Mark Montigny of New Bedford said in a statement. "By passing this law, veterinarians will no longer have to weigh the choice knowing that if they don't provide the procedure an owner is likely to just look for someone who will." 
 Violators could face fines of $2,500 for repeat offenses, and licensed veterinarians who break the law could be subject to discipline. 
-Massachusetts is the third state to ban declawing, joining New York and Maryland. Cities like Los Angeles, San Francisco, Pittsburgh, and Denver have done the same. 
-
-
-
- 
-
+Massachusetts is the third state to ban declawing, joining New York and Maryland. Cities like Los Angeles, San Francisco, Pittsburgh, and Denver have done the same.
