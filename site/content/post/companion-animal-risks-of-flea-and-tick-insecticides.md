@@ -44,13 +44,10 @@ Hartz’s flea and tick products for dogs and cats, marketed widely in drug and 
 
 Since Seresto flea and tick collars were introduced in 2012, the EPA has received incident reports of at least 1,698 related pet deaths. Overall, through June 2020, the agency has received more than 75,000 incident reports related to the collars, including nearly 1,000 involving human harm.
 
-
 From 1992 to 2008, the EPA received about 4,600 incident reports regarding pet collars containing tetrachlorvinphos, including 363 deaths. The Natural Resources Defense Council. (NRDC) filed a petition against the agency more than a decade ago over its approval of this pesticide that is linked to cancer and brain development issues in children.In April 2020, a federal appeals court called the EPA’s refusal to respond to NRDC’s requests “nothing short of egregious” and told agency officials to make a decision on whether to ban the pesticide within 90 days. The EPA decided not to ban tetrachlorvinphos which continues to be sold under the brand name Hartz Ultra Guard, Hartz InControl and Longlife. NRDC has challenged that decision and that lawsuit is currently pending.
-
 
 Repeated human exposure to selamectin from handling and petting dogs treated with this drug on their skin can pose potential health risks, especially to veterinarians, veterinary technologists, dog trainers/handlers, and pet owners according to the research report 
 Human exposure to selamectin from dogs treated with revolution: methodological consideration for selamectin isolation. Gupta RC and associates, Toxicol Mech Methods. 2005;15(4):317-21. 
-
 
 This industry advocates year-round use for life for companion animals. Long-term effects on food animals are a non-issue since most live very short lives before slaughter. But because of the billions of farmed animals being given insecticides and anti-parasiticides the long-term harmful environmental consequences are considerable. (Manure runoff, including glyphosate and other herbicide residues from feed and fields along with other pesticides, have killed off many aquatic species of Trichoptera and other fresh water organisms, indicators of water quality, and, along with chemical fertilizers, have made lake waters toxic with Blue-green, Cyanobacteria algal blooms).
 
@@ -59,7 +56,6 @@ The adverse environmental impact of insecticide residues in animals’ excrement
 Veterinarian Rosemary Perkins in her article “Are pet parasite products harming the environment more than we think?”  (Veterinary Record, 15/12 Sept 2020, p 397) notes that few studies have been done on this issue but presents some references that indicate the external neonicotinoid insecticides applied externally to cats and dogs or in impregnated neck collars, notably neurotoxic fipronil and imidacloprid are highly toxic to a wide range of invertebrate species and have high environmental persistence. 
 
 The European Commission has banned fipronil and imidacloprid for agricultural use to kill insects because of the impact on honey bees and other beneficial insects, yet their widespread use as pet flea treatment has been ignored. She references studies showing the dust in homes with pets receiving these topical insecticides contains sufficient amounts of these chemicals to kill bees; also, these chemicals are found in urban rivers at levels exceeding published environmental toxicity limits most likely coming from dogs being bathed in -home along with their bedding, and from treated dogs being allowed to go into outdoor waterways.
-
 
 Far too many dermatological problems in dogs especially---and a cause of much animal suffering---could be prevented because they are man-made; consequences of genetic susceptibility, iatrogenic veterinary problems, manufactured pet foods and toxic home environments. Many such factors impair the immune system leading to inflammatory, autoimmune and allergic diseases. Thirty percent of food-allergic dogs and cats are found to have another allergic skin condition according to the 2018 Sate of Pet Health report from Banfield Pet hospital. ( www.StateofPetHealth.com/allergies). Significantly, flea allergy has increased by 12.5 percent in dogs and 76.3 percent in cats over the past decade.
 
@@ -80,12 +76,24 @@ Dogs treated with spot-on insecticides or wearing insecticide-releasing collars 
 
 Dysbiotic intestinal, aquatic and terrestrial microbiomes are ecologically interconnected. The contribution of antiparasitic agents to such dysbiosis on several trophic levels needs to be seen from a One Health perspective and eco-systemic loss of biodiversity which all responsible parties, from manufacturers and suppliers to users and regulators need to address at home and abroad.
 
-From Animal Doctor, syndicated newspaper column by Dr. Fox, April 6th 2021:
+Avoiding Hemangiosarcoma, Blood Cancer, In Dogs
 
+Researchers at the University of Minnesota College of Veterinary Medicine are developing a combined blood test and treatment for canine hemangiosarcoma, a cancer of the blood cells that affects an estimated 50,000 dogs annually in the US and is almost always fatal within a year. The treatment, which combines a blood test that detects cancer cells with a bispecific ligand-targeted angiotoxin to target cancer cells specifically, extended six-month survival rates after splenectomy in a pilot study. Full Story: AVMA News (7/8)
+
+With so many dogs getting this cancer, one must wonder why and seek prevention. I agree with veterinarian Dr.Lynda Loudon who posts: “Many commercial flea and tick products contain harsh pesticides that linger on your dog’s skin and can be absorbed into their bloodstream—posing long-term health risks. Thankfully, there are effective, natural alternatives that don’t compromise your pet’s well-being. Essential oil blends, diatomaceous earth, and dietary support are some of the measures that can help keep pests at bay without the toxic load. If you’re looking for safer solutions, check out my blog on how to protect your dog from fleas and ticks naturally, without resorting to harmful chemicals.”
+
+https://drloudon.com/pet-health/the-silent-risk-is-your-lawn-putting-your-dog-at-risk-for-hemangiosarcoma/#
+
+
+
+
+
+From Animal Doctor, syndicated newspaper column by Dr. Fox, April 6th 2021:
 
 DEAR DR.FOX, I saw on an article I was reading where a woman had her dog act out of character and aggressive after using flea medication. I have a 13- week old puppy and we used Activyl on him and about 7 days later he has these aggressive outburst then he acts overly sweet and you can almost see the confusion in his eyes. This is not like him in any way I don’t know if it’s the medicine but that’s the only thing we have changed. Did you get anymore reports or any leeway on this? 
 A.T., Tulsa OK.
- DEAR A.T., I am shocked you treated such a young dog with this kind of product. If a veterinarian prescribed this, he/she should go back to school. Most likely you made the purchase in a local store which should be prohibited in every community and State. 
+
+ DEAR A.T., I am shocked you treated such a young dog with this kind of product. If a veterinarian prescribed this, he/she should go back to school. Most likely you made the purchase in a local store which should be prohibited in every community and State. 
 According to the manufacturers ( Merck Animal Health) of this insecticide Activyl Topical for Dogs and Cats. “Fleas don’t have to bite to take up Activyl, simply coming into contact with the skin is enough”. 
  Various flea and tick insecticides have caused sudden, unprovoked aggression in dogs and until your communication I was not aware that this highly toxic, hazardous organochloride insecticide was approved for companion animal use. It is strictly regulated in Europe. Indoxacarb is an organochlorine insecticide and a methyl ester. Greenpeace, Germany, has put this chemical Indoxacarb on its Pesticide Blacklist. (PDF) The EU Pesticide Blacklist 2016 - ResearchGate
 www.researchgate.net › publication › 307601520_The_E...
@@ -95,8 +103,6 @@ www.researchgate.net › publication › 307601520_The_E...
 must not be used in dogs which are known to be hypersensitive (allergic) to indoxacarb, permethrin or to any of the other ingredients. Fleas, ticks and sand flies might still be able to transmit any diseases which they may be carrying”.
 
 There are safer alternatives to repelling fleas, ticks and other biting insects which all responsible and caring dog and cat owners should adopt rather than continue using insecticides year-in and year-out on their animals which can cause seizures and death as with Bravecto. Short and long- term adverse health and environmental consequences can be avoided. For such preventive measures see the posting on my website www.drfoxonehealth.com 
-
-
 
 SERESTO FLEA COLLAR LAW SUIT
 From Johnathan Hettinger, Midwest Center for Investigative Reporting March 26, 2021
@@ -114,11 +120,8 @@ I would extend this questioning of exposure risk and better monitoring also to d
 It would seem that many autoimmune and neurodegenerative diseases like Parkinson’s and Alzheimer’s are multifactor/pluri-causal.  Several studies have linked farmers’ exposure to insecticides, fungicides and herbicides as well as non-farming people living in communities close to agrichemical-treated fields.  For a general overview see Pesticide-Induced Diseases: Brain and Nervous System ... https://www.beyondpesticides.org and also, https://www.americanscientist.org/article/the-rise-of-parkinsons-disease.
 
  In their extensive review of clinical and research studies of these concerns. authors Freya Kamel and Jane A. Hoppin conclude “ there is mounting evidence that chronic moderate pesticide exposure is neurotoxic and increases risk of Parkinson disease.” ( quote from Association of Pesticide Exposure with Neurologic Dysfunction and Disease Environmental Health Perspectives Vol. 112, No. 9  June 1st 2004https://doi.org/10.1289/ehp.7135). 
- 
+
 The precautionary principle of risk reduction is an essential component of preventive   health care maintenance. This means reducing the use of and human  exposure to externally applied insecticides to companion animals in particular and to farmed animals with the adoption of Organically Certified husbandry practices that preclude and negate the need for such chemicals. 
-
-
-
 
 ## END NOTES & REFERNCES
 
@@ -179,13 +182,15 @@ Powell, K., Foster, C., and Evans, S. Environmental dangers of veterinary antipa
 
 Perkins, R et al  Potential role of veterinary flea products  in widespread pesticide contamination of English rivers. Sci Total Environ 2020;  doi : 10.106/j.scitotenv.2020.143560
 
-Survey of canine use and safety of isoxazoline parasiticides by Valerie Palmieri W. Jean Dodds | Judy Morgan et al Vet Med Sci. 2020;00:1–13. Abstract ----
+Survey of canine use and safety of isoxazoline parasiticides by Valerie Palmieri W. Jean Dodds | Judy Morgan et al Vet Med Sci. 2020;00:1–13.
+ Abstract ----
 
 A veterinarian and pet owner survey (Project Jake) examined the use and safety of isoxazoline parasiticides given to dogs. Data were received during August 1–31, 2018 from a total of 2,751 survey responses. Forty-two percent (1,157) reported no flea treatment or adverse events (AE), while 58% (1594) had been treated with some parasiticide for flea control, and of those that received a parasiticide, the majority, or 83% (1,325), received an isooxazoline. When any flea treatment was given, AE were reported for 66.6% of respondents, with no apparent AE noted for 36.1%. Project Jake findings were compared to a retrospective analysis of publicly available Food and Drug Administration (FDA) and European Medicines Agency (EMA) reported AE. The number of total AE reported to FDA and EMA were comparable, although a 7 to 10 times higher occurrence of death and seizures was reported from the EMA or from outside the United States (US). Serious AE responses for death, seizures and neurological effects reported in our survey were higher than the FDA but moderately lower than the EMA reports. These sizable global data sets combined with this pre and post-parasiticide administration survey indicated that isoxazoline neurotoxicity was not flea- and tick-specific. Post-marketing serious AE were much higher than in Investigational New Drug (IND) submissions. Although the labels have recently been updated, dogs, cats and their caregivers remain impacted by their use. These aggregate data reports support the need for continued cross-species studies and critical review of product labelling by regulatory agencies and manufacturers.
 
 FOIA FDA: Total Nexgard Reports = 14,116 that contain 47,550 Events; Deaths = 341/14116 ( 2.4%); Seizures = 981/14116 ( 6.97%) Total Bravecto Reports = 16,896 that contain 45,924 Events; Deaths = 416/16896 (2.5%); Seizures = 468/16896 (2.8%) Total Simparica Reports = 1,361 that contain 5,977 Events; Deaths = 44/1361 (3.2%); Seizures = 279/1361 ( 20.5%) 1–8FOIA: CVM ADE Comprehensive Clinical Detail Report Listing, Cumulative Date Range:-Jan-2013 - Sept-2017.
 Adverse consequences include:: Death. Seizures.  Shaking/Tremors/Ataxia. Behavioural Issues. Neurological/Cognitive. Muscular/Balance Issues. Skin Problems/Itching. Internal Bleeding. Anaemia. Vomiting/Nausea. Not Eating/Drinking. Diarrhea
-*****************************************************************
+
+- - -
 
 Receiving a query from a CNN reporter I was alerted to this proposal to use these kinds of drugs in poor communities at risk from insect born diseases, which gives pause for thought:
 
@@ -202,24 +207,18 @@ According to veterinarian Dr. W. Jean Dodds "Some breeds of dogs have the MDR1 g
 
 According to W.J. Dodds & J.P.Kimball  (Updated Summary on Use and Safety of Flea and Tick Preventives for Animals. J Vet Med Surg. Vol 5 No 52:005.2021) “Unlike the Food and Drug Administration (FDA) which regulates parasiticides, such as the isoxazoline compounds, the Environmental Protection Agency (EPA) regulates pesticides like the imidacloprid+flumethrin collar. This difference in regulatory authority in the USA has caused confusion among veterinarians and companion animal owners….Current Class Action lawsuits include one in Quebec and a second in New Jersey involving fluralaner (Bravecto®) and related compounds, due to the incidence of serious AR (Adverse Reactions) including death, that have a duration of treatment lasting from one to 3 months. A third Class Action lawsuit was filed in March 2021 against the imidacloprid+flumethrin product (Seresto Collar®). The collar was introduced in 2012, and is touted to last for 8 months…..The number of adverse reports was highest for spinosad+milbemycin+oxime (TriFexis®) (200,941) followed by afoxalaner+milbemycin+oxime  (NexGard Spectra®) (190,802). The smallest reported number was for the more recently introduced lotilaner (Credelio®, 2018) at 3.302. With regard to the number of reported deaths, the largest number was for sar olaner+moxidectin+pyrantel+pamoate (Simparica Trio®) at 6,717 (approved in 2020), followed closely by spinosad+milbemycin+o xime(TriFexis®) with 6,662 (approved in 2011) and ivermectin+py rantel+pamoate+praziquantel (Iverhart Max®, approved in 2018) at 6,207….. The vast majority of reports involved dogs (86%) with cats accounting for 13%, and 1.5% involving humans…. Updated results from the USA and European Union indicate a notable increase in the number of particularly serious adverse events reported for the flea and tick preventives including seizures, behavioural aggression, and death. The actual number of adverse incidents is likely much higher than those reported to regulatory agencies.”
 
-
-
 The author appreciates the helpful suggestions of Dr. W. Jean Dodds in preparing this review.
 
 SERESOTO ANTI-FLEA COLLARS CALL FOR GOVERNMENT BAN 
-
 
 Now, at last, we are seeing our better government under President Biden addressing this isse with a major report: Seresto Flea and Tick Collars: Examining Why a Product Linked to More Than 2,500 pet Deaths Remains on the Market. House Committee on Oversight and Reform: Subcommittee on Economic and Consumer Policy Staff Report June 2022 .I commend all involved in producing this well referenced report which begins with this statement: 
 
 “This staff report presents the findings of a 16-month investigation by the Committee on Oversight and Reform’s Subcommittee on Economic and Consumer Policy into the safety of the Seresto flea and tick collar that contain the insecticides Flumethrin 4.5%, Imidacloprid 10.0%. Bayer Animal Health—the original owner and manufacturer of the collar—and Elanco Animal Health, which purchased Bayer Animal Health in 2020, have sold millions of Seresto collars since the product entered the market in 2013. Pet owners embraced the convenience of the eight-month flea and tick protection offered by the collar—for under $70—when many other flea and tick treatments must be re-applied monthly. In March 2021, a report from USA Today revealed that, as of June 2020, there had been more than 75,000 incidents—what the Environmental Protection Agency (EPA) calls unexpected effects from the use of a pesticide—and approximately 1,700 pet deaths linked to the Seresto collar. Since the USA Today report was published, the reported numbers have increased to more than 98,000 incidents and 2,500 pet deaths. The Subcommittee’s investigation found that EPA knew about the dangers posed by the collar—and the many consumer complaints about the collars—for several years yet failed to take action.” 
 
-
 EPA Learned in 2016 That the Seresto Collar Was Deemed Too Dangerous to Be Sold in Canada. Canada’s Pest Management Regulatory Agency (PMRA) Seresto report—which EPA received in July 2016 and which has not been made public prior to this Report—contained a number of striking findings. PMRA closely reviewed 961 “Death and Major” pet incidents using enhanced data provided by Bayer, and found that the Seresto collar probably or possibly caused 737—or 77%—of them. More broadly, PMRA expressed great concern over the “number and severity” of animal incidents linked to the Seresto collar. The PMRA report revealed that from 2012 through 2015, there were over 19,000 reported pet incidents in the United States, including 381 deaths and 1,342 major incidents. Several people had serious adverse reactions associated with putting the Seresto collars on their animals. For more details do go to
  2022.06.15 ECP Seresto Staff Report FINAL.pdf (house.gov)
 
-
 It is notable that the use of Elanco’s recombinant bovine growth hormone injected widely in America’s dairy cows has been banned in Canada, Australia, New Zealand, Japan and all 27 nations of the European Union for reasons of consumer safety and cow health and welfare. Elanco’s branded ractopamine hydrochloride products, Paylean for pigs and Optaflexx for beef cattle, are not approved, available or sold within China. This is a psychotropic drug causing animals stress and distress, details posted at  https://drfoxonehealth.com/post/pharmaceutical-cruelty-in-animal-farms-consumer-beware/ 
-
 
 MORE DOCUMENTED EVIDENCE OF ENVIRONMENTAL RISKS OF SPOT-ON INSECTICIDES ON PETS
 
@@ -235,52 +234,38 @@ But oral and injectable parasiticides, including some known to cause seizures an
 
 Research has found that certain gut microbiota in the intestinal microbiome can affect the production of oxytocin in the intestinal epithelium. Oxytocin regulates social behavior and feeding, and is usually produced in the hypothalamus. However, gut bacteria can stimulate the production of oxytocin through the gut hormone secretin, which is produced in enteroendocrine cells. This process has been called "upregulation" of endogenous oxytocin.  The probiotic Limosilactobacillus reuteri (formerly known as Lactobacillus reuteri) has been shown to not only increase circulating oxytocin levels but also oxytocin expression in the brain in rodents, effects which have been linked with metabolism, wound healing, sociability, and behavior. (5, 6, 7).
 
-
 It is notable that treatment with probiotics to boost oxytocin levels helped reduce obesity, an all-too-common problem in dogs. (8). Prescribing probiotics, therefore, to dogs being given parasiticides on a case-by-case basis is a hypothetical proposition that might prove beneficial in maintaining a healthy gut microbiome and gut-brain axis and in preventing aggression and other behavioural problems. The benefits including so-called postbiotics in fermented foods in the human and canine diets should also be considered. (9, 10). 
-
 
 Microbiome restorative therapy for various behavioural and health issues in human and non-human patients is also being recognized more widely (11,12,13), notably the finding that overweight cats have changes in their gut microbiome like how diet affects the human gut, potentially helping researchers better understand how gut bacteria influence diseases like obesity and type 2 diabetes. (14). Of course, dietary ingredients, additives, and contaminants such as Bisphenol A impact the biodiversity of the gut microbiome. (15). Also, since glyphosate and other herbicide residues harm the gut-brain-microbiome (16), current widespread agricultural use calls for more restricted applications, and screening especially of corn and soy products. 
 
-
 Repeated treatments with ivermectin to prevent heart worm disease can alter the microbiome, facilitating the proliferation of beneficial bacteria. (17). However, the antibacterial properties of ivermectin, although evidence of this is based mainly on in vitro tests, are of concern as prolonged use may lead to gut dysbiosis. In-depth studies are need to be done to determine the effect prolonged use has on gut microbiota and the possibility of developing resistant strains. (18). Our understanding of the gut microbiome and its role in physical and mental health-maintenance is progressing significantly (19), calling for the precautionary principle and more research on the influence of various medications. 
- 
+
 References
-1.	Loeb J, Scally P. Corporate advises against spot-on treatment. Vet Rec 2014; 195: 4.
-2.	Wells C, Collins C.M.T. A rapid evidence assessment of the potential risk to the environment presented by active ingredients in the UK’s most commonly sold companion animal parasiticides. Environ Sci Pollut Res 2022; 29: 45070–45088 
-3.	Doolin ML, Dearing MD. Differential Effects of Two Common Antiparasitics on Microbiota Resilience. J Infect Dis. 2024: 14;229(3):908-917.
-4.	Kirchoff NS, Udell MAR, Sharpton TJ. The gut microbiome correlates with conspecific aggression in a small population of rescued dogs (Canis familiaris). PeerJ. 2019 9;7:e61033
-5.	Cuesta-Marti C, Uhgil F, Muguerza B, et al et al Microbes, oxytocin and stress: Converging players regulating eating behavior. J. Neuroendocrinology 15 February 2023  https://doi.org/10.1111/jne.13243
-6.	Erdman SE, Poutahidis T. Microbes and Oxytocin: Benefits for Host Physiology and Behavior. Int Rev Neurobiol. 2016; 131: 91-126.
-7.	Buffington SA, Di Prisco GV, Auchtung TA, et al. Microbial Reconstitution Reverses Maternal Diet-Induced Social and Synaptic Deficits in Offspring. Cell. 2016; 165(7): 1762-1775.
-8.	Varian BJ, Levkovich T, Poutahidis T, et al. Beneficial dog bacteria up-regulate oxytocin and lower risk of obesity. J Probiotics Health. 2016; 4: 1-9. 
-9.	Liang B, Xing D. The Current and Future Perspectives of Postbiotics. Probiotics Antimicrob Proteins. 2023;15(6):1626-1643. 
-10.	Sabahi S, Homayouni Rad A, Aghebati-Maleki L, et al. Postbiotics as the new frontier in food and pharmaceutical research. Critical Reviews in Food Science and Nutrition, 2022; 63:(26), 8375–8402. 
-11.	Chinna Meyyappan A, Forth E, Wallace CJK, et al. Effect of fecal microbiota transplant on symptoms of psychiatric disorders: a systematic review. BMC Psychiatry 2020; 20, 299.https://doi.org/10.1186/s12888-020-02654-5 
-12.	Tan Q, Orsso CE, Deehan EC, Kung JY, et al. Probiotics, prebiotics, symbiotic, and fecal microbiota transplantation in the treatment of behavioral symptoms of autism spectrum disorder: A systematic review. Autism Research 2021; 14:(9), 1820–1836. 
-13.	 Collier AJ, Gomez DE, Monteith G, et al Investigating fecal microbial transplant as a novel therapy in dogs with inflammatory bowel disease: A preliminary study. PLoS One. 2022; 17:(10):e0276295.
-14.	 Rowe JC, Winston JA, Parker VJ. et al. Gut microbiota promoting propionic acid production accompanies caloric restriction-induced intentional weight loss in cats. Sci Rep 2024; 14:11901.
-15.	 Lopez-Moreno A, Cerk K, Rodrigo L. et al. Bisphenol A exposure affects specific gut taxa and drives microbiota dynamics in childhood obesity. mSystems 2024; 9:e00957-23.https://doi.org/10.1128/msystems.00957-23
 
-16.	Barnett JA, Bandy ML, Gibson DL. Is the Use of Glyphosate in Modern Agriculture Resulting in Increased Neuropsychiatric Conditions Through Modulation of the Gut-brain-microbiome Axis? Front Nutr. 2022; 8:9:827384. 
-17.	Hazan S, Papousis A, Sfera A. et al. Treatment with Ivermectin Increases the Population of Bifidobacterium in the Gut. The American Journal of Gastroenterology 2023; 118:(10S) S180-S181. 
-18.	Dicks LMT, Deane SM, Grobbelaar M.J. Could the COVID-19-Driven Increased Use of Ivermectin Lead to Incidents of Imbalanced Gut Microbiota and Dysbiosis? Probiotics & Antimicro. Prot. 2022; 14: 217–223.
-19.	 Sasso JM, Ramy M. Ammar RM, Tenchov R. et al. Gut Microbiome–Brain Alliance: A Landscape View into Mental and Gastrointestinal Health and Disorders. ACS Chemical Neuroscience 2023; 14: (10), 1717-1763.
-
-
-
-
-
-
-
+1. Loeb J, Scally P. Corporate advises against spot-on treatment. Vet Rec 2014; 195: 4.
+2. Wells C, Collins C.M.T. A rapid evidence assessment of the potential risk to the environment presented by active ingredients in the UK’s most commonly sold companion animal parasiticides. Environ Sci Pollut Res 2022; 29: 45070–45088 
+3. Doolin ML, Dearing MD. Differential Effects of Two Common Antiparasitics on Microbiota Resilience. J Infect Dis. 2024: 14;229(3):908-917.
+4. Kirchoff NS, Udell MAR, Sharpton TJ. The gut microbiome correlates with conspecific aggression in a small population of rescued dogs (Canis familiaris). PeerJ. 2019 9;7:e61033
+5. Cuesta-Marti C, Uhgil F, Muguerza B, et al et al Microbes, oxytocin and stress: Converging players regulating eating behavior. J. Neuroendocrinology 15 February 2023  https://doi.org/10.1111/jne.13243
+6. Erdman SE, Poutahidis T. Microbes and Oxytocin: Benefits for Host Physiology and Behavior. Int Rev Neurobiol. 2016; 131: 91-126.
+7. Buffington SA, Di Prisco GV, Auchtung TA, et al. Microbial Reconstitution Reverses Maternal Diet-Induced Social and Synaptic Deficits in Offspring. Cell. 2016; 165(7): 1762-1775.
+8. Varian BJ, Levkovich T, Poutahidis T, et al. Beneficial dog bacteria up-regulate oxytocin and lower risk of obesity. J Probiotics Health. 2016; 4: 1-9. 
+9. Liang B, Xing D. The Current and Future Perspectives of Postbiotics. Probiotics Antimicrob Proteins. 2023;15(6):1626-1643. 
+10. Sabahi S, Homayouni Rad A, Aghebati-Maleki L, et al. Postbiotics as the new frontier in food and pharmaceutical research. Critical Reviews in Food Science and Nutrition, 2022; 63:(26), 8375–8402. 
+11. Chinna Meyyappan A, Forth E, Wallace CJK, et al. Effect of fecal microbiota transplant on symptoms of psychiatric disorders: a systematic review. BMC Psychiatry 2020; 20, 299.https://doi.org/10.1186/s12888-020-02654-5 
+12. Tan Q, Orsso CE, Deehan EC, Kung JY, et al. Probiotics, prebiotics, symbiotic, and fecal microbiota transplantation in the treatment of behavioral symptoms of autism spectrum disorder: A systematic review. Autism Research 2021; 14:(9), 1820–1836. 
+13.  Collier AJ, Gomez DE, Monteith G, et al Investigating fecal microbial transplant as a novel therapy in dogs with inflammatory bowel disease: A preliminary study. PLoS One. 2022; 17:(10):e0276295.
+14.  Rowe JC, Winston JA, Parker VJ. et al. Gut microbiota promoting propionic acid production accompanies caloric restriction-induced intentional weight loss in cats. Sci Rep 2024; 14:11901.
+15.  Lopez-Moreno A, Cerk K, Rodrigo L. et al. Bisphenol A exposure affects specific gut taxa and drives microbiota dynamics in childhood obesity. mSystems 2024; 9:e00957-23.https://doi.org/10.1128/msystems.00957-23
+16. Barnett JA, Bandy ML, Gibson DL. Is the Use of Glyphosate in Modern Agriculture Resulting in Increased Neuropsychiatric Conditions Through Modulation of the Gut-brain-microbiome Axis? Front Nutr. 2022; 8:9:827384. 
+17. Hazan S, Papousis A, Sfera A. et al. Treatment with Ivermectin Increases the Population of Bifidobacterium in the Gut. The American Journal of Gastroenterology 2023; 118:(10S) S180-S181. 
+18. Dicks LMT, Deane SM, Grobbelaar M.J. Could the COVID-19-Driven Increased Use of Ivermectin Lead to Incidents of Imbalanced Gut Microbiota and Dysbiosis? Probiotics & Antimicro. Prot. 2022; 14: 217–223.
+19.  Sasso JM, Ramy M. Ammar RM, Tenchov R. et al. Gut Microbiome–Brain Alliance: A Landscape View into Mental and Gastrointestinal Health and Disorders. ACS Chemical Neuroscience 2023; 14: (10), 1717-1763.
 
 Additional Concerns About Antiparasiticides
 
 The inclusion of PFAS (“forever” chemicals) in some anti-flea and tick formulations applied to companion animals calls for more research and application of the precautionary principle. 
 Short and long-chain PFAS (per-and polyfluoroalkyl substances) such as PFOA, PFOS, and perfluorohexanesulfonic acid (PFHxS)—are known to harm the immune system, weaken the antibody response to vaccinations, and increase the risk of infectious disease. According to a report by Donley et al (1) they have been detected in some pesticides given to pets, notably Front Line Plus and Seresto collars.  They also reported that fipronil was found to be one of the most prevalent contaminants in nearly 500 streams across five regions of the United States. 
 Reference
-1.	Donley, N. Cox, C. Bennett, K. et al. Forever Pesticides: A Growing Source of PFAS Contamination in the Environment. Environmental Health Perspectives, 2024; 132:7 CID: 075003 https://doi.org/10.1289/EHP13954
 
-
-
-
-
+1. Donley, N. Cox, C. Bennett, K. et al. Forever Pesticides: A Growing Source of PFAS Contamination in the Environment. Environmental Health Perspectives, 2024; 132:7 CID: 075003 https://doi.org/10.1289/EHP13954
