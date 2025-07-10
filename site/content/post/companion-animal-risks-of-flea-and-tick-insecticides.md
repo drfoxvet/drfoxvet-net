@@ -84,9 +84,7 @@ With so many dogs getting this cancer, one must wonder why and seek prevention. 
 
 https://drloudon.com/pet-health/the-silent-risk-is-your-lawn-putting-your-dog-at-risk-for-hemangiosarcoma/#
 
-
-
-
+Many pets are exposed to glyphosate, the weed-killer used on private property, parks and on various crops that go into pet and human foods.  Glyphosate causes hemangiosarcomas, kidney tumors and malignant lymphomas in male CD-1 mice, hemangiomas and malignant lymphomas in female CD-1 mice, hemangiomas in female Swiss albino mice, kidney adenomas, liver adenomas, skin keratoacanthomas and skin basal cell tumors in male Sprague-Dawley rats, adrenal cortical carcinomas in female Sprague-Dawley rats and hepatocellular adenomas and skin keratocanthomas in male Wistar rats according to one significant review: Portier CJ. A comprehensive analysis of the animal carcinogenicity data for glyphosate from chronic exposure rodent carcinogenicity studies. Environ Health. 2020;19(1):18. doi: 10.1186/s12940-020-00574-1.
 
 From Animal Doctor, syndicated newspaper column by Dr. Fox, April 6th 2021:
 
@@ -254,13 +252,13 @@ References
 10. Sabahi S, Homayouni Rad A, Aghebati-Maleki L, et al. Postbiotics as the new frontier in food and pharmaceutical research. Critical Reviews in Food Science and Nutrition, 2022; 63:(26), 8375–8402. 
 11. Chinna Meyyappan A, Forth E, Wallace CJK, et al. Effect of fecal microbiota transplant on symptoms of psychiatric disorders: a systematic review. BMC Psychiatry 2020; 20, 299.https://doi.org/10.1186/s12888-020-02654-5 
 12. Tan Q, Orsso CE, Deehan EC, Kung JY, et al. Probiotics, prebiotics, symbiotic, and fecal microbiota transplantation in the treatment of behavioral symptoms of autism spectrum disorder: A systematic review. Autism Research 2021; 14:(9), 1820–1836. 
-13.  Collier AJ, Gomez DE, Monteith G, et al Investigating fecal microbial transplant as a novel therapy in dogs with inflammatory bowel disease: A preliminary study. PLoS One. 2022; 17:(10):e0276295.
-14.  Rowe JC, Winston JA, Parker VJ. et al. Gut microbiota promoting propionic acid production accompanies caloric restriction-induced intentional weight loss in cats. Sci Rep 2024; 14:11901.
-15.  Lopez-Moreno A, Cerk K, Rodrigo L. et al. Bisphenol A exposure affects specific gut taxa and drives microbiota dynamics in childhood obesity. mSystems 2024; 9:e00957-23.https://doi.org/10.1128/msystems.00957-23
+13. Collier AJ, Gomez DE, Monteith G, et al Investigating fecal microbial transplant as a novel therapy in dogs with inflammatory bowel disease: A preliminary study. PLoS One. 2022; 17:(10):e0276295.
+14. Rowe JC, Winston JA, Parker VJ. et al. Gut microbiota promoting propionic acid production accompanies caloric restriction-induced intentional weight loss in cats. Sci Rep 2024; 14:11901.
+15. Lopez-Moreno A, Cerk K, Rodrigo L. et al. Bisphenol A exposure affects specific gut taxa and drives microbiota dynamics in childhood obesity. mSystems 2024; 9:e00957-23.https://doi.org/10.1128/msystems.00957-23
 16. Barnett JA, Bandy ML, Gibson DL. Is the Use of Glyphosate in Modern Agriculture Resulting in Increased Neuropsychiatric Conditions Through Modulation of the Gut-brain-microbiome Axis? Front Nutr. 2022; 8:9:827384. 
 17. Hazan S, Papousis A, Sfera A. et al. Treatment with Ivermectin Increases the Population of Bifidobacterium in the Gut. The American Journal of Gastroenterology 2023; 118:(10S) S180-S181. 
 18. Dicks LMT, Deane SM, Grobbelaar M.J. Could the COVID-19-Driven Increased Use of Ivermectin Lead to Incidents of Imbalanced Gut Microbiota and Dysbiosis? Probiotics & Antimicro. Prot. 2022; 14: 217–223.
-19.  Sasso JM, Ramy M. Ammar RM, Tenchov R. et al. Gut Microbiome–Brain Alliance: A Landscape View into Mental and Gastrointestinal Health and Disorders. ACS Chemical Neuroscience 2023; 14: (10), 1717-1763.
+19. Sasso JM, Ramy M. Ammar RM, Tenchov R. et al. Gut Microbiome–Brain Alliance: A Landscape View into Mental and Gastrointestinal Health and Disorders. ACS Chemical Neuroscience 2023; 14: (10), 1717-1763.
 
 Additional Concerns About Antiparasiticides
 
