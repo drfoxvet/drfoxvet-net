@@ -30,6 +30,14 @@ An analysis of several research studies of the carcinogenic potential of glyphos
 
 “Our findings strengthen the mechanistic evidence that glyphosate is a probable human carcinogen and provide biological plausibility for previously reported cancer associations in humans, such as non-Hodgkin lymphoma. We identified potential molecular interactions and subsequent key events that were used to generate a probable pathway to lymphomagenesis.” (Iemaan Rana, Patton K. Nguyen, Gabrielle Rigutto, et al Mapping the key characteristics of carcinogens for glyphosate and its formulations: A systematic review, Chemosphere, Volume 339, 2023, 139572, ISSN 0045-6535, https://doi.org/10.1016/j.chemosphere.2023.139572.).
 
+Additional research studies highlight the risks of this herbicide: E. Reynier, & E. Rubin, Glyphosate exposure and GM seed rollout unequally reduced perinatal health, Proc. Natl. Acad. Sci. U.S.A. 122 (3) e2413013121, https://doi.org/10.1073/pnas.2413013121 (2025).
+
+
+
+Riechelman-Casarin L, Valente LC, Otton R, Barbisan LF, Romualdo GR. Are glyphosate or glyphosate-based herbicides linked to Metabolic dysfunction-associated steatotic liver disease (MASLD)? The weight of current evidence. Environmental Toxicology and Pharmacology. Published online April 2025:104705. doi:10.1016/j.etap.2025.104705
+
+
+
 According to legal experts, the average Roundup settlement payout is $150,000 per plaintiff. Bayer agreed to pay nearly $11 billion to settle Roundup safety claims, but over 40,000 active lawsuits remain in litigation. Lawsuits claim using Roundup, a popular herbicide containing glyphosate, caused plaintiffs’ non-Hodgkin lymphoma and other cancers. (Statement from https://www.drugwatch.com/legal/roundup-settlements/#)
 
 It would therefore be advisable to consume USDA Organically Certified foods since glyphosate is prohibited under organic standards, and organic soils a less nutrient-deficient than conventional.
