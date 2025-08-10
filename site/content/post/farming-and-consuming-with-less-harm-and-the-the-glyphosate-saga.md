@@ -6,21 +6,11 @@ tags:
 ---
 Farming-and Consuming-With Less Harm
 
-Farming-and Consuming- With Less Harm
-
-
-
 By Dr. Michael W. Fox
-
-
 
 It is difficult to tell farmers what to do when it comes to environmental and wildlife protection and more humane treatment of animals raised for food when they are driven by profit margins and know how to farm the government for subsidies and price supports. According to one survey, “Total covered cropland declined nearly 10 million acres or -4% between 2012 and 2022. The decline was slower between 2017 and 2022 (-3%). Total covered cropland includes land in cover crops, winter wheat, and forages as well as cropland in CRP and pasture and grazing land that can be cropped without additional improvement.” (Zulauf, C., G.et al.“Cover Crops and Covered Cropland, 2022 US Census of Agriculture.” farmdoc daily (14):37, Department of Agricultural and Consumer Economics, University of Illinois at Urbana-Champaign, February 22, 2024. Cover crops help prevent soil erosion, loss of nutrients and enhance carbon sequestration. No agricultural land should be left bare.
 
-
-
 Another harm is evident in the decline in Monarch butterflies and other insects along with birds and other wildlife that depend on insects as a food source is as a result of the planting of genetically modified (GM) crops that are resistant to Roundup (glyphosate) herbicide treatment and produce their own insecticide called Bt. ( Bacillus thuringiensis).
-
-
 
 Now, a new study links Monarch butterfly and other insect and bird declines with the widespread treatment of corn and soybean seeds with neonicotinoids in the Midwest that are absorbed into plant tissues. (see Van Deynze, B. et al (2024) Insecticides, more than herbicides, land use, and climate, are associated with declines in butterfly species richness and abundance in the American Midwest. PLOS ONE 19(6): e0304319. https://doi.org/10.1371/).
 
@@ -36,7 +26,15 @@ This research study has been widely noted by the news media. Replenishing the br
 
 Note also glyphosate may play a role in cardiovascular disease associated with low levels of magnesium: DiNicolantonio JJ, O'Keefe JH, Wilson W. Subclinical magnesium deficiency: a principal driver of cardiovascular disease and a public health crisis. Open Heart. 2018 Jan 13;5(1):e000668. doi: 10.1136/openhrt-2017-000668. Erratum in: Open Heart. 2018 Apr 5;5(1):e000668corr1. PMID: 29387426; PMCID: PMC5786912.Because serum magnesium does not reflect intracellular magnesium, the latter making up more than 99% of total body magnesium, most cases of magnesium deficiency are undiagnosed. Furthermore, because of chronic diseases, medications, decreases in food crop magnesium contents, (italics, mine), and the availability of refined and processed foods, the vast majority of people in modern societies are at risk for magnesium deficiency. Certain individuals will need to supplement with magnesium in order to prevent suboptimal magnesium deficiency, especially if trying to obtain an optimal magnesium status to prevent chronic disease. Subclinical magnesium deficiency increases the risk of numerous types of cardiovascular disease, costs nations around the world an incalculable amount of healthcare costs and suffering, and should be considered a public health crisis. That an easy, cost-effective strategy exists to prevent and treat subclinical magnesium deficiency should provide an urgent call to action.
 
+An analysis of several research studies of the carcinogenic potential of glyphosate, states: 
+
+“Our findings strengthen the mechanistic evidence that glyphosate is a probable human carcinogen and provide biological plausibility for previously reported cancer associations in humans, such as non-Hodgkin lymphoma. We identified potential molecular interactions and subsequent key events that were used to generate a probable pathway to lymphomagenesis.” (Iemaan Rana, Patton K. Nguyen, Gabrielle Rigutto, et al Mapping the key characteristics of carcinogens for glyphosate and its formulations: A systematic review, Chemosphere, Volume 339, 2023, 139572, ISSN 0045-6535, https://doi.org/10.1016/j.chemosphere.2023.139572.).
+
+According to legal experts, the average Roundup settlement payout is $150,000 per plaintiff. Bayer agreed to pay nearly $11 billion to settle Roundup safety claims, but over 40,000 active lawsuits remain in litigation. Lawsuits claim using Roundup, a popular herbicide containing glyphosate, caused plaintiffs’ non-Hodgkin lymphoma and other cancers. (Statement from https://www.drugwatch.com/legal/roundup-settlements/#)
+
 It would therefore be advisable to consume USDA Organically Certified foods since glyphosate is prohibited under organic standards, and organic soils a less nutrient-deficient than conventional.
+
+Effects on Horses
 
 Feeding racehorses and breeding stock only organically certified dietary ingredients, or at least non-GMO and glyphosate -tested feed, might help reduce these race-track deaths and injuries resulting in euthanasia. According to Joyce Harman, DVM,  www.harmanyequine.com. in her article concerning glyphosate in horse feed (https://www.horseillustrated.com/gmo-and-glyphosates) “There are 10 crops that are GMO (genetically modified to be resistant to glyphosate) at this time, several of which are fed to horses on a regular basis. These crops include: alfalfa, apples, canola, corn (field and sweet, not popcorn), cotton, papaya, potatoes, soybeans, yellow squash, and sugar beets. In 2008, sugar beets became GMO and are currently found in most horse feeds. Corn and soybean have been GMO for much longer. Alfalfa is legal to grow as GMO, but since it’s a perennial and not replanted every year, it has been slower to be adopted. There is great controversy over GMO alfalfa because it’s pollinated by bees, making it easier to cross-pollinate with organic fields. It may also contribute to the decline of the bee populations. Currently glyphosate is also sprayed right before harvest on wheat, buckwheat, barley, oats, lentils, and beans that are not genetically engineered. Glyphosate kills the crop, and this dries it out so it can be harvested sooner than if the plant were allowed to die naturally. Residues have been found on most products made from oats, barley, wheat, chickpeas, lentils and many more foods. Grains fed to horses and livestock are not routinely tested in these studies but can be expected to be at least as high. Unfortunately, this means that just feeding non-GMO feeds such as oats and barley is not a way to escape the contamination. Research has shown that pigs have severe stomach inflammation after just five months of eating GMO corn and soybean. Pigs actually have a similar digestive tract to horses (except for the fiber digesting cecum and large intestine). Horses are fed GMO corn, soybean and beet pulp for years. The increase in gastric ulcers and digestive tract issues has become much worse over the last 10 years.” 
 
@@ -48,34 +46,14 @@ https://www.theequinedocumentalist.com/post/is-the-herbicide-glyphosate-causing-
 
 Glyphosate Makes Harmful Algae Proliferate. See report by Brittanie L. Dabney, Reynaldo Patiño, Low-dose stimulation of growth of the harmful alga, Prymnesium parvum, by glyphosate and glyphosate-based herbicides. Harmful Algae, Volume 80, 2018, Pages 130-139, https://doi.org/10.1016/j.hal.2018.11.004.
 
-An analysis of several research studies of the carcinogenic potential of glyphosate, states: 
-
-“Our findings strengthen the mechanistic evidence that glyphosate is a probable human carcinogen and provide biological plausibility for previously reported cancer associations in humans, such as non-Hodgkin lymphoma. We identified potential molecular interactions and subsequent key events that were used to generate a probable pathway to lymphomagenesis.” (Iemaan Rana, Patton K. Nguyen, Gabrielle Rigutto, et al Mapping the key characteristics of carcinogens for glyphosate and its formulations: A systematic review, Chemosphere, Volume 339, 2023, 139572, ISSN 0045-6535, https://doi.org/10.1016/j.chemosphere.2023.139572.).
-
-According to legal experts, the average Roundup settlement payout is $150,000 per plaintiff. Bayer agreed to pay nearly $11 billion to settle Roundup safety claims, but over 40,000 active lawsuits remain in litigation. Lawsuits claim using Roundup, a popular herbicide containing glyphosate, caused plaintiffs’ non-Hodgkin lymphoma and other cancers. (Statement from https://www.drugwatch.com/legal/roundup-settlements/#)
-
-It would therefore be advisable to consume USDA Organically Certified foods since glyphosate is prohibited under organic standards, and organic soils a less nutrient-deficient than conventional.
-
-
-
-
-
 
 
 Ninety percent of corn grown in US and over 80% of soy crop is fed to farmed animals…much of being exported to China and other countries to feed factory farmed animals that are a potential source of pandemics, the highly pathogenic H5N1 avian influenza virus now decimating wild bird and land and sea mammals around the world.
 
-
-
 With climate change-related floods and droughts reducing crop yields and causing food shortages and rising market prices globally, feeding people first rather than using land to produce crops for farmed animal feed, regardless of the dubious promises of developing genetically engineered flood, salt and drought resistant feed crops, would be prudent. Recent floods in many states have lead to factory farm beef feedlot and hog and poultry confinement operations animal waste/manure holding lagoons overflowing and causing extensive pollution of surface and ground waters,fish kills, and risks to public health from excess nitrates and antibiotic-resistant bacteria.
-
-
 
 Climate change also brings unprecedented heat that stresses these confined animals and suffocation with power-outages. Their suffering is compounded when ventilation is turned off to kill them when they have diseases such as avian influenza, extermination being the accepted means of disease control which would not be needed if animal factory farms were phased out.
 
-
-
 Wealthier countries need to consume less meat to tackle climate change — and one nationwide experiment in Denmark to encourage plant-based diets may show a way forward.See article by Sanne Wass: Denmark Wants People to Consume Less Meat, Dairy - Bloomberg. Big Pharma that makes $ billions from antibiotic, vaccine and production-enhancing drug sales for factory farmed animals will protest and lobby against any reductions.
-
-
 
 Consumers can join the farm-with-less-harm movement by purchasing produce and prepared foods (including some pet foods) that carry the logos USDA Organically Certified, GMO Free and Animal Welfare Certified. (Certified GAP.org). For environmental, biodiversity- conservation, economic, and health reasons, millions of consumers in many countries are now opting for vegetarian and vegan diets and healthful vegan pet foods are now available for companion animals.
