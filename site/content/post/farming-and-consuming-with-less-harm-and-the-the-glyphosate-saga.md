@@ -32,11 +32,7 @@ An analysis of several research studies of the carcinogenic potential of glyphos
 
 Additional research studies highlight the risks of this herbicide: E. Reynier, & E. Rubin, Glyphosate exposure and GM seed rollout unequally reduced perinatal health, Proc. Natl. Acad. Sci. U.S.A. 122 (3) e2413013121, https://doi.org/10.1073/pnas.2413013121 (2025).
 
-
-
 Riechelman-Casarin L, Valente LC, Otton R, Barbisan LF, Romualdo GR. Are glyphosate or glyphosate-based herbicides linked to Metabolic dysfunction-associated steatotic liver disease (MASLD)? The weight of current evidence. Environmental Toxicology and Pharmacology. Published online April 2025:104705. doi:10.1016/j.etap.2025.104705
-
-
 
 According to legal experts, the average Roundup settlement payout is $150,000 per plaintiff. Bayer agreed to pay nearly $11 billion to settle Roundup safety claims, but over 40,000 active lawsuits remain in litigation. Lawsuits claim using Roundup, a popular herbicide containing glyphosate, caused plaintiffs’ non-Hodgkin lymphoma and other cancers. (Statement from https://www.drugwatch.com/legal/roundup-settlements/#)
 
@@ -52,9 +48,15 @@ And: Is the herbicide Glyphosate causing laminitis and chronic illness in horses
 
 https://www.theequinedocumentalist.com/post/is-the-herbicide-glyphosate-causing-laminitis-and-chronic-illness-in-horses
 
+Pet Food Contamination
+
+Glyphosate has been detected in high fiber/cereal content cat and dog foods. Companion animal feeds contained 7.83 × 101–2.14 × 103 μg kg−1 glyphosate which is likely to result in pet exposure that is 4–12 times higher than that of humans on a per Kg basis. ( Jiang Zhao, Steven Pacenka, Jing Wu, et al. Detection of glyphosate residues in companion animal feeds. Environmental Pollution. 2018; 243:1113-1118). 
+
+ The prevalence of lymphoma and other cancers in companion animals, metabolic syndrome/obesity, intestinal dysbiosis and associated dermatological problems may be related to this herbicide contaminant in their food. 
+
+
+
 Glyphosate Makes Harmful Algae Proliferate. See report by Brittanie L. Dabney, Reynaldo Patiño, Low-dose stimulation of growth of the harmful alga, Prymnesium parvum, by glyphosate and glyphosate-based herbicides. Harmful Algae, Volume 80, 2018, Pages 130-139, https://doi.org/10.1016/j.hal.2018.11.004.
-
-
 
 Ninety percent of corn grown in US and over 80% of soy crop is fed to farmed animals…much of being exported to China and other countries to feed factory farmed animals that are a potential source of pandemics, the highly pathogenic H5N1 avian influenza virus now decimating wild bird and land and sea mammals around the world.
 
