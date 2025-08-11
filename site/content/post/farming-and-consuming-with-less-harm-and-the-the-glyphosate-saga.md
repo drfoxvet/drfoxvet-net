@@ -36,6 +36,8 @@ Additional research studies highlight the risks of this herbicide: E. Reynier, &
 
 Riechelman-Casarin L, Valente LC, Otton R, Barbisan LF, Romualdo GR. Are glyphosate or glyphosate-based herbicides linked to Metabolic dysfunction-associated steatotic liver disease (MASLD)? The weight of current evidence. Environmental Toxicology and Pharmacology. Published online April 2025:104705. doi:10.1016/j.etap.2025.104705
 
+Glyphosate is an endocrine disruptor and may cause reduced fertility and erectile dysfunction.
+
 According to legal experts, the average Roundup settlement payout is $150,000 per plaintiff. Bayer agreed to pay nearly $11 billion to settle Roundup safety claims, but over 40,000 active lawsuits remain in litigation. Lawsuits claim using Roundup, a popular herbicide containing glyphosate, caused plaintiffs’ non-Hodgkin lymphoma and other cancers. (Statement from https://www.drugwatch.com/legal/roundup-settlements/#)
 
 It would therefore be advisable to consume USDA Organically Certified foods since glyphosate is prohibited under organic standards, and organic soils a less nutrient-deficient than conventional.
