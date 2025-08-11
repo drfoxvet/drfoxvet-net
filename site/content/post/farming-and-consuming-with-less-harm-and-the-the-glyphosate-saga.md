@@ -16,6 +16,8 @@ Now, a new study links Monarch butterfly and other insect and bird declines with
 
 Glyphosate Herbicide Concerns.
 
+With the development of herbicide-tolerant soybeans, corn, and cotton in 1996, the use of glyphosate and glyphosate-based herbicides has increased dramatically, and globally. It is also used as a pre-harvest desiccant on crops like wheat, barley, oats, soybeans, sorghum and beans to accelerate drying and make harvesting easier.
+
 Glyphosate is in the herbicide product called Roundup, and in other weed-killer formulations.There is considerable published research on how this herbicide affects the nutritive value of treated crops by binding some essential nutrients. (See Ismail Cakmak, et al. Glyphosate reduced seed and leaf concentrations of calcium, manganese, magnesium, and iron in non-glyphosate resistant soybean. European Journal of Agronomy, Volume 31, Issue 3, 2009, Pages 114-119, https://doi.org/10.1016/j.eja.2009.07.001
 
 Glyphosate is a chelating agent that has the potential to impact the uptake of lithium by binding to lithium ions, like its documented effects on other metallic nutrients such as manganese, magnesium, iron, zinc, etc. making them less available for plant uptake. Low levels of lithium are associated with higher rates of depression and anxiety, insomnia, sensitivity to stress, chronic pain, and a decline in natural healing processes, memory, and learning ability. High levels can be toxic. For details see Shakoor N, Adeel M, Ahmad MA, et al. Reimagining safe lithium applications in the living environment and its impacts on human, animal, and plant system. Environ Sci Ecotechnol. 2023 Feb 16;15:100252. doi: 10.1016/j.ese.2023.100252
@@ -53,8 +55,6 @@ Pet Food Contamination
 Glyphosate has been detected in high fiber/cereal content cat and dog foods. Companion animal feeds contained 7.83 × 101–2.14 × 103 μg kg−1 glyphosate which is likely to result in pet exposure that is 4–12 times higher than that of humans on a per Kg basis. ( Jiang Zhao, Steven Pacenka, Jing Wu, et al. Detection of glyphosate residues in companion animal feeds. Environmental Pollution. 2018; 243:1113-1118). 
 
  The prevalence of lymphoma and other cancers in companion animals, metabolic syndrome/obesity, intestinal dysbiosis and associated dermatological problems may be related to this herbicide contaminant in their food. 
-
-
 
 Glyphosate Makes Harmful Algae Proliferate. See report by Brittanie L. Dabney, Reynaldo Patiño, Low-dose stimulation of growth of the harmful alga, Prymnesium parvum, by glyphosate and glyphosate-based herbicides. Harmful Algae, Volume 80, 2018, Pages 130-139, https://doi.org/10.1016/j.hal.2018.11.004.
 
