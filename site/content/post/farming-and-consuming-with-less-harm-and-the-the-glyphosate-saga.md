@@ -2,7 +2,7 @@
 title: Farming and Consuming With Less Harm and the The Glyphosate Saga
 date: 2025-08-09T14:53:02.981Z
 tags:
-  - Farming
+  - Food
 ---
 Farming-and Consuming-With Less Harm
 
