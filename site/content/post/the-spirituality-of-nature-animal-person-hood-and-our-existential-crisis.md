@@ -2,7 +2,7 @@
 title: 'The Spirituality of Nature, Animal Person-hood and Our Existential Crisis'
 date: 2025-08-25T17:43:00.279Z
 tags:
-  - Spiritual Issues
+  - Environmental Issues
 ---
 THE SPIRITUALITY OF NATURE, ANIMAL PERSON-HOOD AND OUR EXISTENTIAL CRISIS
 
