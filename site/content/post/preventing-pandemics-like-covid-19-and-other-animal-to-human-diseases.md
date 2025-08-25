@@ -64,6 +64,22 @@ See also Fraiman J, Erviti J, Jones M, et al. Serious adverse events of special 
 
 According to Dr. Peter Doshi, with the University of Maryland the FDA has been ordered to release the Pfizer EUA file by June 30, 2025. On 6 December 2024, U.S. District Judge Mark T. Pittman ordered the US Food and Drug Administration (FDA) to publicly release all data and information submitted to the FDA underpinning the agency’s first-ever Emergency Use Authorization (EUA) granted for the Pfizer-BioNTech covid-19 vaccine on December 11, 2020.
 
+I wish all health care professionals would spend a little time and read the adverse reactions to mRNA COVID-19 vaccinations now available to the public, For details:
+
+BNT162b2 5.3.6 Cumulative Analysis of Post-authorization Adverse Event Reports
+
+See also Fraiman J, Erviti J, Jones M, Greenland S, Whelan P, Kaplan RM, Doshi P. Serious adverse events of special interest following mRNA COVID-19 vaccination in randomized trials in adults. Vaccine. 2022 Sep 22;40(40):5798-5805. doi: 10.1016/j.vaccine.2022.08.036.
+
+Both the viral infection causing COVID-19 pandemic and widely-used vaccines contain the spike protein of the virus that can cause harm in different ways to different people. This is an extremely complex issue addressed in this review that all health care providers should read:
+
+Halma, Matthew, Vottero, Paola, Thorp, James, et al. The Possible Mechanistic Basis of Individual Susceptibility to Spike Protein Injury, Advances in Virology, 2025, 7990876, 31 pages, 2025. https://doi.org/10.1155/av/7990876
+
+The adverse effects of vaccinations for some people, along with so-called long-COVID infection syndrome, cannot be denied.
+
+The American Academy of Pediatrics (AAP) is advising infants 6-months of age and older to be vaccinated, noting that in June, Health and Human Services Secretary Robert F. Kennedy Jr. fired and replaced all members of the CDC’s Advisory Committee on Immunization Practices (ACIP). The new members announced plans to review the CDC's child and adolescent immunization schedules, an action AAP leaders and experts said is an effort to sow distrust in vaccines. Kennedy has stated that healthy children need to be vaccinated but some schools may make it mandatory. The public, and parents especially, are confused and health-care professionals have no unified opinion of benefits of vaccinations in any age group outweighing the risks. 
+
+At the very least I would advise not giving other vaccinations, such as influenza, at the same time as the mRNA COVID-19, since this would confound adverse reaction data collection. I have made the same recommendation for many years for dogs and cats being given the anti-rabies vaccination that should not be combined with other vaccinations at the same time, or given to an animal who is not well. Vaccinations are of great value in preventing highly communicable diseases such as small pox, measles in children and distemper and parvovirus in puppies, but the precautionary principle must be applied. Also, some viruses continue to mutate, calling for vaccinations to be appropriately up-dated to be effective against new variants. But, as I emphasize in my book One Health: Veterinary, Ethical and Environmental Perspectives (CRC Press, 2025), the over-reliance on vaccinations by public health authorities not simultaneously promoting other health-care and disease-prevention initiatives, especially promoting good nutrition, sanitation, and food, water and air quality and safety, is a regrettable fact.
+
 In my opinion, the risks of mRNA vaccines, a product of genetic engineering biotechnology, have never been fully addressed or exposed by either the manufacturers or governmental health regulatory agencies promoting their use, and the precautionary principle needs to be more rigorously adopted
 
 REFERENCES
