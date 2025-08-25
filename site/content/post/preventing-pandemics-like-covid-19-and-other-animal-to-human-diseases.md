@@ -2,8 +2,6 @@
 title: Preventing Pandemics Like COVID-19 and Other Animal-to-Human Diseases
 date: 2020-08-20T16:10:55.512Z
 tags:
-  - Environment
-  - Farmed Animals
   - Public Health
 ---
 PREVENTING PANDEMICS LIKE COVID-19 AND OTHER ANIMAL-TO-HUMAN DISEASES
