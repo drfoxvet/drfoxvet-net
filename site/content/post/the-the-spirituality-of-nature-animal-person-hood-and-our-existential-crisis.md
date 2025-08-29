@@ -4,7 +4,7 @@ title: >-
   CRISIS 
 date: 2025-08-29T23:04:40.281Z
 tags:
-  - Spiritual Issues
+  - Ethical Issues
 ---
 THE SPIRITUALITY OF NATURE, ANIMAL PERSON-HOOD AND OUR EXISTENTIAL CRISIS
 
