@@ -2,7 +2,7 @@
 title: 'Toxoplasmosis from Cats: A One Health Issue'
 date: 2025-08-30T21:18:57.469Z
 tags:
-  - Cats
+  - Public Health
 ---
 TOXOPLASMOSIS FROM CATS: A ONE HEALTH ISSUE
 
