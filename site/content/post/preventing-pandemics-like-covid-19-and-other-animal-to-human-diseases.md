@@ -74,11 +74,7 @@ Halma, Matthew, Vottero, Paola, Thorp, James, et al. The Possible Mechanistic Ba
 
 The adverse effects of vaccinations for some people, along with so-called long-COVID infection syndrome, cannot be denied. Mandatory vaccinations for airline pilots have had purportedly adverse consequences ( Sudden deaths, incapacitations soar among COVID-jabbed airline pilots: report - LifeSite). 
 
-The contamination of these genetically engineered mRNA vaccines with fatty nanoparticle carriers, and a plethora of DNA is an issue of concern. See König B, Kirchner JO. Methodological Considerations Regarding the Quantification of DNA Impurities in the COVID-19 mRNA Vaccine Comirnaty®. Methods Protoc. 2024; 7(3):41. doi: 10.3390/mps7030041
-
-
-
-
+The contamination of these genetically engineered mRNA vaccines with lipid nanoparticle carriers, and a plethora of DNA is an issue of concern. See König B, Kirchner JO. Methodological Considerations Regarding the Quantification of DNA Impurities in the COVID-19 mRNA Vaccine Comirnaty®. Methods Protoc. 2024; 7(3):41. and Azarnezhad A, et al. Toxicological profile of lipid-based nanostructures: are they considered as completely safe nanocarriers? Crit Rev Toxicol. 2020; 50(2):148-176   
 
 The American Academy of Pediatrics (AAP) is advising infants 6-months of age and older to be vaccinated, noting that in June, Health and Human Services Secretary Robert F. Kennedy Jr. fired and replaced all members of the CDC’s Advisory Committee on Immunization Practices (ACIP). The new members announced plans to review the CDC's child and adolescent immunization schedules, an action AAP leaders and experts said is an effort to sow distrust in vaccines. Kennedy has stated that healthy children need to be vaccinated but some schools may make it mandatory. The public, and parents especially, are confused and health-care professionals have no unified opinion of benefits of vaccinations in any age group outweighing the risks. 
 
