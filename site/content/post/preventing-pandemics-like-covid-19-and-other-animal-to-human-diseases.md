@@ -58,6 +58,12 @@ This features toxicologist Phil Burcham’s series on the mRNA vaccines that wer
 
 Another review states: “some individuals have reported chronic symptoms that developed soon after receiving a COVID-19 vaccine. This little-understood, persistent condition, referred to as post-vaccination syndrome (PVS), remains unrecognized by medical authorities, and little is known about its biological underpinnings. Some of the most common chronic symptoms of PVS include exercise intolerance, excessive fatigue, brain fog, insomnia, and dizziness. They develop shortly after vaccination, within a day or two, can become more severe in the days that follow, and persist over time. More studies are needed to understand the prevalence of PVS.”- from https://news.yale.edu/2025/02/19/immune-markers-post-vaccination-syndrome-indicate-future-research-directions#
 
+Despite over 13 billion SARS-CoV-2 vaccine doses administered globally, persistent post-vaccination symptoms, termed post-COVID-19 vaccine syndrome (PCVS), resemble post-acute sequelae of COVID-19 (PASC). Symptoms like cardiac, vascular, and neurological issues often emerge shortly after vaccination and persist for months to years, mirroring PASC.
+
+See Patterson, B. K., Yogendra, R., Francisco, E. B.et al. Detection of S1 spike protein in CD16+ monocytes up to 245 days in SARS-CoV-2-negative post-COVID-19 vaccine syndrome (PCVS) individuals. Human Vaccines & Immunotherapeutics, 2025;21(1). https://doi.org/10.1080/21645515.2025.2494934
+
+
+
 See also Fraiman J, Erviti J, Jones M, et al. Serious adverse events of special interest following mRNA COVID-19 vaccination in randomized trials in adults. Vaccine. 2022; 40(40):5798-5805. doi: 10.1016/j.vaccine.2022.08.036.
 
 According to Dr. Peter Doshi, with the University of Maryland the FDA has been ordered to release the Pfizer EUA file by June 30, 2025. On 6 December 2024, U.S. District Judge Mark T. Pittman ordered the US Food and Drug Administration (FDA) to publicly release all data and information submitted to the FDA underpinning the agency’s first-ever Emergency Use Authorization (EUA) granted for the Pfizer-BioNTech covid-19 vaccine on December 11, 2020.
