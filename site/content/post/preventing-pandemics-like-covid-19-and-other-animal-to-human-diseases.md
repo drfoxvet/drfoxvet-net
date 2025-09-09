@@ -62,8 +62,6 @@ Despite over 13 billion SARS-CoV-2 vaccine doses administered globally, persiste
 
 See Patterson, B. K., Yogendra, R., Francisco, E. B.et al. Detection of S1 spike protein in CD16+ monocytes up to 245 days in SARS-CoV-2-negative post-COVID-19 vaccine syndrome (PCVS) individuals. Human Vaccines & Immunotherapeutics, 2025;21(1). https://doi.org/10.1080/21645515.2025.2494934
 
-
-
 See also Fraiman J, Erviti J, Jones M, et al. Serious adverse events of special interest following mRNA COVID-19 vaccination in randomized trials in adults. Vaccine. 2022; 40(40):5798-5805. doi: 10.1016/j.vaccine.2022.08.036.
 
 According to Dr. Peter Doshi, with the University of Maryland the FDA has been ordered to release the Pfizer EUA file by June 30, 2025. On 6 December 2024, U.S. District Judge Mark T. Pittman ordered the US Food and Drug Administration (FDA) to publicly release all data and information submitted to the FDA underpinning the agency’s first-ever Emergency Use Authorization (EUA) granted for the Pfizer-BioNTech covid-19 vaccine on December 11, 2020.
@@ -77,6 +75,10 @@ See also Fraiman J, Erviti J, Jones M, Greenland S, Whelan P, Kaplan RM, Doshi P
 Both the viral infection causing COVID-19 pandemic and widely-used vaccines contain the spike protein of the virus that can cause harm in different ways to different people. This is an extremely complex issue addressed in this review that all health care providers should read:
 
 Halma, Matthew, Vottero, Paola, Thorp, James, et al. The Possible Mechanistic Basis of Individual Susceptibility to Spike Protein Injury, Advances in Virology, 2025, 7990876, 31 pages, 2025. https://doi.org/10.1155/av/7990876
+
+The plethora of DNA fragments in the genetically engineered  COVID-19 vaccines is an issue of concern, and possibly the SV40 enhancer in the Pfizer vaccine according to  Speicher, D. J., Rose, J., & McKernan, K. (2025). Quantification of residual plasmid DNA and SV40 promoter-enhancer sequences in Pfizer/BioNTech and Moderna modRNA COVID-19 vaccines from Ontario, Canada. Autoimmunity, 58(1). https://doi.org/10.1080/08916934.2025.2551517
+
+
 
 The adverse effects of vaccinations for some people, along with so-called long-COVID infection syndrome, cannot be denied. Mandatory vaccinations for airline pilots have had purportedly adverse consequences ( Sudden deaths, incapacitations soar among COVID-jabbed airline pilots: report - LifeSite). 
 
