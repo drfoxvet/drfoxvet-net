@@ -43,3 +43,13 @@ Restlessness, apprehension, and anxiety were reported effects after the use of v
  FOR FURTHER DOCUMENTATION:
 
 <https://www.avma.org/KB/Resources/LiteratureReviews/Documents/Welfare%20Implications%20of%20the%20Use%20of%20B-Adrenoreceptor%20Agonists.pdf>
+
+Carbadox: Another Pig-production Drug Puts Consumers at Risk.
+
+The European Union (EU), United Kingdom, China, Australia, Canada, Brazil, Japan, and Uruguay have all banned the use of the feed additive carbadox for pigs due to human health concerns. It is a probable carcinogen. It was banned in Europe 25 years ago but is still widely used in the U.S. by pig producers.
+
+According to the FDA, Carbadox is an animal drug used in swine for production purposes (e.g., increased rate of weight gain and improved feed efficiency) and therapeutic purposes (e.g., to control swine dysentery and bacterial swine enteritis). Carbadox is an animal drug shown to be carcinogenic in laboratory animals. While carbadox is also an antimicrobial, it does not pose the same resistance issues as other antimicrobials and is not considered important to human medicine.
+
+For more details go to:
+
+https://nutritionfacts.org/video/carbadox-the-carcinogenic-drug-fed-to-u-s-pigs-but-banned-in-other-countries/
