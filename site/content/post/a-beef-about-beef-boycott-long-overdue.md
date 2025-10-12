@@ -67,6 +67,16 @@ There are safer and more sustainable, alternative sources of nutrients including
 
 A significant next step in helping secure a viable planet for generations to come is transitioning to organically certified, grass-fed, free-range cattle production when the livestock industry is supported by consumers and governments, utilizing the positive ecological services of these animals as well as sheep and goats, when in low and healthy numbers, in the restoration and maintenance of grasslands, steppes, and prairies around the world. I have met with Western cattle ranchers, East African and S. Indian cattle herders, for whom I have sympathy; and witnessed how their animals are handled and slaughtered. All of us must change if we are to ever restore the healing connections of One Health for our One Earth. After all, none of the plants we eat can infect us with diseases, (many preventing us from disease and ageing), while the animals we consume most certainly do.
 
+From the United States Cattlemen’s Association posting:
+
+(https://uscattlemen.org › wp-content › uploads)
+
+“Resolution 10: Gray Wolf Management (Renewed 2024) WHEREAS the gray wolf management under the Endangered Species Act has proven to be detrimental to livestock producers; and WHEREAS the gray wolf population has exceeded predetermined levels; THEREFORE, BE IT RESOLVED USCA supports efforts to fully remove the Gray Wolf from consideration under the Endangered Species Act (ESA).”
+
+Like the past centuries’ extermination of indigenous peoples, - the native American Indians or Anishinaabe, -this attitude toward wolves is a sad reflection of ignorance, fear and prejudice.
+
+ While the price and consumption of beef are on the rise in the U.S. along with colon cancer, (barbecuing beef creates more carcinogens!) the beefeaters of today are major contributors to climate change along with this entire industry. Politically justified and adverse consequences denied, the atavistic capitalists of agribusiness and other industries contributing to the climate crisis are roundly confronted by Richard Grunwald in his 2025 book We Are Eating the Earth. The Race to Fix Our Food System and Save Our Climate. This is a call to all consumers. What is good for the Earth is good for us and eating beef, as he asserts, is not. So did my friend Jeremy Rifkin in his 1992 book Beyond Beef: The Rise and Fall of the Cattle Culture. How slow we are to change for Earth’s sake and for the animals, as well as our own health.
+
 Beef Pricing Racket Broken
 
  Meatingplace.com posted that Tyson Foods and Cargill have agreed to pay a combined $87.5 million to settle a federal class-action lawsuit alleging they conspired to inflate U.S. beef prices by limiting supply.
@@ -74,8 +84,6 @@ Beef Pricing Racket Broken
 According to court filings October 6th 2025 in the U.S. District Court for Minnesota, Tyson will pay $55 million and Cargill $32.5 million under preliminary settlements that still require a judge’s approval. The agreements mark the first consumer settlements in the beef price-fixing litigation, which began in 2019. Under the settlement terms, Tyson and Cargill agreed to cooperate with consumers pursuing claims against the remaining defendants, JBS USA and National Beef Packing, which have denied wrongdoing. An expert for the plaintiffs estimated total consumer damages at $1.9 billion.
 
 The beef settlement follows Tyson’s separate $85 million deal last week resolving similar allegations in the pork industry. Tyson, Cargill, and JBS have each denied participating in price-fixing schemes.
-
-
 
 https://meatingplace.com/tyson-cargill-agree-to-multi-million-dollar-settlements-in-beef-price-fixing-case.
 
