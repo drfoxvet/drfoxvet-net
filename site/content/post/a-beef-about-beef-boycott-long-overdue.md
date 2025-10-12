@@ -14,9 +14,10 @@ The continuing assaults, documented in this review, by the cattle industry, on w
 
 U.S. cattle ranchers have waged war on wolves and other predators for centuries, which ultimately disrupts the valuable ecological services these predators play in keeping deer and elk herds as well as forests, healthy; and indirectly, benefiting public health. (1.).
 
-
-
-The United States Cattlemen's Association list of resolutions (https://uscattlemen.org › wp-content › uploads PDF) includes: “Resolution 10: Gray Wolf Management (Renewed 2024) WHEREAS the gray wolf management under the Endangered Species Act has proven to be detrimental to livestock producers; and WHEREAS the gray wolf population has exceeded predetermined levels; THEREFORE, BE IT RESOLVED USCA supports efforts to fully remove the Gray Wolf from consideration under the Endangered Species Act (ESA).”
+The United States Cattlemen's Association list of resolutions
+ (https://uscattlemen.org › wp-content › uploads
+ PDF) includes:
+ “Resolution 10: Gray Wolf Management (Renewed 2024) WHEREAS the gray wolf management under the Endangered Species Act has proven to be detrimental to livestock producers; and WHEREAS the gray wolf population has exceeded predetermined levels; THEREFORE, BE IT RESOLVED USCA supports efforts to fully remove the Gray Wolf from consideration under the Endangered Species Act (ESA).”
 
 Following a February 10, 2022, court order, gray wolves in the contiguous 48 states and Mexico – except for the Northern Rocky Mountain population (Northern Rocky Mtn of ID, MT, WY; eastern 1/3 of OR, WA; north-central UT) – are now protected under the Endangered Species Act (ESA), classified as threatened in Minnesota and endangered in the remaining states. (ws.gov/initiative/protecting-wildlife/gray-wolf-recovery-news-and-updates).  Wolf hunting in Alaska is virtually unregulated.
 This disturbing August 18, 2023 article by Christopher Ingraham USDA kills hundreds of Minnesota wolves to protect ranchers underscores the perpetuation of this insanity. (2). He writes: “In 2022, there were 174 documented wolf deaths in Minnesota, according to the latest state Department of Natural Resources data. Of those, 142 were killed by a relatively obscure arm of the U.S. Department of Agriculture called the Wildlife Services division. ----USDA officers kill more wolves in Minnesota than in all other states combined, according to the program’s annual reports. That work is effectively a government handout to ranchers, who receive publicly funded protection for their privately held livestock. The ranchers also receive cash compensation from state taxpayers for their lost cattle, which in 2022 totaled $100,000 for 78 wolf predation claims, or an average of about $1,300 per claim. While individual ranchers can experience significant losses if wolves repeatedly target their cows, the overall impact on the state’s cattle population is negligible. There are about 2.2 million cows in the state, according to USDA data. The five or six dozen documented and verified wolf kills in a given year amount to a few thousandths of 1 percent of the total population. But the USDA’s actions in response inflict a steep toll upon Minnesota’s wolves. The 142 kills amount to fully 5% of the state’s estimated wolf population.”
@@ -66,6 +67,20 @@ There are safer and more sustainable, alternative sources of nutrients including
 
 A significant next step in helping secure a viable planet for generations to come is transitioning to organically certified, grass-fed, free-range cattle production when the livestock industry is supported by consumers and governments, utilizing the positive ecological services of these animals as well as sheep and goats, when in low and healthy numbers, in the restoration and maintenance of grasslands, steppes, and prairies around the world. I have met with Western cattle ranchers, East African and S. Indian cattle herders, for whom I have sympathy; and witnessed how their animals are handled and slaughtered. All of us must change if we are to ever restore the healing connections of One Health for our One Earth. After all, none of the plants we eat can infect us with diseases, (many preventing us from disease and ageing), while the animals we consume most certainly do.
 
+Beef Pricing Racket Broken
+
+ Meatingplace.com posted that Tyson Foods and Cargill have agreed to pay a combined $87.5 million to settle a federal class-action lawsuit alleging they conspired to inflate U.S. beef prices by limiting supply.
+
+According to court filings October 6th 2025 in the U.S. District Court for Minnesota, Tyson will pay $55 million and Cargill $32.5 million under preliminary settlements that still require a judge’s approval. The agreements mark the first consumer settlements in the beef price-fixing litigation, which began in 2019. Under the settlement terms, Tyson and Cargill agreed to cooperate with consumers pursuing claims against the remaining defendants, JBS USA and National Beef Packing, which have denied wrongdoing. An expert for the plaintiffs estimated total consumer damages at $1.9 billion.
+
+The beef settlement follows Tyson’s separate $85 million deal last week resolving similar allegations in the pork industry. Tyson, Cargill, and JBS have each denied participating in price-fixing schemes.
+
+
+
+https://meatingplace.com/tyson-cargill-agree-to-multi-million-dollar-settlements-in-beef-price-fixing-case.
+
+The beef industry is a major contributor to climate change, exterminating wolves and cougars and other predators and ruining natural biodiversity. Much beef is contaminated with growth-stimulating, estrogen-mimicking and endocrine disrupting pharmaceuticals that may be a factor in determining sexual identity in children from parents who ate beef. Some of these drugs cause cancer, along with the chemicals created by barbecuing and roasting that triggers the Maillard reaction in the meat that are carcinogenic. Consumption of highly processed meats is associated with colon cancer. 
+
 ADDENDUM
 AMERICA’S CRIMES AGAINST THE BUFFALO NATION
 
@@ -95,7 +110,7 @@ REFERENCES
 2. https://minnesotareformer.com/2023/08/18/usda-kills-hundreds-of-minnesota-wolves-to-protect-ranchers-profits/
 3. Wielgus RB, Peebles KA (2014) Effects of Wolf Mortality on Livestock Depredations. PLoS ONE 9(12): e113505. doi:10.1371/journal. https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0113505
 4. S. Vallone and E.F. Lambin, Public policies and vested interests preserve the animal farming status quo at the expense of animal product analogs, One Earth (2023), https://doi.org/10.1016/j.oneear.2023.07.013
-5.  Kauffman, J.B., Beschta, R.L., Lacy, P.M. et al. Livestock Use on Public Lands in the Western USA Exacerbates Climate Change: Implications for Climate Change Mitigation and Adaptation. Environmental Management 69, 1137–1152 (2022). https://doi.org/10.1007/s00267-022-01633-8    
+5. Kauffman, J.B., Beschta, R.L., Lacy, P.M. et al. Livestock Use on Public Lands in the Western USA Exacerbates Climate Change: Implications for Climate Change Mitigation and Adaptation. Environmental Management 69, 1137–1152 (2022). https://doi.org/10.1007/s00267-022-01633-8    
 6. https://iacuc.wsu.edu/zoonoses-associated-with-cattle/#
 7. Miller RS, Farnsworth ML, Malmberg JL. Diseases at the livestock-wildlife interface: status, challenges, and opportunities in the United States. Prev Vet Med. (2013) Jun 1;110(2):119-32. doi: 10.1016/j.prevetmed.2012.11.021. 
 8. HFA-LIP-fact-sheet.pdf 
@@ -103,13 +118,13 @@ REFERENCES
 10. https://www.aier.org/article/the-true-cost-of-a-hamburger/   
 11. https://www.drovers.com/news/ag-policy/quit-making-money-backs-american-producers-usda-proposes-us-beef-labeling-updates
 12. https://news.mongabay.com/2020/05/brazilian-taxpayers-subsidizing-amazon-clearing-cattle-ranches-study-shows/#
-13.  https://www.tsln.com/news/us-imports-from-brazil-continue/#:
+13. https://www.tsln.com/news/us-imports-from-brazil-continue/#:
 14. https://www.tsln.com/news/us-imports-from-brazil-continue/#:
 15. See burninglegacy.org and www.stand.earth.
 16. d41586-023-02599-1.pdf "We are killing this ecosystem": the scientists tracking the Amazon's fading health (nature.com)
 17. https://www.drovers.com/news/industry/major-beef-exporters-and-importers-2023.
 18. Colchester AC, Colchester NT (2005). "The origin of bovine spongiform encephalopathy: the human prion disease hypothesis". Lancet. 366 (9488): 856–61. doi:10.1016/S0140-6736(05)67218-2. PMID 16139661. S2CID 38330299.). 
-19.  Botswana : environmental policies and practices under scrutiny. The Lomba Archives https://portals.iucn.org/library/ 
+19. Botswana : environmental policies and practices under scrutiny. The Lomba Archives https://portals.iucn.org/library/ 
 20. https://www.hcn.org/articles/south-landline-the-feds-crack-down-on-feral-cattle,
 21. https://www.nationalgeographic.com/animals/article/india-five-million-stray-cattle-sacred-hindu
-22.  Humpenöder F.et al Projected environmental benefits of replacing beef with microbial protein. Nature. 2022; 605: 90-96https://doi.org/10.1038/s41586-022-04629-w).
+22. Humpenöder F.et al Projected environmental benefits of replacing beef with microbial protein. Nature. 2022; 605: 90-96https://doi.org/10.1038/s41586-022-04629-w).
