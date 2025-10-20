@@ -1,10 +1,9 @@
 ---
-title: >-
-  Carrageenan & Other Emulsifiers in Human & Dog & Cat Foods Cause Health
-  Problems
+title: 'Carrageenan & Other Emulsifiers in Human and Pet Foods: Health Concerns'
 date: 2025-10-20T17:50:00.000Z
 tags:
   - Cats
+  - Dogs
 ---
 There is increasing concern over the inclusion of an additive called carrageenan, a seaweed-derived natural product that acts as a binder, thickening agent, and as a stabilizer in many processed human foods and beverages and canned cat and dog foods. While manufacturers and government agencies who have approved this additive still insist that it should be generally regarded as safe, there is increasing research evidence from controlled studies on laboratory-tested animals that it is not: and affirming evidence in support of these findings from the clinical improvement in cats and dogs suffering from various digestive and intestinal problems when given diets that do not contain carrageenan.
 
@@ -36,28 +35,13 @@ A list of carrageenan-free cat foods is also available, see  Carrageenan-free ca
 Agar-agar and guar gum are widely used as emulsifiers in prepared human and companion animal foods.Some recent peer-reviewed reports indicate these two emulsifiers can cause health problems and that alternative, safer emulsifiers, if needed, should be used: 
 One recent study demonstrates that food additive guar gum adversely impacts the gut microbiota activity and colonic immune response and increases susceptibility to colonic inflammation. Paudel D, Tian S, Joseph G, Prodes E, Nair DVT, Singh V. Guar Gum-Induced Changes in Gut Microbiota Metabolic Activity and Intestinal Immune Response Augments Susceptibility to Experimental Colitis. Curr Dev Nutr. 2022 Jun 14;6(Suppl 1):992. doi: 10.1093/cdn/nzac068.021. PMCID:
 
+
+
 Several studies suggest that dietary emulsifiers, such as CMC, polysorbate 80 (P80), carrageenans, and gums (such as agar-agar) could shift the gut microbiota composition to a proinflammatory pattern predisposing to metabolic syndrome and intestinal inflammatory disease:
 
  Monteiro C.A., Cannon G., Levy R.B., Moubarac J.-C., Louzada M.L., Rauber F., Khandpur N., Cediel G., Neri D., Martinez-Steele E., et al. Ultra-Processed Foods: What They Are and How to Identify Them. Public Health Nutr. 2019;22:936–941. doi: 10.1017/S1368980018003762.
 
+
+
+
 Chassaing B., Koren O., Goodrich J.K., Poole A.C., Srinivasan S., Ley R.E., Gewirtz A.T. Dietary Emulsifiers Impact the Mouse Gut Microbiota Promoting Colitis and Metabolic Syndrome. Nature. 2015;519:92–96. doi: 10.1038/nature14232
-
-Hazards of Emulsifiers in Processed Foods 
-
-Emulsifiers are chemicals added to processed foods to stabilize mixtures that would not naturally blend, such as oil and water. They improve texture, extend shelf life, and enhance appearance--but at what cost?
-
-A recent study followed 104,139 adults over 14 years, tracking their diets through biannual food logs. The findings were alarming:
-
-•	Gum arabic increased diabetes risk by three percent per 1,000 milligrams (mg) consumed.
-
-•	Carrageenans (found in dairy products) raised diabetes risk by three percent per 100 mg consumed.
-
-•	Xanthan gum (common in sauces and dressings) increased diabetes risk by eight percent per 500 mg consumed.
-
-•	Tripotassium phosphate (used in processed cheeses) spiked diabetes risk by 15 percent per 500 mg consumed.
-
-These additives do not just disrupt blood sugar—they wreak havoc on the gut microbiome, the delicate ecosystem of bacteria in the intestines that are crucial for digestion, immunity and metabolic health.
-
-Emulsifiers can strip away the protective mucus layer in the gut, leaving the intestinal lining vulnerable to inflammation. Chronic inflammation is a key driver of insulin resistance, disrupting insulin signaling pathways and impairing the body's ability to properly utilize glucose, which leads to elevated blood sugar levels. This is why insulin resistance is recognized as the precursor to Type 2 diabetes
-
-See Salame, Clara et al. Food additive emulsifiers and the risk of type 2 diabetes: analysis of data from the NutriNet-Santé prospective cohort study. The Lancet Diabetes & Endocrinology,2025; 12: Issue 5, 339 - 349
