@@ -2,7 +2,7 @@
 title: Carrageenan & Other Emulsifiers in Human & Pet Foods cause health Problems
 date: 2025-10-20T16:51:51.910Z
 tags:
-  - Cats
+  - Dogs
 ---
 Carrageenan & Other Emulsifiers in Human & Dog & Cat Foods Cause Health Problems
 
