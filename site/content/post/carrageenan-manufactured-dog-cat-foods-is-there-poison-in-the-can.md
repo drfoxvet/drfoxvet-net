@@ -2,7 +2,7 @@
 title: 'Carrageenan & Other Emulsifiers in Human and Pet Foods: Health Concerns'
 date: 2025-10-20T17:50:00.000Z
 tags:
-  - Dogs
+  - Public Health
 ---
 There is increasing concern over the inclusion of an additive called carrageenan, a seaweed-derived natural product that acts as a binder, thickening agent, and as a stabilizer in many processed human foods and beverages and canned cat and dog foods. While manufacturers and government agencies who have approved this additive still insist that it should be generally regarded as safe, there is increasing research evidence from controlled studies on laboratory-tested animals that it is not: and affirming evidence in support of these findings from the clinical improvement in cats and dogs suffering from various digestive and intestinal problems when given diets that do not contain carrageenan.
 
